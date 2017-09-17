@@ -2,7 +2,7 @@
 
 import re
 
-DIVOFF_DIR = '/Users/mmolenda/prv/divinum-officium/web/www/missa/Polski/'
+DIVOFF_DIR = '/home/dawid/Repos/divinum-officium/web/www/horas/Polski/'
 
 EXCLUDE_SECTIONS = (
     'Evangelium1',
@@ -116,15 +116,15 @@ PROPERS_INPUT1 = (
 )
 
 PROPERS_INPUT = (
-('Stałe Części Mszy Świętej', ),
-('Ordo/Ordo.txt', 'Communis', None),
-('Ordo/Asperges.txt', 'Communis', None),
-('Ordo/Incipit.txt', 'Communis', None),
-('Ordo/Verbo.txt', 'Communis', None),
-('Ordo/Offertorium.txt', 'Communis', None),
-('Ordo/Canon.txt', 'Communis', None),
-('Ordo/Communio.txt', 'Communis', None),
-('Ordo/Conclusio.txt', 'Communis', None),
+#('Stałe Części Mszy Świętej', ),
+#('Ordo/Ordo.txt', 'Communis', None),
+#('Ordo/Asperges.txt', 'Communis', None),
+#('Ordo/Incipit.txt', 'Communis', None),
+#('Ordo/Verbo.txt', 'Communis', None),
+#('Ordo/Offertorium.txt', 'Communis', None),
+#('Ordo/Canon.txt', 'Communis', None),
+#('Ordo/Communio.txt', 'Communis', None),
+#('Ordo/Conclusio.txt', 'Communis', None),
 
 ('Adwent', ),
 ('Tempora/Adv1-0.txt', 'Trinitate', None),
@@ -137,9 +137,9 @@ PROPERS_INPUT = (
 ('Sancti/12-24.txt', 'Trinitate', None),
 
 ('Okres Bożego Narodzenia', ),
-('Sancti/12-25m1.txt', 'Nat', 'C-Nat1962'),
-('Sancti/12-25m2.txt', 'Nat', 'C-Nat1962'),
-('Sancti/12-25m3.txt', 'Nat', 'C-Nat1962'),
+#('Sancti/12-25m1.txt', 'Nat', 'C-Nat1962'),
+#('Sancti/12-25m2.txt', 'Nat', 'C-Nat1962'),
+#('Sancti/12-25m3.txt', 'Nat', 'C-Nat1962'),
 ('Tempora/Nat1-0.txt', 'Nat', 'C-Nat1962'),
 ('Sancti/12-26.txt', 'Nat', 'C-Nat1962'),
 ('Sancti/12-27.txt', 'Nat', 'C-Nat1962'),
