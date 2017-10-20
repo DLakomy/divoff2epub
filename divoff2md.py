@@ -125,7 +125,7 @@ def main():
             print '\n# ' + i[0]
         else:
             # Printing propers
-            path, pref_key, comm_key = i
+            path = i
             try:
                 contents = read_file(path)
             except Exception, e:
