@@ -28,6 +28,10 @@ def resolve_conditionals(d):
                 # delete previous line; do not append current one
                 del new_content[i - 1]
                 continue
+            if '(rubrica Divino aut rubrica Tridentina aut rubrica Monastica)' in ln: #not working
+                # skip next line; do not append current one
+                itercontent.next()
+                continue
             if '(rubrica 1570 aut rubrica 1910 aut rubrica divino afflatu dicitur)' in ln:
                 # skip next line; do not append current one
                 itercontent.next()
@@ -87,7 +91,7 @@ def read_file(path, lookup_section=None):
     d = resolve_conditionals(d)
     return d
 
-def print_contents(path, contents, pref, comm):
+def print_contents(path, contents):
 
     def _print_section(section, lines):
         print '\n'
@@ -111,33 +115,25 @@ def print_contents(path, contents, pref, comm):
     for section, lines in contents.items():
         _print_section(section, lines)
 
-        # After Secreta print Prefation and (optionally) Communicantes
-        if section == 'Secreta':
-            _print_section('Prefatio', pref)
-            if comm:
-                _print_section('Communicantes', comm)
-
     if not path.startswith('Ordo'):
         print '<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>'
 
 def main():
-    prefationes = read_file('Ordo/Prefationes.txt')
     for i in PROPERS_INPUT:
         if len(i) == 1:
             # Printing season's title
             print '\n# ' + i[0]
         else:
             # Printing propers
-            path, pref_key, comm_key = i
+            path = i
             try:
                 contents = read_file(path)
             except Exception, e:
-                sys.stderr.write("Cannot parse {}: {}".format(sys.argv[1], e))
-                raise
+                print '\n Błąd importu.'
+                with open("errors.log", "a") as logfile:
+                    logfile.write(path+"\n")
             else:
-                print_contents(path, contents,
-                               prefationes.get(pref_key),
-                               prefationes.get(comm_key))
+                print_contents(path, contents)
 
 if __name__ == '__main__':
     main()
