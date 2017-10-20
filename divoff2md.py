@@ -129,7 +129,9 @@ def main():
             try:
                 contents = read_file(path)
             except Exception, e:
-                raise
+                print '\n Błąd importu.'
+                with open("errors.log", "a") as logfile:
+                    logfile.write(path+"\n")
             else:
                 print_contents(path, contents)
 
