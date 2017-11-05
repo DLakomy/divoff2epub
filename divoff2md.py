@@ -129,9 +129,12 @@ def main():
             try:
                 contents = read_file(path)
             except Exception, e:
+                template = "{0}, \n{1!r}"
+                msg = template.format(type(e).__name__, e.args)
                 print '\n Błąd importu.'
+                print msg
                 with open("errors.log", "a") as logfile:
-                    logfile.write(path+"\n")
+                    logfile.write(path+":\n"+msg+"\n\n")
             else:
                 print_contents(path, contents)
 
