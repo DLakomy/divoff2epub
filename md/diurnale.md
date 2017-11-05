@@ -29,22 +29,6 @@ Który żyjesz.
   
 
 
-### Lectio2  
-*Iz 1:4-6*  
-4 Biada narodowi grzesznemu, ludowi nieprawością obciążonemu,nasieniu złemu, synom złośliwym: opuścili Pana, bluźnili Świętego Izraelowego, odwrócili się wstecz.  
-5 Na czemże was mam więcéj karać, którzy przyczyniacie przestępstwa? każda głowa chora, a każde serce żałośne.  
-6 Od stopy nogi aż do wierzchu głowy niemasz w nim zdrowia: rana i siność i spuchły raz, nie jest zawiązany, ani lekarstwem opatrzony, ani oliwą zmiękczony.  
-  
-
-
-### Lectio3  
-*Iz 1:7-9*  
-7 Ziemia wasza spustoszona, miasta wasze ogniem popalone: krainę waszę przed wami cudzoziemcy pożerają, i spustoszeje jako w zburzeniu nieprzyjacielskiem.  
-8 I zostanie się córka Syońska jako chłodnik w winnicy a jako budka w ogrodzie ogórkowym i jako miasta, które burzą.  
-9 By nam był Pan zastępów nie zostawił nasienia, bylibychmy jako Sodoma, i stalibyśmy się Gomorze podobni.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według św. Łukasza  
 *Łk 21:25-33*  
@@ -116,26 +100,6 @@ Nie bój się, Marjo: * albowiem znalazłaś łaskę u Boga: oto poczniesz i por
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Iz 1:19-23*  
-19 Jeźli zechcecie a posłuchacie mię, dóbr ziemie pożywać będziecie.  
-20 Ale jeźli nie zechcecie, a mnie ku gniewowi przywiedziecie, miecz was pożre; bo usta Pańskie mówiły.  
-21 Jako się stało nierządnicą miasto wierne, pełne sądu? Sprawiedliwość mieszkała w niem, a teraz mężobójce.  
-22 Śrebro twoje obróciło się w zużelicę: wino twoje zmięszało się z wodą.  
-23 Książęta twoje niewierne, towarzysze złodziejscy: wszyscy miłują dary a idą za nagrodą: sierocie nie czynią sprawiedliwości, a sprawa wdowia nie przychodzi przed nie.  
-  
-
-
-### Lectio3  
-*Iz 1:24-28*  
-24 Przeto mówi Pan, Bóg zastępów, mocny Izraelski: Ach pocieszę się nad nieprzyjaciółmi swymi, a pomszczę się nad przeciwniki mymi.  
-25 I obrócę rękę swoję na cię, i wypalę do czysta zużelicę twoję i odpędzę wszystkę cenę twoję.  
-26 I przywrócę sędzie twoje, jako przedtem byli, a rajce twoje jako z staradawna. Potem będziesz nazwano miastem sprawiedliwego, miastem wiernem.  
-27 Syon w sądzie odkupione będzie i przywiodą je zaś w sprawiedliwości.  
-28 A zetrze złośniki i grzeszniki spółem: a którzy Pana opuścili, będą wyniszczeni.  
-  
-
-
 ### Ant 2  
 Anioł Pański * zwiastował Maryji, i poczęła z Ducha Świętego, alleluja.  
   
@@ -144,22 +108,6 @@ Anioł Pański * zwiastował Maryji, i poczęła z Ducha Świętego, alleluja.
 ### Ant 3  
 Podnieś Jeruzalem * oczy twoje, i zobacz siłę króla: oto Zbawca przyjdzie uwolnić cię z kajdan.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Iz 2:4-6*  
-4 I będzie sądził narody, i będzie strofował ludzi wiele. I przekują miecze swe na lemiesze, a włocznie swe na sierpy: nie podniesie miecza naród przeciw narodowi, ani się będą więcéj ćwiczyć ku bitwie.  
-5 Domie Jakóbów! pójdźcie, a chódźmy w światłości Pańskiéj.  
-6 Albowiem porzuciłeś twój lud, dom Jakóbów, iż pełni są jako przedtem, i mieli wieszczki jako Philistynowie, a dzieci się cudzych jęli.  
-  
-
-
-### Lectio3  
-*Iz 2:7-9*  
-7 Napełniona jest ziemia śrebra i złota, i niemasz końca skarbom jego: i napełniła się ziemia jego koni, i niemasz liczby poczwornych jego.  
-8 I napełniła się ziemia jego bałwanów: kłaniali się dziełu rąk swoich, które uczyniły palce ich.  
-9 I kłaniał się człowiek, i uniżał się mąż: przetóż nie odpuszczaj im.  
-  
 
 
 ### Ant 2  
@@ -172,34 +120,6 @@ Szukajcie Pana, * póki nalezion być może: wzywajcie go, póki jest blisko, al
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Iz 3:5-7*  
-5 A obórzy się lud, mąż na męża, i każdy na bliźniego swego: powstanie chłopię na starca, a wzgardzony na uczciwego.  
-6 Bo ujmie mąż brata swego, domownika ojca swego: Masz odzienie, bądź książęciem naszym, a upadek ten pod ręką twoją.  
-7 Odpowie dnia onego, mówiąc: Nie jestem lekarz, i w domu moim niemasz chleba, ani odzienia: nie stanówcie mię książęciem na ludem.  
-  
-
-
-### Lectio3  
-*Iz 3:8-11*  
-8 Bo się wali Jeruzalem, a Judas upadł, iż język ich i wynalazki ich przeciw Panu, aby draźnili oczy majestatu jego.  
-9 Poznanie oblicza ich odpowiedziało im: a grzech swój jako Sodoma opowiadali a nie taili. Biada duszy ich; bo im oddano złości.  
-10 Powiedzcie sprawiedliwemu, że dobrze, iż owoców wynalazków swoich pożywać będzie.  
-11 Biada bezbożnemu na złe; albowiem odpłata rąk jego stanie mu się.  
-  
-
-
-### Responsory3  
-R. Oto nadchodzą dni, mówi Pan, kiedy wzbudzę Dawidowi odrośl sprawiedliwą. Będzie panował jako król, postępując roztropnie, i będzie czynił sąd i sprawiedliwość na ziemi:  
-* To zaś jest imię, którym Go będą nazywać: * Pan nasz sprawiedliwy.  
-V. W owych dniach Juda dostąpi zbawienia, a Izrael będzie mieszkał bezpiecznie.  
-R. To zaś jest imię, którym Go będą nazywać:  
-Chwała Ojcu.  
-R. Pan nasz sprawiedliwy.  
-  
-  
-
-
 ### Ant 2  
 Z Syonu * wynidzie zakon, a słowo Pańskie z Jeruzalem.  
   
@@ -209,11 +129,30 @@ Z Syonu * wynidzie zakon, a słowo Pańskie z Jeruzalem.
 Idzie * za mną możniejszy niźli ja, którego nie jestem godzien, rozwiązać rzemyka trzewików.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Ant 2  
+Błogosławionaś * ty między niewiastami, i błogosławiony owoc żywota twojego.  
+  
 
- Błąd importu.
+
+### Ant 3  
+Będę oczekiwać * Pana Zbawcy mego, a gotów będę gdy blisko będzie, alleluja.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Oto przyjdzie * Bóg, i człowiek z domu Dawidowego zasiąść na tronie, alleluja.  
+  
+
+
+### Ant 3  
+Z Egyptu * wezwałem Syna mego: przyjdzie, i wybawi lud swój.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Syonie, nie lękaj się * oto Bóg Twój przyjdzie, alleluja.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Ant Vespera  
@@ -240,23 +179,6 @@ Przyjdż, Panie, * nawiedzić nas w pokoju, byśmy rozradowali się przed Tob�
 ### Kolekta  
 Pobudź, Panie, serca nasze do przygotowania dróg Synowi Twemu Jednorodzonemu, abyśmy przez przyjście Jego, oczyszczoną z grzechów duszą służyć Ci mogli.  
 Który z Tobą.  
-  
-
-
-### Lectio2  
-*Iz 11:4-7*  
-4 I ubije ziemię rózgą ust swoich, a duchem warg swoich zabije niezbożnika.  
-5 I będzie sprawiedliwość pasem biódr jego, a wiara opasaniem nerek jego.  
-6 Będzie mieszkał wilk z jagnięciem, a pard z koźlęciem legać będzie: cielę i lew i owca pospołu mieszkać będą, a dziecię małe pędzić je będzie.  
-7 Cielę i niedźwiedź będą się paść, społem legać będą dzieci ich, a lew jako wół plewy będzie jadał.  
-  
-
-
-### Lectio3  
-*Iz 11:8-10*  
-8 I będzie grało dzieciątko od piersi nad dziurą żmijową: a odchowane dziecię do jamy bazyliszkowej wpuści rękę swoję.  
-9 Nie będą szkodzić ani zabijać po wszystkiéj górze świętéj mojéj; bo napełniona jest ziemia znajomości Pańskiéj, jako wody morskie pokrywające.  
-10 Onego dnia korzeń Jesse, który stoi na znak narodów, jemu się narodowie modlić będą, i będzie grób jego sławny.  
   
 
 
@@ -330,17 +252,60 @@ Bogu dzięki.
 Tyś jest, który masz przyjść, * czyli innego czekamy? Odnieście Janowi, coście widzieli: Ślepi widzą, umarli zmartwychwstają, ubogim Ewangelję opowiadają, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Ant 2  
+Z nieba przyjdzie * Władca Pan, a w ręku jego chwała i władztwo.  
+  
 
- Błąd importu.
 
- Błąd importu.
+### Ant 3  
+Oto przyjdzie Król * pan ziemi i on odsunie jarzmo uwięzienia naszego.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Ant 2  
+Nad tobą * Jeruzalem, wnidzie Pan, a sława jego nad tobą, widziana będzie.  
+  
+
+
+### Ant 3  
+Głos wołającego * na puszczy: Gotujcie drogę Pańską, proste czyńcie ścieżki Boga naszego.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Oto Ja posyłam * Anioła mojego, który nagotuje drogę moją przed obliczem twojem.  
+  
+
+
+### Ant 3  
+Syon odnowion będzie, * a zobaczysz twego sprawiedliwego, który przyjść ma do ciebie.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Tyś jest, który przybył, * Panie, któregośmy oczekiwali, byś zbawienie uczynił ludowi twemu.  
+  
+
+
+### Ant 3  
+Ten jest, który za mną przyjdzie, * który przedemną stał się: któremu ja nie godzien, żebym rozwiązał rzemyk u trzewika jego.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Powiedzcie: Bojaźliwi * umocnijcie się: oto Pan Bóg nasz przyjdzie.  
+  
+
+
+### Ant 3  
+Śpiewajcie Panu * pieśń nową, chwała jego od kończyn ziemie.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Podniesie Pan znak * wśród narodów, a zbierze rozproszonych Izraela.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Ant Vespera  
@@ -367,24 +332,6 @@ Przedemną * nie jest utworzony Bóg i po mnie nie będzie: wszelkie kolano mi s
 ### Kolekta  
 Wysłuchaj, prosimy Cię, Panie, modlitw naszych, a łaską nawiedzenia Twego rozprosz ciemności umysłu naszego.  
 Który żyjesz.  
-  
-
-
-### Lectio2  
-*Iz 26:7-10*  
-7 Ścieżka sprawiedliwego prosta jest, prosta droga sprawiedliwego na chodzenie.  
-8 A na ścieżce sądów twoich, Panie, czekaliśmy na cię; imię twoje i pamiątka twoja w żądzy dusze.  
-9 Dusza moja żądała cię w nocy, ale i duchem moim we wnętrznościach moich z rana będę czuł do ciebie: gdy uczynisz sądy twoje na ziemi, sprawiedliwości się nauczą obywatele świata.  
-10 Zmiłujmy się nad niezbożnym, a nie nawyknie sprawiedliwości: w ziemi świętych nieprawość czynił, i nie ogląda chwały Pańskiéj.  
-  
-
-
-### Lectio3  
-*Iz 26:11-14*  
-11 Panie! niech się wywyższy ręka twoja, a niechaj nie widzą, niech ujrzą a zawstydzą się zawisni ludzie: a ogień niech pożre nieprzyjacioły twoje.  
-12 Panie! dasz nam pokój; bo wszystkie uczynki nasze sprawiłeś nam.  
-13 Panie, Boże nasz! opanowali nas panowie oprócz ciebie: tylko w tobie niechaj pamiętamy na imię twoje.  
-14 Umierający niech nie żyją, olbrzymowie niech nie powstają: dlatego nawiedziłeś i zniszczyłeś je i skruszyłeś wszystkę pamiątkę ich.  
   
 
 
@@ -458,45 +405,26 @@ Bogu dzięki.
 Błogosławionaś Marjo, * któraś uwierzyła Panu: albowiem stanie się to, co ci jest powiedziane od Pana, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
-
-
-### Responsory1  
-R. Wołaj z mocą, ty, który ogłaszasz pokój w Jeruzalem:  
-* Powiedz miastom judzkim i mieszkańcom Syjonu: Oto Bóg nasz, którego oczekiwaliśmy, przybędzie.  
-V. Wstąpże na wysoką górę, ty, który głosisz dobrą nowinę na Syjonie, podnieś mocno twój głos.  
-R. Powiedz miastom judzkim i mieszkańcom Syjonu: Oto Bóg nasz, którego oczekiwaliśmy, przybędzie.  
+### Ant 2  
+Wynidzie * rószczka z korzenia Jessego, a napełni się cała ziemia chwałą Pana: i zobaczy wszelkie ciało zbawienie Boże.  
   
 
 
-### Lectio2  
-I wszedł do Niej Anioł. Ucz się o Dziewicy obyczajów: od Dziewicy ucz się skromności; ucz się od Dziewicy mówienia; ucz się tajemnicy. Dziewice mają to do siebie, iż wejście każdego mężczyzny trwogą je przejmuje i każde odezwanie się mężczyzny przejmuje je drżeniem. Niech się uczą niewiasty naśladować Ją w postanowieniu zachowania skromności. Sama była we wnętrzu domu, gdzie żaden mężczyzna nie mógł Jej zobaczyć; tylko Anioł mógł Ją znaleźć. Sama bez towarzystwa, sama bez świadka. Tam, gdzie żadne nieprzyzwoite słowo zgorszyć Jej nie mogło, Anioł Ją pozdrawia.  
+### Ant 3  
+Błogosławioną mię zwać * będą wszystkie narody, albowiem Bóg wejrzał na niskość służebnicy swojej.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Ty, Bethlehem * ziemio Judzka, nie będziesz najmniejsze: z ciebie mi wynidzie Wódz, któryby rządził lud mój Izraelski.  
   
 
 
-### Responsory2  
-R. Wzejdzie gwiazda z Jakuba i powstanie człowiek z Izraela, i zmiażdży wszystkich wodzów pogańskich:  
-* A cała ziemia będzie jego własnością.  
-V. I oddadzą Mu pokłon wszyscy królowie, wszystkie narody będą Mu służyły.  
-R. A cała ziemia będzie jego własnością.  
+### Ant 3  
+Wstań, wstań * powstań Jeruzalem: zdejmij kajdany z karku twego, uwięziona córo Syonu.  
   
-
-
-### Lectio3  
-Tajemnica tak doniosłego polecenia miała być wyrażona nie ustami człowieka, ale ustami Anioła. Dzisiaj po raz pierwszy słyszymy: Duch Święty zstąpi na Ciebie. Ona usłyszała i uwierzyła. Otom ja – powiada – służebnica Pańska, niechaj mi się stanie według słowa twego. Patrz na pokorę, patrz na pobożność. Wybrana na Matkę Pana nazywa siebie służebnicą. Nieoczekiwana obietnica wcale Ją nie wynosi.  
-  
-
-
-### Responsory3  
-R. Niebawem przybędzie Pan i Władca:  
-* I nazwą imię Jego Emmanuel.  
-V. Za dni Jego sprawiedliwość zakwitnie i wielki pokój.  
-R. I nazwą imię Jego Emmanuel.  
-Chwała Ojcu.  
-R. I nazwą imię Jego Emmanuel.  
-  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Ant 2  
@@ -515,24 +443,6 @@ Oto ja służebnica Pańska: * niechaj mi się stanie według słowa twego.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Iz 33:3-6*  
-3 Przed głosem Anioła pouciekały narody, i przed podwyższeniem twojem rozpierzchnęli się poganie.  
-4 I będą zbierać korzyści wasze, jako zbierają chrząszcze, jako gdy nimi doły bywają napełnione.  
-5 Uwielbion jest Pan, iż mieszkał na wysokości: napełnił Syon sądem i sprawiedliwością.  
-6 I będzie wiara za czasów twoich, bogactwa zbawienia, mądrość i umiejętność, bojaźń Pana ta jest skarbem jego.  
-  
-
-
-### Lectio3  
-*Iz 33:14-17*  
-14 Zlękli się na Syonie grzesznicy, osiadł strach obłudniki: któż z was będzie mógł mieszkać z ogniem pożerającym? kto z was zmieszka z paleniem wiecznem?  
-15 Kto chodzi w sprawiedliwościach, a mówi prawdę: który porzuca łakomstwo z potwarzy, a otrząsa ręce swe od wszelkiego podarku: który zatyka uszy swe, aby nie słuchał krwie, a zamruża oczy swe, aby nie patrzał na złe.  
-16 Ten na wysokości mieszkać będzie, zamki kamienne wysokość jego: chleb mu dano, wody jego wierne są.  
-17 Króla w piękności jego oglądają, oczy jego ujrzą ziemię daleką.  
-  
-
-
 ### Ant 2  
 Czuwaj * duszo, blisko jest Pan Bóg nasz.  
   
@@ -541,42 +451,6 @@ Czuwaj * duszo, blisko jest Pan Bóg nasz.
 ### Ant 3  
 Weselcie się * z Jeruzalem, a radujcie się w nim wszyscy, którzy je miłujecie, na wieki.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Ześlij, Panie, Baranka, Władcę ziemi,  
-* Ze Skały pustyni aż na Górę Córki Syjonu.  
-V. Okaż nam, Panie, miłosierdzie swoje, i daj nam swoje zbawienie.  
-R. Ze Skały pustyni aż na Górę Córki Syjonu.  
-  
-
-
-### Lectio2  
-Uczcie się i wy, święte niewiasty, gotowości do posług, jaką swym brzemiennym krewnym winnyście okazywać. Maryję, która przedtem samotnie pozostawała we wnętrzu domu, ani wstyd dziewiczy nie powstrzymał od ukazania się publicznie, ani dzikość gór, ani daleka droga nie powstrzymały od gorliwego spełnienia swego obowiązku. Dziewica spieszy więc w góry, pomna na swoją powinność, nie myśląc o przykrościach z tym złączonych, kierując się odważnie miłością, nie myśląc o słabości swej płci, opuściła domu i wyruszyła w drogę. Uczcie się, dziewice, nie kręcić po cudzych domach, nie przestawać na ulicach, nie wdawać się publicznie w jakieś rozmowy. Maryja wieczorem w domu, szybko zewnętrzne sprawy załatwia, przez trzy miesiące pozostaje u swej krewnej.  
-  
-
-
-### Responsory2  
-R. Spuśćcie rosę, niebiosa, z góry, a obłoki niech spuszczą z deszczem Sprawiedliwego,  
-* Niech się otworzy ziemia i zrodzi Zbawiciela.  
-V. Ześlij, Panie, Baranka, Władcę ziemi, ze Skały pustyni na Górę Córki Syjonu.  
-R. Niech się otworzy ziemia i zrodzi Zbawiciela.  
-  
-
-
-### Lectio3  
-Poznałyście, dziewice, skromność Maryi; nauczcie się Jej pokory. Krewna do krewnej przybywa, młodsza do starszej, nie tylko przychodzi, lecz pierwsza ją pozdrawia; należało bowiem, aby o ile Dziewica była czystsza, o tyle była pokorniejsza. Umiała cześć starszym oddawać. Niech ta będzie nauczycielką pokory, która naucza czystości; uczy ona również miłości, wskazuje też, jakie są zasady moralnego życia. Należy też na to zwrócić uwagę, iż wyżej stojąca osoba przybywa do niższej, aby ją wesprzeć. Maryja do Elżbiety, Chrystus do Jana.  
-  
-
-
-### Responsory3  
-R. Stepowe pastwiska wydadzą owoc wonności Izraela: Bo oto Bóg nasz przybędzie z mocą,  
-* A z Nim Jego światłość.  
-V. Z Syjonu wzejdzie piękno Jego chwały: Bóg nasz jawnie przybędzie.  
-R. A z Nim Jego światłość.  
-Chwała Ojcu.  
-R. A z Nim Jego światłość.  
-  
 
 
 ### Ant 2  
@@ -593,42 +467,6 @@ Który żyjesz.
 ### Ant 3  
 To jest świadectwo, * które dał Jan: Który po mnie przyjść ma, stał się przedemną.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Wyrośnie różdżka z korzenia Jessego, wypuści się kwiat z jego korzenia.  
-* Sprawiedliwość będzie Mu pasem na biodrach, a wierność przepasaniem Jego lędźwi.  
-V. I spocznie na Nim Duch Pański, Duch mądrości i rozumu, Duch rady i męstwa.  
-R. Sprawiedliwość będzie Mu pasem na biodrach, a wierność przepasaniem Jego lędźwi.  
-  
-
-
-### Lectio2  
-Sam bowiem nasz Odkupiciel mówi: Wszelkie królestwo rozdzierane niezgodą będzie spustoszone. Jasnym jest, iż królestwo Judei się skończyło, skoro rozdzielone podlegało tylu królom. Stosownie też zostało zaznaczone nie tylko za jakich królów, lecz i za jakich kapłanów to się stało. Ponieważ Jan Chrzciciel Tego głosił, który był zarazem królem i kapłanem, dlatego Łukasz Ewangelista oznaczył czas jego działalności kaznodziejskiej przez królestwo i kapłaństwo.  
-  
-
-
-### Responsory2  
-R. Korzeń Jessego powstanie, aby osądzić narody, w Nim narody pokładać będą nadzieję.  
-* Jego imię będzie błogosławione na wieki.  
-V. Królowie zamkną przed Nim swoje usta, do Niego ludy zwrócą się z modlitwą.  
-R. Jego imię będzie błogosławione na wieki.  
-  
-
-
-### Lectio3  
-I przyszedł do całej krainy Jordanu, głosząc chrzest pokuty na odpuszczenie grzechów. Dla wszystkich, którzy to czytają, jest jasne, iż Jan nie tylko chrzest pokuty głosił, ale go i niektórym udzielił, jednakże chrztu na odpuszczenie grzechów dać nie mógł. Odpuszczenie bowiem grzechów udzielane jest jedynie we chrzcie Chrystusa. Należy więc zwrócić uwagę na słowa: głosząc chrzest pokuty na odpuszczenie grzechów, ponieważ głosił chrzest uwalniający od grzechów, czego sam dać nie mógł; aby jak wcielenie Słowa Ojca poprzedził swymi kazaniami, tak też chrzest pokuty, który gładzi grzechy, uprzedził swoim chrztem nieoczyszczającym od grzechów.  
-  
-
-
-### Responsory3  
-R. Przyjdź, Panie, i nie zwlekaj; odpuść winy swojemu ludowi,  
-* A rozproszonych zgromadź w ziemi Twojej.  
-V. Wzbudź, Panie, swą potęgę i przybądź, aby nas zbawić.  
-R. A rozproszonych zgromadź w ziemi Twojej.  
-Chwała Ojcu.  
-R. A rozproszonych zgromadź w ziemi Twojej.  
-  
 
 
 ### Ant 2  
@@ -661,24 +499,6 @@ Bogu dzięki.
 ### Kolekta  
 Wzbudź, prosimy Cię, Panie, potęgę Twoją i przybądź; wspomóż nas mocą Twoją niechaj pomoc łaski Twojej przyśpieszy otrzymanie przebaczenia, któremu przeszkadzają grzechy nasze.  
 Który żyjesz.  
-  
-
-
-### Lectio2  
-*Iz 35:7-10*  
-7 W legowiskach, w których pierwéj smokowie przebywali, wznidzie zieloność trzciny i sitowia.  
-8 I będzie tam ścieżka i droga, i nazowią ją drogą świętą: nie pójdzie po niéj nieczysty; a ta wam będzie prosta droga, tak iżby głupi nie błądzili po niéj.  
-9 Nie będzie tam lwa, i zły zwierz nie będzie chodził po niéj, ani się tam znajdzie: i pójdą, którzy będą wybawieni.  
-10 A wykupieni od Pana nawrócą się i przyjdą na Syon z wychwalaniem, a wesele wieczne na głowie ich: radość i wesele otrzymają, a uciecze boleść i wzdychanie.  
-  
-
-
-### Lectio3  
-*Iz 41:1-4*  
-1 Niech milczą ku mnie wyspy, a narody niech odmienia siłę: niech przystąpią, a tedy niech mówią: Społem przystąpmy do sądu.  
-2 Kto zbudził od wschodu słońcasprawiedliwego, wezwał go, aby szedł za nim? poda przed nim narody i króle odzierży, da jako proch mieczowi jego, jako źdźbło od wiatru porwane łukowi jego?  
-3 Będzie je gonił, przejdzie w pokoju, ścieżka się nie ukaże na nogach jego.  
-4 Któż to sprawił i uczynił, wzywający rodzajów od początku? Ja Pan, pierwszy i ostateczny, Ja jestem,  
   
 
 
@@ -747,15 +567,30 @@ Bogu dzięki.
 Zdrowaś Maryjo, * łaskiś pełna; Pan z Tobą: błogosławionaś ty między niewiastami, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Ant 2  
+Mówi Pan: * pokutę czyńcie: przybliżyło się bowiem królestwo niebieskie, alleluja.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Ant 2  
+Powstań, powstań: * przyoblecz się siłą, o ramię Pana.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
+
+### Ant 2  
+Położę w Syonie * zbawienie, i w Jeruzalem chwałę moję, alleluja.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Cieszcie się, cieszcie, * ludu mój, mówi Pan Bóg wasz.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 2  
+Oto spełniło się * wszystko, co rzekł Aniół Pannie Maryi.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 # Boże Narodzenie
 
@@ -826,14 +661,6 @@ Przez tegoż Pana.
   
 
 
-### Responsory5  
-R. O święta i niepokalana Dziewico, nie wiem, jakimi pochwałami zdołam Cię wysłowić,  
-* Bo zamknęłaś w swym łonie Tego, którego niebiosa ogarnąć nie mogą.  
-V. Błogosławionaś Ty między niewiastami i błogosławiony owoc żywota Twojego.  
-R. Bo zamknęłaś w swym łonie Tego, którego niebiosa ogarnąć nie mogą.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według św. Łukasza  
 *Łk 2:33-40*  
@@ -842,14 +669,6 @@ Onego czasu: Józef i Maryja, Matka Jezusowa, dziwili się temu, co o Nim mówio
 Homilia świętego Ambrożego, Biskupa  
 *Księga 2. na rozdz. 2. Ewangelii wg św. Łukasza, pod koniec*  
 Jak widzisz, z urodzenia Pana obfity zdrój łask spłynął na wszystkich, a dar proroctwa był odmówiony niewierzącym, a nie sprawiedliwym. Oto i Symeon prorokuje, iż Pan Jezus Chrystus przybył na upadek i powstanie wielu, aby rozróżnił, na co zasłużyli niegodziwi, a na co sprawiedliwi, i że odpowiednio do naszych czynów Sędzia prawdziwy i sprawiedliwy wyznacza kary lub nagrody.  Ciebie, Boże, chwalimy.  
-  
-
-
-### Responsory7  
-R. A Słowo ciałem się stało i mieszkało między nami:  
-* I widzieliśmy chwałę jego, chwałę jako jednorodzonego od Ojca, pełne łaski i prawdy.  
-V. Wszystko się przez nie stało; a bez niego nic się nie stało.  
-R. I widzieliśmy chwałę jego, chwałę jako jednorodzonego od Ojca, pełne łaski i prawdy.  
   
 
 
@@ -1024,84 +843,6 @@ R. Przynoście Panu chwałę imieniowi jego.
   
 
 
-### Responsory1  
-R. Oto poczniesz i porodzisz syna, i nazowiesz imię jego Jezus:  
-* Albowiem on zbawi lud swój od grzechów ich.  
-V. Nazwanym jest imię jego Jezus, którym był nazwany od Anioła, pierwéj niźli się w żywocie począł.   
-R. Albowiem on zbawi lud swój od grzechów ich.  
-  
-
-
-### Lectio2  
-*Dz 3:9-16*  
-9 I widział go wszystek lud chodzącego i Boga chwalącego.  
-10 A znali go, iż on był, który dla jałmużny siadał u drzwi ozdobnych kościelnych, i napełnieni byli zdumienia i zapamiętania z tego, co się mu wydarzyło.  
-11 A gdy się trzymał się Piotra i Jana, przybiegł wszystek lud do nich do krużganku, który zowią Salomonowym, zdumiawszy się.  
-12 A ujrzawszy Piotr, odpowiedział do ludu: Mężowie Izraelscy! co się temu dziwujecie? albo przecz się nam przypatrujecie, jakobychmy naszą mocą albo władzą uczynili, że ten chodzi?  
-13 Bóg Abrahamów i Bóg Izaaków i Bóg Jakubów, Bóg ojców naszych, uwielbił Jezusa, Syna swego, któregoście wy wydali i zaprzaliście się przed Piłatem, gdyż jego zdanie było, aby był wypuszczon.  
-14 A wyście się zaprzali Świętego i sprawiedliwego i prosiliście, aby wam darował męża mężobójcę.  
-15 A zabiliście sprawcę żywota, którego Bóg wzbudził od umarłych, czego my świadkami jesteśmy.  
-16 A w wierze imienia jego tego, którego wy widzicie i znacie, umocniło imię jego, i wiara, która przezeń jest, dała to zupełne zdrowie przed oczyma was wszystkich.  
-  
-
-
-### Responsory2  
-R. Błogosławione jest imię twoje, Boże ojców naszych, który gdy się rozgniewasz, wspomnisz na miłosierdzie,  
-* A czasu utrapienia grzechy odpuszczasz.  
-V. I błogosławione imię majestatu twego na wieki, który dziwy czynisz.  
-R. A czasu utrapienia grzechy odpuszczasz.  
-  
-
-
-### Lectio3  
-*Dz 4:5-12*  
-5 I stało się nazajutrz, że się zebrali przełożeni ich i starsi i Doktorowie w Jeruzalem.  
-6 I Annasz, najwyższy kapłan, i Kajphasz i Jan i Alexander, i ile ich jedno było z rodu kapłańskiego.  
-7 A stawiwszy je w pośrodku, pytali: Którą mocą albo którem imieniem wyście to uczynili?  
-8 Tedy Piotr napełniony Ducha Świętego, rzekł do nich: Książęta ludu i starsi słuchajcie:  
-9 Jeźli my dziś sądzeni jesteśmy o dobrodziejstwo przeciw człowiekowi niemocnemu, przez coby ten był uzdrowiony,  
-10 Niechże wam wszym jawno będzie i wszystkiemu ludowi Izraelskiemu, że przez imię Pana naszego Jezusa Chrystusa Nazareńskiego, któregoście wy ukrzyżowali, którego Bóg wzbudził od umarłych, przez tegoć ten stoi zdrowy przed wami.  
-11 Ten jest kamień, który jest odrzucony od was budujących, który się stał na głowę węgła.  
-12 I niemasz w żadnym innym zbawienia: albowiem nie jest pod niebem inne imię dane ludziom, w którembyśmy mieli być zbawieni.  
-  
-
-
-### Responsory3  
-R. Będę chwalił ustawicznie imię twoje,  
-* I będę je wysławiał w wyznaniu.  
-V. Rozweselę się i rozraduję się w tobie: będę śpiewał imieniowi twemu, Najwyższy.  
-R. I będę je wysławiał w wyznaniu.  
-Chwała Ojcu.  
-R. I będę je wysławiał w wyznaniu.  
-  
-
-
-### Responsory4  
-R. Niech ufają w tobie, którzy znają imię twoje;  
-* Albowiem nie opuściłeś szukających cię, Panie.  
-V. Powstań, Panie, ratuj nas, a wybaw nas dla imienia twego.  
-R. Albowiem nie opuściłeś szukających cię, Panie.  
-  
-
-
-### Responsory5  
-R. Niech wyznawają imieniowi twemu wielkiemu;  
-* Albowiem straszne i święte jest.  
-V. Jedni w woziech, a drudzy w koniech: ale my imienia Pana, Boga naszego, wzywać będziemy.  
-R. Albowiem straszne i święte jest.  
-  
-
-
-### Responsory6  
-R. Niech się rozweselą wszyscy, którzy nadzieję mają w tobie, Panie: na wieki radować się będą, i będziesz mieszkał w nich: i będą się chlubić w tobie wszyscy,  
-* Którzy miłują imię twoje.  
-V. Panie, chodzić będą w jasności oblicza twego, a w imieniu twojem będą się weselić cały dzień.  
-R. Którzy miłują imię twoje.  
-Chwała Ojcu.  
-R. Którzy miłują imię twoje.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według św. Łukasza  
 *Łk 2:21*  
@@ -1113,26 +854,8 @@ Wielka i przedziwna tajemnica! Obrzezano Dziecię i nazwano imieniem Jezus. Jaki
   
 
 
-### Responsory7  
-R. Popadłem w utrapienie i boleść:  
-* I wezwałem imienia Pana.  
-V. Potężną twierdzą jest imię Pana, Jemu zaufałem, a On mi pomógł.  
-R. I wezwałem imienia Pana.  
-  
-
-
 ### Lectio8  
 Albowiem ten mój Jezus, w przeciwieństwie do swych poprzedników, nie nosi pustego lub pozbawionego treści imienia. Nie jest ono u Niego tylko cieniem wielkiego imienia, lecz wyraża samą prawdę. Ewangelista świadczy o jego niebiańskim pochodzeniu, gdyż nazwane zostało przez Anioła pierwej, niż się w łonie poczęło. Zwróć uwagę na głębię następujących słów: Gdy się narodził Jezus . Ludzie nazywają Jezusem Tego, który nazwany został przez Anioła pierwej, niż się w łonie począł. Ten sam jest przecież Zbawicielem i Anioła, i człowieka; jednak człowieka od wcielenia, a Anioła od początku stworzenia. Powiada Ewangelista: Nazwali je imieniem Jezus, którym nazwane zostało przez Anioła. Na zapewnieniu dwóch lub trzech świadków opiera się każde słowo, a więc i to Słowo, o którym zwięźle dowiadujemy się u Proroka, a wyraźniej w Ewangelii, że stało się ciałem.  
-  
-
-
-### Responsory8  
-R. Będę ufał Twojemu imieniu, Panie,  
-* Ponieważ jest dobre dla Twoich świętych.  
-V. Abyśmy wielbili święte imię Twoje, i dumni byli z Twej chwały.  
-R. Ponieważ jest dobre dla Twoich świętych.  
-Chwała Ojcu.  
-R. Ponieważ jest dobre dla Twoich świętych.  
   
 
 
@@ -1277,195 +1000,19 @@ Nazwiesz * Imię Jego Jezus, albowiem on zbawi lud swój od grzechów ich, allel
 # Okres po Objawieniu
 
  Błąd importu.
-
-
-### Lectio2  
-*1 Kor 2:6-9*  
-6 A powiadam i mądrość między doskonałymi: mądrość nie wieku tego, ani książąt wieku tego, którzy się każą.  
-7 Ale powiadamy mądrość Bożą w tajemnicy, która zakryta jest, którą Bóg przenaznaczył przed wieki ku chwale naszéj.  
-8 Któréj żaden z książąt wieku tego nie poznał; bo gdyby byli poznali, nigdyby byli Pana chwały nie ukrzyżowali.  
-9 Ale jako jest napisano: Czego oko nie widziało i ucho nie słyszało i w serce człowiecze nie wstąpiło, co nagotował Bóg tym, którzy go miłują.   
-  
-
-
-### Lectio3  
-*1 Kor 2:10-13*  
-10 Lecz nam Bóg objawił przez Ducha swojego; albowiem Duch wszystko wypatruje, i głębokości Boże.  
-11 Bo któż z ludzi wie, co jest człowieczego, jedno duch człowieczy, który w nim jest? Także téż, co jest Bożego, nikt nie wie, jedno Duch Boży.  
-12 A my nie wzięliśmy ducha tego świata, ale Ducha, który jest z Boga, abyśmy wiedzieli, co nam od Boga jest darowano.  
-13 Co też opowiadamy, nie przez uczone słowa ludzkiéj mądrości, ale przez naukę Ducha duchownym duchowne rzeczy przystósując.   
+IOError, 
+(2, 'No such file or directory')
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Kor 5:6-8*  
-6 Nie dobra jest chluba wasza. Nie wiecie, iż trocha kwasu wszystko ciasto zakwasza?   
-7 Wyczyśćcież stary kwas, abyście byli nowem zaczynieniem, jako przaśni jesteście; albowiem Pascha nasza ofiarowany jest Chrystus.  
-8 A tak używajmy nie w starym kwasie, ani w kwasie złości i przewrotności; ale w przaśnikach szczerości i prawdy.  
-  
-
-
-### Lectio3  
-*1 Kor 5:9-11*  
-9 Pisałem wam w liście, abyście się nie mięszali porubnikami.  
-10 Nie zgoła z porubnikami świata tego, albo z łakomymi, albo z drapieżnymi, albo z służącymi bałwanom; bo inaczej musielibyście z tego świata wyniść.  
-11 Lecz teraz pisałem wam, abyście się nie mięszali; jeźli ten, który się bratem mianuje, jest porubnikiem, albo łakomym, albo służącym bałwanom, albo złorzeczącym, albo pijanicą, albo drapieżcą, żebyście z takowym ani jedli.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Kor 6:7-11*  
-7 Jużci koniecznie jest w was występek, że sądy między sobą miewacie. Czemu raczéj krzywdy nie podejmujecie? czemu raczéj szkody nie cierpicie?   
-8 Ale wy krzywdę czynicie i szkodzicie, a jeszcze braci.   
-9 Aza nie wiecie, iż niesprawiedliwi nie osięgą królestwa Bożego? Nie mylcie się: ani porubnicy, ani bałwanom służący, ani cudzołożnicy, ani psotliwi, ani Sodomczycy,  
-10 Ani złodzieje, ani łakomi, ani pijanicy, ani złorzeczący, ani drapieżce nie osięgą królestwa Bożego.  
-11 I tymiście niektórzy byli; aleście omyci, aleście poświęceni, aleście usprawiedliwieni w imię Pana naszego Jezu Chrysta, i w Duchu Boga naszego.  
-  
-
-
-### Lectio3  
-*1 Kor 6:12-18*  
-12 Wszystko mi się godzi, ale nie wszystko pożyteczno. Wszystko mi się godzi, ale się ja w moc niczemu nie poddam.   
-13 Pokarm brzuchowi, a brzuch pokarmom; lecz Bóg i ten i te zepsuje: a ciało nie porubstwu, ale Panu, a Pan ciału.  
-14 A Bóg i Pana wybudził i nas wzbudzi przez moc swoję.  
-15 Nie wiecie, iż ciała wasze są członkami Chrystusowemi? wziąwszy tedy członki Chrystusowe, uczynię je członkami nierządnice? Nie daj tego Boże!  
-16 Albo nie wiecie, iż ten, co się złącza z nierządnicą, staje się jednem ciałem? Albowiem (mówi) będą dwa w jednem ciele.   
-17 A kto się złącza z Panem, jednym duchem jest.  
-18 Uciekajcie przed porubstwem.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Kor 7:5-9*  
-5 Nie odmawiajcie jeden drugiemu, chybaby z zezwolenia do czasu, abyście się modlitwą bawili: a zasię wracajcie się do tegoż, aby was szatan nie kusił dla waszéj niewstrzymawałości.  
-6 A to mówię według folgowania, nie według rozkazania.  
-7 Albowiem chcę, abyście wy wszyscy byli jakom ja sam; ale każdy ma własny dar od Boga, jeden tak, a drugi tak.  
-8 A mówię nieżonatym i wdowom: Dobrze im jest, jeźliżeby tak trwali jako i ja.  
-9 Ale jeźli się nie wstrzymawają, niech w małżeństwo wstąpią; bo lepiéj jest w małżeństwo wstąpić, niżeli być palonym.  
-  
-
-
-### Lectio3  
-*1 Kor 7:10-14*  
-10 A tym, którzy są w małżeństwie, rozkazuję nie ja, ale Pan, iżby żona od męża nie odchodziła.   
-11 A jeźliby odeszła, żeby trwała bez męża, albo się z mężem pojednała; a mąż żony niech nie opuszcza.  
-12 Bo inszym ja mówię, nie Pan: Jeźli który brat ma żonę niewierną, a ta z nim zezwala mieszkać, niechaj jej nie opuszcza.  
-13 I żona jeźli która wierna ma męża niewiernego, a on zezwala mieszkać z nią, niechaj nie opuszcza męża.  
-14 Albowiem poświęcon jest mąż niewierny przez żonę wierną, i żona niewierna poświęcona jest przez męża wiernego; bo inaczéj dziatki wasze byłyby nieczystemi, a teraz świętemi są.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Kor 13:4-10*  
-4 Miłość cierpliwa jest, łaskawa jest, miłość nie zajrzy, złości nie wyrządza, nie nadyma się,  
-5 Nie jest czci pragnąca, nie szuka swego, nie wzrusza się ku gniewu, nie myśli złego,  
-6 Nie raduje się z niesprawiedliwości, ale się weseli z prawdy:  
-7 Wszystko znosi, wszystkiemu wierzy, wszystkiego się nadziewa, wszystko wytrwa.  
-8 Miłość nigdy nie ginie: choć proroctwa zniszczeją, chociaż języki ustaną, chociaż umiejętność będzie zepsowana.  
-9 Albowiem po części znamy i po części prorokujemy.  
-10 Ale gdy przyjdzie co jest doskonałego, co jest po części, zniszczeje.  
-  
-
-
-### Lectio3  
-*1 Kor 13:11-13*  
-11 Gdym był dziecięciem, mówiłem jako dziecię, rozumiałem jako dziecię, myśliłem jako dziecię; lecz gdym się stał mężem, wyniszczyłem, co było dziecinnego.  
-12 Teraz widzimy przez zwierciadło, przez podobieństwo; lecz w on czas twarzą w twarz. Teraz znam po części; lecz w on czas poznam, jakom i poznany jest.  
-13 A teraz trwają wiara, nadzieja, miłość, to troje; a z tych większa jest miłość.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Kor 16:5-9*  
-5 A przyjdę do was, gdy przejdę przez Macedonią; bo przejdę przez Macedonią.  
-6 A podobno pomieszkam u was, albo też przezimuję, abyście wy mię prowadzili, kędykolwiek pójdę.  
-7 Albowiem nie chcę was teraz widzieć, mijając; bo się spodziewam, iż pomieszkam z wami nieco czasu, jeźli Pan dopuści.  
-8 A pomieszkam w Ephezie aż do Pięćdziesiątnice.  
-9 Albowiem drzwi mi są otworzone wielkie i jawne: i wiele przeciwników.  
-  
-
-
-### Lectio3  
-*1 Kor 16:10-14*  
-10 A jeźliby przyszedł Tymotheusz, patrzcie, aby bez bojaźni był u was; bo Pańską robotę robi, jako i ja.  
-11 Niech go tedy sobie nikt lekce nie poważa, ale odprowadźcie go w pokoju, aby do mnie przyszedł; bo czekam go z bracią.  
-12 A o Apollu bracie oznajmuję wam, żem go bardzo prosił, aby szedł do was z bracią; a zgoła nie miał teraz woléj iść; lecz przyjdzie, gdy mu łacno będzie.  
-13 Czujcie, stójcie w wierze, mężnie sobie poczynajcie i zmacniajcie się.  
-14 Wszystko wasze niech się dzieje w miłości.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Kolekta  
 Wszechmogący wieczny Boże, który rządzisz zarazem niebem i ziemią: wysłuchaj w swej łaskawości prośby ludu Twego i użycz pokoju swego czasom naszym.  
 Przez Pana.  
-  
-
-
-### Responsory1  
-R. Panie, nie w zapalczywości twojéj strofuj mię, ani w gniewie twoim karz mię.  
-* Zmiłuj się nademną, Panie; bomci chory.  
-V. Bojaźń i drżenie przyszły na mię i okryły mię ciemności.  
-R. Zmiłuj się nademną, Panie; bomci chory.  
-  
-
-
-### Lectio2  
-*2Kor 1:6-7*  
-6 A choć bywamy utrapieni, dla waszego napominania i zbawienia, choć pocieszeni bywamy, dla waszego pocieszenia, choć napominani bywamy, dla waszego napominania i zbawienia, które sprawuje cierpliwość tegoż utrapienia, które i my cierpimy,  
-7 Aby nadzieja nasza mocna była o was, wiedząc, iż jako jesteście towarzysze utrapienia, tak będziecie i pocieszenia.  
-  
-
-
-### Responsory2  
-R. Boże, który siedzisz na tronie, i sądzisz sprawiedliwie, bądź ucieczką ubogiemu w potrzebach.  
-* Tylko ty na boleść i na utrapienie patrzysz.  
-V. Tobie zostawiony jest ubogi: sierocie ty będziesz pomocnikiem.  
-R. Tylko ty na boleść i na utrapienie patrzysz.  
-  
-
-
-### Lectio3  
-*2Kor 1:8-11*  
-8 Albowiem nie chcemy, abyście nie wiedzieli, bracia! o ucisku naszym, który się stał w Azyi, iżeśmy byli nazbyt obciążeni nad siłę, tak, że nam téż tęskno było żyć.  
-9 Aleśmy sami w sobie mieli wyrok śmierci, abyśmy nie ufali sami w sobie, ale w Bogu, który wzbudza umarłe:  
-10 Który z tak wielkich niebezpieczeństw wyrwał nas i wyrywa, w którym nadzieję mamy, iż téż jeszcze wyrwie,  
-11 Za pomocą i waszą w modlitwie za nas, aby za ten dar, który w nas jest przez wiele osób, od wielu dzięki były za nas czynione.  
-  
-
-
-### Responsory3  
-R. Pan mi jest po prawicy, abych nie był wzruszon.  
-* Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-V. Pan cząstka dziedzictwa mego i kielicha mego.  
-R. Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-Chwała Ojcu.  
-R. Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-  
-
-
-### Responsory4  
-R. Oznajmiłeś mi drogi żywota Panie.  
-* Napełnisz mię weselem z obliczem twojem, rozkoszy na prawicy twéj aż do końca.  
-V. Tyś jest, który mi przywrócisz dziedzictwo moje.  
-R, Napełnisz mię weselem z obliczem twojem, rozkoszy na prawicy twéj aż do końca.  
-  
-
-
-### Responsory5  
-R. Będę cię miłował, Panie, mocy moja: Pan twierdza moja.  
-* I ucieczka moja.  
-V. Wybawiciel mój: Bóg mój wspomożyciel mój.  
-R. I ucieczka moja.  
-  
-
-
-### Responsory6  
-R. Pańska jest ziemia, i napełnienie jéj.  
-* Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
-V. Bo go on nad morzami ugruntował: i nad rzekami nagotował go.  
-R. Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
-Chwała Ojcu.  
-R. Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
   
 
 
@@ -1477,14 +1024,6 @@ Onego czasu: Odbywały się gody weselne w Kanie Galilejskiej i była tam Matka 
 Homilia świętego Augustyna, Biskupa  
 *Traktat 9. na Ewangelię wg św. Jana, w 1. połowie*  
 Zaproszony Pan na gody weselne swym przybyciem, poza mistycznym znaczeniem, chciał potwierdzić, iż On sam ustanowił małżeństwo. Mieli bowiem być w przyszłości tacy, o których powiedział Apostoł, że będą zakazywać wstępowania w związki małżeńskie, i mówić, że są one złe i pochodzą od diabła. A przecież zapytany Pan: Czy wolno mężowi rozwieść się z żoną swoją dla jakiejkolwiek przyczyny?, odpowiada w Ewangelii, iż się nie godzi, z wyjątkiem przyczyny rozpusty. W tej odpowiedzi, jeśli pamiętacie, tak mówi: Co Bóg złączył, człowiek niech nie rozłącza.  
-  
-
-
-### Responsory7  
-R. Do ciebie. Panie, podniosłem duszę moję.  
-* Boże mój, w tobie ufam, niech się nie zawstydzę.  
-V. Strzeż dusze mojéj, a wyrwij mię.  
-R. Boże mój, w tobie ufam, niech się nie zawstydzę.  
   
 
 
@@ -1508,170 +1047,17 @@ R. Jako woń kadzidła przed obliczem Twoim.
 ### Ant 3  
 A gdy nie stawało wina, * rozkazał im Jezus napełnić stągwie wodą, która się winem stała, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Jakóż wielkie mnóstwo słodkości twéj, Panie,  
-* Którąś zakrył bojącym się ciebie.  
-V. I sprawiłeś tym, którzy nadzieję mają w tobie, przed oblicznością synów ludzkich.  
-R. Którąś zakrył bojącym się ciebie.  
-  
-
-
-### Lectio2  
-*2 Kor 3:4-8*  
-4 I mamy takie ufanie ku Bogu przez Chrystusa:  
-5 Nie iżebyśmy byli dostateczni sami z siebie, co myślić jako sami z siebie: ale dostateczność nasza z Boga jest.  
-6 Który téż uczynił nas godnymi sługami nowego Testamentu, nie literą, ale Duchem; bo litera zabija, a Duch ożywia.  
-7 A jeźlić posługowanie śmierci literami wyrażone na kamieniach było w chwale, tak iż synowie Izraelowi nie mogli patrzyć na oblicze Mojżeszowe, dla chwały oblicza jego, która niszczeje,  
-8 Jakoż nie więcéj posługowanie Ducha w chwale będzie?  
-  
-
-
-### Lectio3  
-*2 Kor 3:9-14*  
-9 Bo jeżli posługowanie potępienia jest chwałą, daleko więcej posługowanie sprawiedliwości obfituje w chwale.  
-10 Albowiem ani uwielbiono jest, co było uwielbiono, w tej mierze, dla przewyższającéj chwały.  
-11 Bo jeźliż, co niszczeje, w chwale jest, daleko więcej co trwa, jest w chwale.  
-12 Mając tedy taką nadzieję, wielkiéj ufności używamy.  
-13 A nie jako Mojżesz kładł zasłonę na oblicze swoje, aby synowie Izraelowi nie patrzyli na twarz jego, co niszczeje;   
-14 Ale stępiały zmysły ich; albowiem aż do dzisiejszego dnia taż zasłona w czytaniu starego Testamentu trwa nie odkryta, (ponieważ w Chrystusie niszczeje).  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*2 Kor 5:6-10*  
-6 Śmiemy tedy zawsze, wiedząc, że pókiśmy w ciele, pielgrzymujemy od Pana.  
-7 (Albowiem przez wiarę chodzimy, a nie przez widzenie).  
-8 A śmiemy i dobrą wolą mamy pielgrzymować raczéj od ciała, a przytomnymi być Panu.  
-9 I dlatego usiłujemy, chociaż odległymi, chociaż przytomnymi, jemu się podobać.  
-10 Bo się wszyscy my musimy okazać przed stolicą Chrystusową, aby każdy odniósł własne sprawy ciała, według tego, co uczynił, lub dobre, lub złe.   
-  
-
-
-### Lectio3  
-*2 Kor 5:11-15*  
-11 Wiedząc tedy strach Pański, ludzie namawiamy, lecz Bogu jawnymi jesteśmy. A spodziewam się, iż też w sumnieniach waszych jesteśmy jawnymi.  
-12 Nie znowu sami siebie wam zalecamy, ale wam dajemy przyczynę, abyście się chlubili z nas, żebyście mieli przeciwko tym, którzy się zalecają z wierzchu, a nie w sercu.  
-13 Bo choć od siebie odchodzimy Bogu, choć przy baczeniu jesteśmy, wam.  
-14 Albowiem miłość Chrystusowa przyciska nas, uważających to, iż jeźli jeden za wszystkie umarł, tedy wszyscy umarli.  
-15 A za wszystkie umarł Chrystus, aby i którzy żywią, już nie sami sobie żyli, ale temu, który za nie umarł i zmartwychwstał.  
-  
-
-
-### Responsory3  
-R. Jam rzekł: Panie, zmiłuj się nademną:  
-* Uzdrów duszę moję, bom grzeszył tobie.  
-V. Od wszystkich nieprawości moich wyrwij mię, Panie.  
-R. Uzdrów duszę moję, bom grzeszył tobie.  
-Chwała Ojcu.  
-R. Uzdrów duszę moję, bom grzeszył tobie.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*2 Kor 7:4-7*  
-4 Mam wielką ufność u was, mam wielką pochwałę z was, pełenem pociechy, nader obfituję weselem w każdem utrapieniu naszem.  
-5 Albowiem i gdyśmy przyszli do Macedonii, ciało nasze żadnego odpoczynienia nie miało, aleśmy ucierpieli wszelkie utrapienie: zewnątrz walki, a wewnątrz strachy.  
-6 Ale który cieszy uniżone, pocieszył nas, Bóg, przyjściem Tytusowem.  
-7 A nie tylko przyjściem jego, ale téż pociechą, którą ucieszony jest z was, oznajmując nam chęć waszę, płacz wasz, wasze za mię zastawiania, tak żem się więcéj weselił.  
-  
-
-
-### Responsory2  
-R. Gotowe serce moje, Boże, gotowe serce moje:  
-* Będę śpiewał i grał, Panu.  
-V. Powstań, chwało moja, powstań, harfo i cytro, wstanę na świtaniu.  
-R. Będę śpiewał i grał, Panu.  
-  
-
-
-### Lectio3  
-*2 Kor 7:8-10*  
-8 Iż chociam was zasmucił w liście, nie żal mi, a chociażbym téż żałował, widząc, iż on list (chociaż na godzinę) zasmucił was:  
-9 Teraz raduję się, nie iżeście się zasmucili, ale iżeście się zasmucili ku pokucie; albowiem byliście zasmuceni wedle Boga, żebyście w niwczem nie szkodowali z nas.  
-10 Bo smutek, który jest wedle Boga, pokutę ku zbawieniu nieodmienną sprawuje; lecz smutek świecki śmierć sprawuje.   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*2 Kor 10:4-7*  
-4 Bo broń żołnierstwa naszego nie jest cielesna, ale Bogiem mocna na zburzenie miejsc obronnych, rady burząc,  
-5 I wszelaką wysokość wynoszącą się przeciw poznaniu Bożemu, i w niewolą podbijając wszelki rozum pod posłuszeństwo Chrystusowe,  
-6 I pogotowiu mając mścić się wszelakiego nieposłuszeństwa, gdy się wypełni posłuszeństwo wasze.  
-7 Na to, co w oczach jest, patrzcie. Jeźli kto sobie dufa, iż jest Chrystusów, niech zasię to sam u siebie uważa, iż jako on jest Chrystusów, tak i my.  
-  
-
-
-### Lectio3  
-*2 Kor 10:8-12*  
-8 Albowiem jeźlibych się co więcéj chełpił z władzy naszéj, którą nam dał Pan na zbudowanie, a nie na zepsowanie was, nie zawstydzę się.  
-9 A iżbym się nie zdał, jakobych was straszył przez listy.  
-10 Albowiem, mówią: Listyć ważne są i potężne, ale obecność ciała słaba i mowa wzgardzona.  
-11 To niechaj myśli, który takowy jest, iż jacy jesteśmy mową przez listy w niebytności, tacy i obecni w uczynku.  
-12 Albowiem nie śmiemy samych siebie w poczet kłaść albo porównywać z niektórymi, którzy sami siebie zalecają; ale sami sobą nas samych mierzymy, i porównywamy się sami z sobą.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*2 Kor 12:5-9*  
-5 Z takich rzeczy się będę przechwalał: a z siebie nie będę się przechwalał, jedno z krewkości moich.  
-6 Albowiem choćbym się chciał przechwalać, nie będę głupim; bo prawdę powiem: lecz folguję, aby kto o mnie nie rozumiał więcéj nad to, co widzi we mnie, albo co słyszy odemnie.  
-7 A żeby mię wielkość objawienia nie wynosiła, dan mi jest bodziec ciała mego, anioł szatanów, aby mię policzkował.  
-8 Dlatego trzykrociem Pana prosił, aby odemnie odstąpił.  
-9 I rzekł mi: Dosyć ty masz na łasce mojéj; albowiem moc moja w słabości doskonalszą się stawa.  
-  
-
-
-### Lectio3  
-*2 Kor 12:9-11*  
-9 Rad się tedy przechwalać będę w krewkościach moich, aby we mnie mieszkała moc Chrystusowa.  
-10 Dlatego się podobam sobie w krewkościach, w potwarzach, w potrzebach, w prześladowaniach, w uciskach dla Chrystusa; albowiem gdy nie mogę, tedym jest potężny.  
-11 Stałem się głupim, wyście mię przymusili. Bom ja od was miał być zalecon; albowiem w niczemem nie był podlejszy niźli oni, którzy są, bardzo wielcy Apostołowie, chociażem nic nie jest.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*2 Kor 13:5-9*  
-5 Doświadczajcie samych siebie, jeżli jesteście w wierze: samych siebie doznawajcie. Albo nie znacie samych siebie, że w was jest Chrystus Jezus? chyba jeźli snadź jesteście odrzuceni.   
-6 Lecz się spodziewam, że poznacie, iż my nie jesteśmy odrzuconymi.  
-7 A prosimy Boga, abyście nic złego nie czynili: nie iżebyśmy się my doświadczonymi okazali, ale abyście wy, co jest dobrego, czynili, a my byśmy byli jako odrzuconymi.  
-8 Bo nie możemy nic naprzeciwko prawdzie, ale za prawdą.  
-9 Albowiem się radujemy, że my jesteśmy niemocnymi, a wy jesteście mocnymi: oto i prosimy o waszę doskonałość.  
-  
-
-
-### Lectio3  
-*2 Kor 13:10-13*  
-10 Dlatego to w niebytności piszę, abych przytomnym będąc, surowiéj nie postępował według władzy, którą mi Pan dał na zbudowanie, a nie na zepsowanie.  
-11 Na ostatek, bracia! weselcie, się, bądźcie doskonali, napominajcie się, tóż rozumiejcie, pokój miejcie, a Bóg pokoju i miłości będzie z wami.  
-12 Pozdrówcie się społecznie w świętem pocałowaniu. Pozdrawiają was święci wszyscy.  
-13 Łaska Pana naszego Jezusa Chrystusa i miłość Boża i społeczność Ducha Świętego niech będzie z wami wszystkimi. Amen.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Kolekta  
 Wszechmogący wieczny Boże, wejrzyj łaskawie na nędzę naszą i dla wspomożenia nas wyciągnij prawicę Majestatu Twego.  
 Przez Pana.  
-  
-
-
-### Lectio2  
-*Ga 1:6-10*  
-6 Dziwuję się, iż tak prędko przenosicie się od tego, który was wezwał do łaski Chrystusowéj, do inszéj Ewangelii:  
-7 Która nie jest insza, jedno są niektórzy, co wami trwożą i chcą wywrócić Ewangelią Chrystusowę.  
-8 Ale choćby my, albo Aniół z nieba przepowiadał wam mimo to, cośmy wam przepowiadali, niech będzie przeklęctwem.  
-9 Jakośmy przedtem powiadali, i teraz zasię mówię: Jeźliby kto wam opowiadał mimo to, coście wzięli, niech będzie przeklęctwem.  
-10 Bo teraz przed ludźmili sprawę mam, czyli przed Bogiem? Czyli szukam, abym się ludziom podobał? Jeźlibych się jeszcze ludziom podobał, nie byłbych sługą Chrystusowym.  
-  
-
-
-### Lectio3  
-*Ga 1:11-14*  
-11 Albowiem oznajmuję wam, bracia! iż Ewangelia, która jest  przepowiadana odemnie, nie jest wedle człowieka.   
-12 Bom jéj ja nie od człowieka wziął, anim się nauczył, ale przez objawienie Jezusa Chrystusa.   
-13 Boście słyszeli o mojem obcowaniu niekiedy w Żydowstwie, iżem nad miarę prześladował kościół Boży i burzyłem go,  
-14 I postępowałem w Żydowstwie nad wiele rówienników moich w narodzie moim, będąc większym miłośnikiem ustaw moich ojczystych.  
   
 
 
@@ -1704,150 +1090,17 @@ Gdy zstąpił * Jezus z góry, oto trędowaty przyszedłszy pokłonił się Mu m
 ### Ant 3  
 Panie, * jeśli chcesz, możesz mnie oczyścić; a Jezus rzekł: Chcę, bądź oczyszczon.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ga 3:7-10*  
-7 Poznajcież tedy, iż który z wiary są, ci są synmi Abrahamowymi.  
-8 A upatrując Pismo, iż z wiary Bóg usprawiedliwia pogany, przedtem opowiadało Abrahamowi: Iż będą błogosławione w tobie wszystkie narody.   
-9 A tak, którzy są z wiary, będą błogosławieni z wiernym Abrahamem.  
-10 Albowiem którzykolwiek są z uczynków zakonu, pod przeklęctwem są; bo napisano jest: Przeklęty każdy, któryby nie trwał we wszystkiem, co napisano w księgach zakonu, aby ono czynił.   
-  
-
-
-### Lectio3  
-*Ga 3:11-14*  
-11 A iż przez zakon żaden nie bywa usprawiedliwion u Boga, jawno jest, iż sprawiedliwy z wiary żywie.   
-12 A zakon nie jest z wiary; ale któryby je czynił, w nich żyć będzie.   
-13 Chrystus nas wykupił od przeklęctwa zakonu, stawszy się za nas przeklęctwem; (albowiem napisano jest: Przeklęty każdy, który wisi na drzewie).   
-14 Aby w poganach stało się błogosławieństwo Abrahamowe w Chrystusie Jezusie, abyśmy obietnicę Ducha wzięli przez wiarę.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ga 5:6-10*  
-6 Bo w Chrystusie Jezusie nic nie waży ani obrzezanie, ani odrzezek; ale wiara, która przez miłość działa.  
-7 Bieżeliście dobrze: kto wam przekaził, abyście nie byli posłusznymi prawdzie?  
-8 Namowa ta nie jest z tego, który was wzywa.  
-9 Trocha kwasu wszystko ciasto kwasi.   
-10 Ja dufam o was w Panie, iż nic inszego rozumieć nie będziecie; a ten, który wami trwoży, odniesie sąd, któryżkolwiek on jest.  
-  
-
-
-### Lectio3  
-*Ga 5:11-17*  
-11 A ja, bracia! jeźli jeszcze obrzezanie opowiadam, czemuż jeszcze prześladowanie cierpię? Tedy wyniszczone jest zgorszenie krzyżowe.  
-12 Bodajże i odcięci byli, którzy was wzruszają.  
-13 Albowiem wy wezwani jesteście ku wolności, bracia! tylko żebyście wolności nie obracali na pobudkę ciału; ale przez miłość Ducha służcie jeden drugiemu.  
-14 Bo wszystek zakon w jednéj się mowie wypełnia: Będziesz miłował bliźniego twego jako samego siebie.   
-15 Lecz jeźli jeden drugiego kąsacie i jecie, patrzcie, aby jeden drugiego nie zjadł.  
-16 A mówię: Duchem chodźcie, a pożądliwości ciała nie wypełnijcie.   
-17 Albowiem ciało pożąda przeciwko duchowi, a duch przeciw ciału; bo te się sobie wzajem sprzeciwiają, abyście nie cokolwiek chcecie, to czynili.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ef 1:5-10*  
-5 Który nas przenaznaczył ku przysposobieniu za syny przez Jezusa Chrystusa ku sobie, wedle postanowienia woléj swojéj:  
-6 Ku chwale sławy łaski swojéj, przez którą nas przyjemnymi uczynił w umiłowanym Synie swoim.  
-7 W którym mamy odkupienie przez krew jego, odpuszczenie grzechów wedle bogactw łaski jego,  
-8 Która nader obfitowała przeciw nam we wszelakiéj mądrości i roztropności,  
-9 Aby nam oznajmił tajemnicę woléj swojéj, wedle upodobania swojego, które postanowił w nim,  
-10 W rozrządzeniu zupełności czasów, aby w Chrystusie wszystko naprawił, co na niebiesiech, i co na ziemi jest: w nim,  
-  
-
-
-### Lectio3  
-*Ef 1:11-14*  
-11 W którym téż my losem wezwani jesteśmy, przenaznaczeni wedle postanowienia jego, który sprawuje wszystko, wedle rady woléj swojéj,  
-12 Abyśmy byli ku chwale sławy jego my, którzyśmy wprzód nadzieję pokładali w Chrystusie,  
-13 W którym i wy, usłyszawszy słowo prawdy, (Ewangelią zbawienia waszego); w którego téż uwierzywszy, jesteście zapieczętowani Duchem obietnice Świętym,  
-14 Który jest zadatkiem dziedzictwa naszego na okup nabycia, ku chwale sławy jego.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ef 4:7-10*  
-7 Lecz każdemu z nas dana jest łaska wedle miary daru Chrystusowego.   
-8 Dlatego mówi: Wstąpiwszy na wysokość, wiódł więźnie poimane, i dał dary ludziom.   
-9 A to, że wstąpił, cóż jest, jedno iż pierwéj był zstąpił do niższych części ziemie?  
-10 Który zstąpił, tenżeć jest, który téż wstąpił nad wszystkie niebiosa, aby napełnił wszystko.  
-  
-
-
-### Lectio3  
-*Ef 4:11-15*  
-11 I tenże dał niektóre Apostoly, a niektóre proroki, a drugie Ewangelisty, a inne pasterze i doktory:   
-12 Ku wykonaniu świętych, ku robocie posługowania, ku budowaniu ciała Chrystusowego,  
-13 Ażbyśmy się wszyscy zeszli w jedność wiary i poznania Syna Bożego, w męża doskonałego, w miarę wieku zupełności Chrystusowéj.  
-14 Abyśmy już nie byli dziećmi chwiejącemi się, i nie byli uniesieni od każdego wiatru nauki przez złość ludzką, przez chytrość na oszukanie błędu.  
-15 A czyniąc prawdę w miłości, żebyśmy rośli w nim we wszystkiem, który jest głowa, Chrystus,   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ef 5:5-8*  
-5 Bo to wiedzcie rozumiejąc, iż wszelki porubca, albo nieczysty, albo łakomiec, co jest bałwochwalstwo, nie ma dziedzictwa w królestwie Chrystusowem i Bożem.  
-6 Niechaj was nikt nie zwodzi próżnemi słowy; albowiem dlategoć przychodzi gniew Boży na syny niewierności.   
-7 Nie bądźcież tedy uczęstnikami ich.  
-8 Albowiemeście byli niekiedy ciemnością; lecz teraz światłością w Panu. Jako synowie światłości chodźcie.  
-  
-
-
-### Lectio3  
-*Ef 5:9-14*  
-9 Bo owoc światłości jest w wszelakiéj dobrotliwości i sprawiedliwości i prawdzie.  
-10 Doświadczając, co jest wdzięcznego Bogu:  
-11 A nie spółkujcie z uczynkami niepożytecznemi ciemności, ale raczéj strofujcie.  
-12 Albowiem co się od nich potajemnie dzieje, sromota i powiadać.  
-13 A wszystko, co bywa strofowano, od światłości bywa objawiono; bo wszystko, co objawiono bywa, jest światło.  
-14 Dlatego mówi: Wstań, który śpisz, i powstań zmartwych, a oświeci cię Chrystus.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ef 6:5-9*  
-5 Słudzy! posłuszni bądźcie panom wedle ciała z bojaźnią i ze drżeniem, w prostości serca waszego, jako Chrystusowi:   
-6 Nie na oko służąc, jakoby ludziom się podobając, ale jako słudzy Chrystusowi, czyniąc wolą Bożą z serca:  
-7 Z dobrą wolą służąc, jako Panu a nie ludziom:  
-8 Wiedząc, iż każdy, cokolwiek uczyni dobrego, to odniesie od Pana, choć niewolnik, choć wolny.  
-9 A wy panowie! tóż im czyńcie, odpuszczając groźby, wiedząc, iż i ich i wasz Pan jest w niebiesiech, a niemasz u niego względu na osoby.   
-  
-
-
-### Lectio3  
-*Ef 6:10-13*  
-10 Na ostatek bracia! zmacniajcie się w Panu i w sile mocy jego.  
-11 Obleczcie się w zupełną zbroję Bożą, abyście mogli stać przeciwko zasadzkom djabelskim.  
-12 Albowiem nie mamy biedzenia przeciw ciału i krwi, ale przeciwko książętom i władzom, przeciwko rządzcom świata tych ciemności, przeciwko duchownym złościom w niebiesiech.   
-13 A przetóż weźcie zupełną zbroję Bożą, abyście mogli sprzeciwić się w dzień zły i w wszystkiem doskonali stać.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Kolekta  
 Boże, który wiesz, że z powodu ułomności natury ludzkiej nie możemy wytrwać wśród tylu niebezpieczeństw: daj nam zdrowie duszy i ciała, abyśmy z pomocą Twoją przenieśli to, co za grzechy nasze cierpimy.  
 Przez Pana.  
-  
-
-
-### Lectio2  
-*Flp 1:8-14*  
-8 Albowiem świadkiem mi jest Bóg, jako pragnę was wszystkich we wnętrznościach Jezusa Chrystusa.  
-9 I o to proszę, aby miłość wasza więcéj a więcéj obfitowała w umiejętności i we wszelakiem zrozumieniu,  
-10 Abyście doświadczali, co jest pożyteczniejszego, żebyście byli szczerymi i bez obrażenia na dzień Chrystusów,  
-11 Napełnieni owocu sprawiedliwości przez Jezusa Chrystusa, ku sławie i chwale Bożéj.  
-12 A chcę, bracia! abyście wiedzieli, iż to, co się ze mną dzieje, więcéj się obróciło ku pomnożeniu Ewangelii,  
-13 Tak, iż też okowy moje wiadome są w Chrystusie po wszystkim pałacu i u wszystkich inszych.  
-14 I więcéj z braciéj w Panie, dufając okowom moim, obficiéj śmieli bez bojaźni słowo Boże opowiadać.  
-  
-
-
-### Lectio3  
-*Flp 1:15-18*  
-15 I dla zazdrości i sporu: a niektórzy téż z dobrej woli Chrystusa opowiadają.  
-16 Inni z miłości, wiedząc, iżem jest postanowion ku obronie Ewangelii.  
-17 A drudzy z sporu Chrystusa opowiadają nieszczerze, mniemając, iż przydawają ucisku okowom moim,  
-18 Bo cóż? By jedno wszelkim sposobem, bądź z okazyi, bądź po prawdzie Chrystus był opowiadan, i w tem się weselę, ale i weselić się będę.  
   
 
 
@@ -1880,209 +1133,17 @@ Wstąpił Jezus * w łódkę, oto wzruszenie wielkie stało się na morzu: i obu
 ### Ant 3  
 Panie, * zachowaj nas, giniemy, rozkaż, a uczyń, Boże, uciszenie.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Flp 4:4-7*  
-4 Weselcie się zawsze w Panu; powtóre mówię: weselcie się.  
-5 Skromność wasza niech będzie wiadoma wszystkim ludziom: Pan blizko jest.  
-6 Nie troszczcież się niocz; ale we wszelkiej modlitwie i prośbie z dziękowaniem niech żądania wasze będą u Boga oznajmione.  
-7 A pokój Boży, który przewyższa wszelki zmysł, niechaj strzeże serc waszych i myśli waszych w Chrystusie Jezusie.  
-  
-
-
-### Lectio3  
-*Flp 4:8-10*  
-8 Na ostatek bracia! cokolwiek jest prawdziwego, cokolwiek wstydliwego, cokolwiek sprawiedliwego, cokolwiek świętego, cokolwiek przyjemnego, cokolwiek dobréj sławy: jeźli która cnota, jeźli która chwała karności, to obmyślajcie.  
-9 Czegoście się téż nauczyli i przyjęli i słyszeli i widzieliście we mnie, to czyńcie, a Bóg pokoju będzie z wami.  
-10 A uweseliłem się wielce w Panu, iżeście wżdy kiedy znowu zakwitnęli starać się o mnie, jakoż i staraliście się, aleście zabawieni byli.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Kol 1:9-12*  
-9 Dlatego i my ode dnia, któregośmy usłyszeli, nie przestawamy za was się modlić i prosić, abyście byli napełnieni znajomości woli jego we wszelakiéj mądrości i wyrozumieniu duchownem,  
-10 Abyście chodzili godnie, Bogu we wszem się podobając, w każdym uczynku dobrym owoc przynosząc i rosnąc w znajomości Bożéj,  
-11 Umocnieni wszelaką mocą według możności jasności jego, we wszelakiéj cierpliwości i nieskwapliwości z weselem:  
-12 Dziękując Bogu Ojcu, który nas godnymi uczynił działu dziedzictwa świętych w światłości,  
-  
-
-
-### Lectio3  
-*Kol 1:13-18*  
-13 Który nas wyrwał z mocy ciemności i przeniósł w królestwo Syna umiłowania swego,  
-14 W którym mamy odkupienie przez krew jego, odpuszczenie grzechów,  
-15 Który jest obrazem Boga niewidzialnego, pierworodny wszego stworzenia.  
-16 Albowiem w nim wszystkie rzeczy są, stworzone na niebie i na ziemi, widzialne i niewidzialne, choć trony, choć państwa, choć księztwa, choć zwierzchności, wszystko przezeń i w nim jest stworzono.   
-17 A on jest przed wszystkimi, a wszystko w nim stoi.  
-18 I on jest głową ciała kościoła, który jest początkiem pierworodnym z umarłych, aby on był między wszystkimi, przodkowanie mając.   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Kol 3:16-21*  
-16 Słowo Chrystusowe niechaj mieszka w was obficie z wszelaką mądrością, nauczając i sami siebie napominając przez Psalmy i pieśni i śpiewania duchowne, w łasce śpiewając w sercach waszych Bogu.  
-17 Wszystko, cokolwiek czynicie w słowie albo w uczynku, wszystko w imię Pana Jezusa Chrystusa, dziękując Bogu i Ojcu przezeń.   
-18 Żony bądźcie poddane mężom, jako ma być, w Panu.   
-19 Mężowie! miłujcie żony wasze, a nie bądźcie gorzkimi przeciwko nim.   
-20 Synowie! posłuszni bądźcie rodzicom we wszystkiem; albowiem się to podoba w Panu.   
-21 Ojcowie! nie pobudzajcie ku rozgniewaniu synów waszych, aby się małego serca nie stawali.   
-  
-
-
-### Lectio3  
-*Kol 3:22-25;4:1-2*  
-22 Słudzy! bądźcie posłuszni we wszystkiem panom wedle ciała, nie służąc na oko, jakoby ludziom się podobając, ale w szczerości serca, Boga się bojąc.   
-23 Cokolwiek czynicie, z serca czyńcie, jako Panu, a nie ludziom,  
-24 Wiedząc, iż od Pana weźmiecie odpłatę dziedzictwa. Panu Chrystusowi służcie.  
-25 Bo który krzywdę czyni, odniesie to, co niesłusznie uczynił, a niemasz względu na osoby u Boga.   
-1 Panowie! co sprawiedliwego i słusznego jest, czyńcie sługom, wiedząc, że i wy macie Pana w niebie.  
-2 W modlitwie trwajcie, czujni będąc na niéj z dziękczynieniem.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Tes 1:6-10*  
-6 A wy staliście się naśladowcami naszymi i Pańskimi: przyjąwszy słowo w wielkiem uciśnieniu, z weselem Ducha Świętego,  
-7 Tak, iżeście się stali wzorem wszystkim wierzącym w Macedonii i w Achai.  
-8 Albowiem od was rozsławiona jest mowa Pańska, nie tylko w Macedonii i w Achai; ale na wszelkiem miejscu wiara wasza, która jest ku Bogu, rozeszła się tak, iż nam nie trzeba nic mówić.  
-9 Bo sami o nas opowiadają, jakieśmy wejście do was mieli: i jakoście się nawrócili do Boga od bałwanów, abyście służyli Bogu żywemu i prawdziwemu,  
-10 I oczekiwali Syna jego z niebios, (którego wzbudził z martwych), Jezusa, który nas wyrwał od gniewu przyszłego.  
-  
-
-
-### Lectio3  
-*1 Tes 2:1-6*  
-1 Albowiem sami wiecie, bracia! o naszem wejściu do was, iż nie próżne było;  
-2 Ale przedtem ucierpiawszy i zelżeni będąc (jako wiecie) w Philipiech, dufnościeśmy mieli mówić do was w Bogu naszym Ewangelią Bożą z wielkiem staraniem.  
-3 Albowiem napominanie nasze nie z obłędliwości, ani z nieczystości, ani w zdradzie;  
-4 Ale jakośmy doświadczeni byli od Boga, żeby nam była zwierzona Ewangelia, tak mówimy, nie jako się ludziom podobając, ale Bogu, który doświadcza serc naszych.  
-5 Albowiem nigdyśmy nie byli w mowie pochlebstwa, jako wiecie, ani w okazyi łakomstwa; Bóg świadek jest.  
-6 Ani szukając chwały od ludzi, ani od was, ani od inszych.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Tes 4:6-8*  
-6 A żeby kto nie podchodził ani oszukiwał w sprawie brata swego; albowiem mścicielem jest Pan wszystkiego tego, jakośmy wam przedtem powiadali i oświadczali.  
-7 Bo nas Bóg nie wezwał ku nieczystości, ale ku poświęceniu.  
-8 A przeto który tem gardzi, nie gardzi człowiekiem, ale Bogiem, który téż w nas dał Ducha swego Świętego.  
-  
-
-
-### Lectio3  
-*1 Tes 4:9-12*  
-9 A o miłości braterstwa nie potrzeba nam do was pisać; albowiem wy sami od Boga jesteście nauczeni, abyście jedni drugie miłowali.   
-10 Albowiem to czynicie przeciw wszystkiéj braci w wszystkiéj Macedonii: a prosimy was, bracia! iżbyście więcéj obfitowali:  
-11 I starali się, abyście spokojnymi byli, a żebyście sprawy wasze sprawowali i rękami swemi robili, jakośmy wam rozkazali:  
-12 A iżbyście uczciwie się obchodzili z tymi, którzy są obcy, a niczyjego nic nie pożądali.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*2 Tes 1:6-12*  
-6 Jeźli jedno sprawiedliwa jest u Boga, żeby oddał uciśnienie tym, którzy was uciskają:  
-7 A wam, którzy uciśnieni jesteście, odpoczynienie z nami w objawieniu Pana Jezusa z nieba z Anioły możności swojéj,  
-8 W płomieniu ognistym oddawającego pomstę tym, którzy Boga nie znają, i którzy nie są posłuszni Ewangelii Pana naszego Jezusa Chrystusa:  
-9 Którzy kaźni odniosą w zatraceniu wiecznem od obliczności Pańskiéj i od chwały mocy jego;  
-10 Gdy przyjdzie, aby był  uwielbion w świętych swoich, i dziwnym się stał we wszystkich, którzy uwierzyli, iż wiara jest dana świądectwu naszemu u was w on dzień.  
-11 Dlaczego téż modlimy się zawsze za was, aby was Bóg nasz uczynił godnymi wezwania swego, i wypełnił wszystkę wolą dobrotliwości i sprawę wiary w mocy,  
-12 Aby było rozsławione imię święcenie Pana naszego Jezusa Chrystusa w was, a wy w nim podług łaski Boga naszego i Pana Jezusa Chrystusa.  
-  
-
-
-### Lectio3  
-*2 Tes 2:1-4*  
-1 A prosimy was, bracia! przez przyjście Pana naszego Jezusa Chrystusa i naszego zgromadzenia do niego,  
-2 Abyście się nie prędko unosili od rozumu waszego, ani byli ustraszeni, ani przez ducha, ani przez mowę, ani przez list, jakoby od nas posłany, jakoby nadchodził dzień Pański.  
-3 Niech was nikt nie zwodzi żadnym sposobem; albowiem nie przyjdzie, jeźli pierwéj nie przyjdzie odstąpienie, i będzie objawion człowiek grzechu, syn zatracenia.   
-4 Który się sprzeciwia i wynosi się nad to wszystko, co zowią Bogiem, albo co chwalą: tak że usiędzie w kościele Bożym, okazując się, jakoby był Bogiem.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Kolekta  
 Sług i służebnic Twoich strzeż, prosimy Cię, Panie, w miłosierdziu Twojem zawsze, a że opieramy się jedynie na nadziei łaski niebieskiej, racz otoczyć nas nieustanną opieką Twoją.  
 Przez Pana.  
-  
-
-
-### Responsory1  
-R. Panie, nie w zapalczywości twojéj strofuj mię, ani w gniewie twoim karz mię.  
-* Zmiłuj się nademną, Panie; bomci chory.  
-V. Bojaźń i drżenie przyszły na mię i okryły mię ciemności.  
-R. Zmiłuj się nademną, Panie; bomci chory.  
-  
-  
-
-
-### Lectio2  
-*1Tm 1:5-11*  
-5 A koniec przykazania jest miłość z czystego serca i sumnienia dobrego i wiary nieobłudnéj.  
-6 Od których niektórzy obłądziwszy się, obrócili się ku próżnomówności,  
-7 Chcąc być nauczycielmi zakonu, nie rozumiejąc ani, co mówią, ani, o czem twierdzą.  
-8 A wiemy, że dobry jest zakon, jeźliby go kto przystojnie używał:  
-9 Wiedząc to, iż zakon nie jest postanowion sprawiedliwemu, ale niesprawiedliwym i niepoddanym, niepobożnym i grzesznym, złośliwym i sprośnym, ojcomordercom i matkomordercom, mężobójcom,  
-10 Porubnikom, Sodomczykom, wolnych ludzi przedawaczom, kłamcom i krzywoprzysiężcom, i jeźlisię co innego zdrowéj nauce sprzeciwia,  
-11 Która jest wedle Ewangelii chwały błogosławionego Boga, która mnie jest zwierzona.  
-  
-
-
-### Responsory2  
-R. Boże, który siedzisz na tronie, i sądzisz sprawiedliwie, bądź ucieczką ubogiemu w potrzebach.  
-* Tylko ty na boleść i na utrapienie patrzysz.  
-V. Tobie zostawiony jest ubogi: sierocie ty będziesz pomocnikiem.  
-R. Tylko ty na boleść i na utrapienie patrzysz.  
-  
-  
-
-
-### Lectio3  
-*1Tm 1:12-16*  
-12 Dziękuję temu, który mię umocnił, Chrystusowi Jezusowi, Panu naszemu, iż mię za wiernego poczytał, na usługowanie postanowiwszy.  
-13 Którym był pierwéj bluźnierzem i prześladowcą, i łżywym; alem dostąpił miłosierdzia Bożego, żem niewiedząc czynił w niewierności.  
-14 Lecz bardzo obfitowała łaska Pana naszego z wiarą i z miłością, która jest w Chrystusie Jezusie.  
-15 Wierna mowa i wszelkiego przyjęcia godna, iż Chrystus Jezus przyszedł na ten świat grzeszne zbawić, z których jam jest pierwszym.  
-16 Alem dlatego miłosierdzia dostąpił, aby we mnie najprzód okazał Jezus Chrystus wszelaką cierpliwość na naukę tym, którzy mu mają uwierzyć ku żywotowi wiecznemu.  
-  
-
-
-### Responsory3  
-R. Pan mi jest po prawicy, abych nie był wzruszon.  
-* Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-V. Pan cząstka dziedzictwa mego i kielicha mego.  
-R. Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-Chwała Ojcu.  
-R. Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-  
-  
-
-
-### Responsory4  
-R. Oznajmiłeś mi drogi żywota Panie.  
-* Napełnisz mię weselem z obliczem twojem, rozkoszy na prawicy twéj aż do końca.  
-V. Tyś jest, który mi przywrócisz dziedzictwo moje.  
-R, Napełnisz mię weselem z obliczem twojem, rozkoszy na prawicy twéj aż do końca.  
-  
-  
-
-
-### Responsory5  
-R. Będę cię miłował, Panie, mocy moja: Pan twierdza moja.  
-* I ucieczka moja.  
-V. Wybawiciel mój: Bóg mój wspomożyciel mój.  
-R. I ucieczka moja.  
-  
-  
-
-
-### Responsory6  
-R. Pańska jest ziemia, i napełnienie jéj.  
-* Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
-V. Bo go on nad morzami ugruntował: i nad rzekami nagotował go.  
-R. Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
-Chwała Ojcu.  
-R. Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
-  
   
 
 
@@ -2094,26 +1155,6 @@ Onego czasu: Powiedział Jezus rzeszom tę przypowieść: „Podobne stało się
 Homilia świętego Augustyna, Biskup  
 *Księga Problemów Ewangelii wg św. Mateusza, rozdz. 11., część 4.*  
 Kiedy przełożeni Kościoła postępowali niedbale albo też kiedy Apostołowie poumierali, przyszedł diabeł i posiał takich, których Pan określił mianem złych synów. Słusznie jednak nasuwa się pytanie, czy chodzi tu o heretyków, czy też o źle żyjących katolików? Heretyków bowiem również można nazwać złymi synami, ponieważ z tego samego posiewu Ewangelii i w imię Chrystusa zrodzeni skierowują się ku fałszywym dogmatom i błędnym opiniom.  
-  
-
-
-### Responsory7  
-R. Do ciebie. Panie, podniosłem duszę moję.  
-* Boże mój, w tobie ufam, niech się nie zawstydzę.  
-V. Strzeż dusze mojéj, a wyrwij mię.  
-R. Boże mój, w tobie ufam, niech się nie zawstydzę.  
-  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
   
 
 
@@ -2137,208 +1178,17 @@ R. Jako woń kadzidła przed obliczem Twoim.
 ### Ant 3  
 Zbierzcie * pierwej kąkol i zwiążcie go w snopki ku spaleniu: pszenicę zaś zgromadźcie do gumna mojego, mówi Pan.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Tm 3:8-13*  
-8 Dyakonowie także czyści, nie dwoistego języka, nie kochający się w wielkiem piciu wina, nie szukający szkaradnego zysku,  
-9 Mający tajemnicę wiary w czystem sumnieniu.  
-10 A ci téż niechaj pierwej będą doświadczeni: i tak niech służą, nie mając żadnéj winy.  
-11 Niewiasty także wstydliwe, nie obmównice, trzeźwe, wierne we wszystkiem.  
-12 Dyakonowie niech będą mężowie jednéj żony, którzyby dziatki swe dobrze rządzili i swe domy.  
-13 Bo którzyby dobrze posługowali, zjednają sobie stopień dobry i wielkie ufanie w wierze, która jest w Chrystusie Jezusie.  
-  
-
-
-### Lectio3  
-*1 Tm 3:14-16; 4:1*  
-14 To tobie piszę, spodziewając się, że rychło do ciebie przybędę.  
-15 A jeźli omieszkam, abyś wiedział, jako się masz sprawować w domu Bożym, który jest kościół Boga żywego, filar i utwierdzenie prawdy.  
-16 A jaśnie wielka jest tajemnica pobożności, która jest oznajmiona w ciele, usprawiedliwiona jest w duchu, okazała się Aniołom, opowiedziana jest poganom, wiarę jej dano na świecie, wzięta jest w chwale.  
-1 A Duch jawnie powiada, iż w ostateczne czasy odstąpią niektórzy od wiary, przystawając do duchów obłędliwych i nauk czartowskich,  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*2 Tm 1:6-9*  
-6 Dla któréj przyczyny napominam cię, abyś wzniecał łaskę Bożą, która jest w tobie przez włożenie rąk moich.  
-7 Albowiem Bóg nie dał nam ducha bojaźni; ale mocy i miłości i trzeźwości.   
-8 Nie wstydaj się tedy świadectwa Pana naszego, ani mnie więźnia jego; ale pospołu pracuj z Ewangelią wedle mocy Boga,  
-9 Który nas wybawił i wezwał wezwaniem swem świętem, nie według uczynków naszych, ale według postanowienia swego i łaski, która nam jest dana w Chrystusie Jezusie przed czasy wiekuistemi.   
-  
-
-
-### Lectio3  
-*2 Tm 1:10-13*  
-10 A objawiona jest teraz przez oświecenie Zbawiciela naszego Jezusa Chrystusa, który śmierć skaził, a żywot oświecił i nieskazitelność przez Ewangelią,  
-11 W któréj ja postanowiony jestem kaznodzieją i Apostołem i nauczycielem poganów.  
-12 Dla któréj przyczyny to téż cierpię; ale się nie wstydam; bo wiem, komum uwierzył, i pewienem, iż mocen jest zwierzonéj rzeczy mojéj strzedz do onego dnia.  
-13 Miej wzór zdrowych słów, któreś odemnie słyszał, w wierze i w miłości w Chrystusie Jezusie.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*2 Tm 3:6-9*  
-6 Albowiem z tych są, którzy wrywają się w domy, i poimane wiodą niewiastki grzechami obciążone, które się dają uwieść rozmaitym pożądliwościom:  
-7 Zawsze się uczące, a nigdy ku wiadomości prawdy nie przychodzące.  
-8 A jako Iannes i Mambres sprzeciwiali się Mojżeszowi, tak i ci się sprzeciwiają prawdzie, ludzie rozumu skażonego, odrzuceni z strony wiary.   
-9 Aleć więcéj nie wskurają; albowiem ich szaleństwo jawne będzie wszystkim, jako i onych było.  
-  
-
-
-### Lectio3  
-*2 Tm 3:10-13*  
-10 Lecz ty dostąpiłeś mojéj nauki, ćwiczenia, przedsięwzięcia, wiary, wytrwania, miłości, cierpliwości,  
-11 Prześladowania, ucisków, jakie mię potkały w Antyochii, w Ikonii i w Listrach, jakiem prześladowania podejmował; a ze wszystkich mię Pan wyrwał.  
-12 I wszyscy, którzy chcą pobożnie żyć w Chrystusie Jezusie, prześladowanie będą cierpieć.  
-13 A źli ludzie i zwodnicy pomnożą się w gorsze, błądząc i w błąd wwodząc.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Tt 1:5-9*  
-5 Dlategom cię zostawił w Krecie, abyś to, czego nie dostawa, naprawił i postanowił kapłany po miastach, jakom i ja tobie rozrządził:  
-6 Jeźli kto jest bez winy, mąż jednéj żony, syny wierne mający, nie obwinowane w zbytku, albo nie poddane.  
-7 Albowiem biskup ma być bez winy, jako szafarz Boży, nie pyszny, nie gniewliwy, nie winopilca, nie bijący, nie chciwy zysku szkaradnego;  
-8 Ale wdzięcznie goście przyjmujący, dobrotliwy, trzeźwy, sprawiedliwy, święty, powściągliwy,  
-9 Trzymający się téj, która jest wedle nauki, wiernéj mowy, iżby mógł napominać przez zdrową naukę i tych, którzy się sprzeciwiają, przekonać.  
-  
-
-
-### Lectio3  
-*Tt 1:10-15*  
-10 Albowiem jest wiele nieposłusznych, próżnomównych i zwodzicielów, a najwięcéj, którzy są z obrzezania.  
-11 Których trzeba przekonywać, którzy całe domy podwracają, ucząc co nie potrzeba, dla zysku sprosnego.  
-12 Powiedział niektóry z nich, własny ich prorok: Kreteńczykowie zawsze kłamliwi, złe bestye, brzuchowie leniwi.  
-13 To świadectwo jest prawdziwe. Dla któréj przyczyny ostrze je karz, aby zdrowi byli w wierze.  
-14 Nie bawiąc się Żydowskiemi baśniami i mandatami ludzi, którzy się od prawdy odwracają.  
-15 Wszystko czyste czystym; lecz pokalanym i niewiernym niemasz nic czystego, ale pokalane są ich i umysł i sumnienie.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Tt 3:3-7*  
-3 Albowiem i my byliśmy niekiedy głupi, niewierni, błądzący, służący pożądliwościom i rozkoszom rozmaitym, w złości i w zazdrości żyjący, przemierzli, jedni drugich nienawidzący;  
-4 Lecz gdy się okazała dobrotliwość i ludzkość Zbawiciela naszego Boga:  
-5 Nie z uczynków sprawiedliwości, któreśmy uczynili my, ale podług miłosierdzia swego zbawił nas przez omycie odrodzenia i odnowienia Ducha Świętego,   
-6 Którego wylał na nas obficie przez Jezusa Chrystusa, Zbawiciela naszego,  
-7 Abyśmy usprawiedliwieni łaską jego, byli dziedzicami według nadzieje żywota wiecznego.  
-  
-
-
-### Lectio3  
-*Tt 3:8-11*  
-8 Wierna jest mowa; a chcę, abyś tego potwierdzał, iżby się starali w dobrych uczynkach przodkować, którzy wierzą Bogu. Te rzeczy są dobre i pożyteczne ludziom.  
-9 A głupich gadek i wyliczania rodzajów i sporów i swarów zakonnych chroń się; albowiem są niepożyteczne i próżne.   
-10 Człowieka heretyka po pierwszem i po wtórem strofowaniu się strzeż,  
-11 Wiedząc, iż jest wywrócony, który takowy jest, i grzeszy, gdyż jest własnym sądem potępiony.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Flm 1:7-11*  
-7 Albowiem wesele wielkie miałem i pociechę w miłości twéj, iż wnętrzności świętych są przez cię ochłodzone, bracie!  
-8 Przetóż mając wielką bezpieczność w Chrystusie Jezusie rozkazać ci, co do rzeczy należy:  
-9 Dla miłości raczéj proszę, gdyżem taki jest, jako Paweł stary, a teraz i więzień Jezusa Chrystusa.  
-10 Proszę cię za synem moim, któregom zrodził w więzieniu mojem, Onezymem,  
-11 Który tobie niekiedy był niepożytecznym, a teraz i mnie i tobie użytecznym,  
-  
-
-
-### Lectio3  
-*Flm 1:12-19*  
-12 Któregom ci odesłał. A ty przyjmij go jako wnętrzności moje.  
-13 Któregom ja chciał przy sobie zatrzymać, aby mi za cię służył w więzieniu Ewangelii.  
-14 Wszakże bez twéj rady nie chciałem nic czynić, aby dobrodziejstwo twoje nie było jako z przymuszenia, ale z dobréj woli.  
-15 Albowiem snadź dlatego ustąpił na chwilę od ciebie, abyś go przyjął wiecznym,  
-16 Już nie jako sługę, ale miasto sługi, brata najmilszego, zwłaszcza mnie, jakóż daleko więcéj tobie i w ciele i w Panu.  
-17 Jeźli mię tedy masz towarzyszem, przyjmij go jako mię.  
-18 A jeźlić co uszkodził albo winien, to mnie przyczytaj.  
-19 Jam Paweł napisał ręką moją, ja nagrodzę, żebym ci nie rzekł, iżeś mi i samego siebie winien.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Kolekta  
 Spraw, prosimy Cię, wszechmogący Boże, abyśmy stale rozważając prawdy duchowe, słowem i czynem spełniali, co się Tobie podoba.  
 Przez Pana.  
-  
-
-
-### Responsory1  
-R. Panie, nie w zapalczywości twojéj strofuj mię, ani w gniewie twoim karz mię.  
-* Zmiłuj się nademną, Panie; bomci chory.  
-V. Bojaźń i drżenie przyszły na mię i okryły mię ciemności.  
-R. Zmiłuj się nademną, Panie; bomci chory.  
-  
-  
-
-
-### Lectio2  
-*Hbr 1:5-9*  
-5 Bo któremuż kiedy z Aniołów rzekł: Synem moim jesteś ty, Jam ciebie dziś urodził? I zasię: Ja mu będę Ojcem, a on mnie będzie Synem?  
-6 A gdy zasię wprowadza pierworodnego na okrąg ziemie, mówi: A niech się mu kłaniają wszyscy Aniołowie Boży.  
-7 A do Aniołówci mówi: Który czyni Aniołami swymi duchy, a sługami swymi płomień ognia.  
-8 A do Syna: Stolica twoja, Boże! na wiek wieku, laska prawości laska królestwa twego.  
-9 Umiłowałeś sprawiedliwość, a nienawidziałeś nieprawość, dlategóż pomazał cię, Boże! Bóg twoj, olejkiem radości nad uczęstniki twoje.  
-  
-
-
-### Responsory2  
-R. Boże, który siedzisz na tronie, i sądzisz sprawiedliwie, bądź ucieczką ubogiemu w potrzebach.  
-* Tylko ty na boleść i na utrapienie patrzysz.  
-V. Tobie zostawiony jest ubogi: sierocie ty będziesz pomocnikiem.  
-R. Tylko ty na boleść i na utrapienie patrzysz.  
-  
-  
-
-
-### Lectio3  
-*Hbr 1:10-14*  
-10 I tyś, Panie! na początku ugruntował ziemię, a dzieła rąk twoich są niebiosa.  
-11 One poginą, a ty trwać będziesz: a wszystkie jako szata zwiotszeją.  
-12 A jako odzienie zmienisz je, i odmienią się; ale ty tenżeś jest, i lata twoje nie ustaną?  
-13 A do któregóż kiedy z Aniołów rzekł: Siedź po prawicy mojéj, aż położę nieprzyjacioły twoje podnóżkiem nóg twoich?  
-14 Izali wszyscy nie są duchowie usługujący, na posługę posłani dla tych, którzy dziedzictwo zbawiania wziąć mają?  
-  
-
-
-### Responsory3  
-R. Pan mi jest po prawicy, abych nie był wzruszon.  
-* Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-V. Pan cząstka dziedzictwa mego i kielicha mego.  
-R. Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-Chwała Ojcu.  
-R. Dlategóż się rozszerzyło serce moje, a rozradował się język mój.  
-  
-  
-
-
-### Responsory4  
-R. Oznajmiłeś mi drogi żywota Panie.  
-* Napełnisz mię weselem z obliczem twojem, rozkoszy na prawicy twéj aż do końca.  
-V. Tyś jest, który mi przywrócisz dziedzictwo moje.  
-R, Napełnisz mię weselem z obliczem twojem, rozkoszy na prawicy twéj aż do końca.  
-  
-  
-
-
-### Responsory5  
-R. Będę cię miłował, Panie, mocy moja: Pan twierdza moja.  
-* I ucieczka moja.  
-V. Wybawiciel mój: Bóg mój wspomożyciel mój.  
-R. I ucieczka moja.  
-  
-  
-
-
-### Responsory6  
-R. Pańska jest ziemia, i napełnienie jéj.  
-* Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
-V. Bo go on nad morzami ugruntował: i nad rzekami nagotował go.  
-R. Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
-Chwała Ojcu.  
-R. Okrąg ziemie, i wszyscy, którzy mieszkają na nim.  
-  
   
 
 
@@ -2350,26 +1200,6 @@ Onego czasu: Powiedział Jezus rzeszom tę przypowieść: „Podobne jest Króle
 Homilia świętego Hieronima, Kapłana  
 *Księga 2. Komentarza, do rozdz. 13. Ewangelii wg św. Mateusza*  
 Królestwem Niebieskim jest głoszenie Ewangelii i znajomość Pism, która wiedzie ku życiu, a o której jest powiedziane do Żydów: Odjęte będzie od was Królestwo Boże, a dane narodowi czyniącemu owoce jego. Człowiek, który sieje na swojej roli, przez wielu jest utożsamiany ze Zbawicielem, bo sieje w duszach wierzących, a dla innych owym człowiekiem jest po prostu każdy człowiek, który sieje na swojej roli, to jest w sobie samym i w sercu swoim.  
-  
-
-
-### Responsory7  
-R. Do ciebie. Panie, podniosłem duszę moję.  
-* Boże mój, w tobie ufam, niech się nie zawstydzę.  
-V. Strzeż dusze mojéj, a wyrwij mię.  
-R. Boże mój, w tobie ufam, niech się nie zawstydzę.  
-  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
   
 
 
@@ -2393,113 +1223,11 @@ Podobne jest * Królestwo Niebieskie do kwasu, który wziąwszy skryła niewiast
 V. Niech się wzniesie modlitwa moja.  
 R. Jako woń kadzidła przed obliczem Twoim.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Hbr 3:5-8*  
-5 A Mojżesz wprawdzie wiernym był we wszystkim domu jego jako sługa na świadectwo tego, co miało być mówiono.  
-6 Ale Chrystus jako syn w domu swym, który dom my jesteśmy, jeźliże ufność i chwałę nadzieje aż do końca mocną zachowamy.  
-7 Przeto jako mówi Duch Święty: Dziś, jeźlibyście głos jego usłyszeli,   
-8 Nie zatwardzajcież serc waszych jako w rozdrażnieniu wedle dnia kuszenia na puszczy,  
-  
-
-
-### Lectio3  
-*Hbr 3:12-16*  
-12 Patrzcież, bracia! iżby snadź nie było w którym z was serce złe niedowiarstwa ku odstąpieniu od Boga żywego;  
-13 Ale napominajcie sami siebie na każdy dzień, póki się Dzisiaj nazywa, iżby który z was nie był zatwardzon oszukaniem grzechu.  
-14 Albowiem staliśmy się uczestnikami Chrystusowymi, jeźli tylko początek istności jego aż do końca mocny zachowamy,  
-15 Póki bywa mówiono: Dziś, jeźlibyście głos jego usłyszeli, nie zatwardzajcie serc waszych, jako w onem rozdrażnieniu.  
-16 Albowiem niektórzy, usłyszawszy, rozdrażnili, ale nie wszyscy, którzy wyszli z Egiptu przez Mojżesza.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Hbr 4:4-7*  
-4 Albowiem rzekł na niektórem miejscu o siódmym dniu tak: I odpoczął Bóg dnia siódmego od wszystkich dzieł swoich.   
-5 A na tem zaś: Jeźli wnidą do odpoczynienia mojego.  
-6 Gdyż tedy zostawa, że niektórzy mają wniść do onego, a ci, którym pierwej opowiedziano było, nie weszli dla niedowiarstwa,  
-7 Zasię naznacza dzień niektóry: Dzisiaj, mówiąc przez Dawida, po tak długim czasie, jako się wyżej rzekło: Dziś, jeźlibyście głos jego usłyszeli, nie zatwardzajcie serc waszych.  
-  
-
-
-### Lectio3  
-*Hbr 4:8-12*  
-8 Albowiem jeźliby im był Jezus dał odpoczynieuie, nigdyby o inszym dniu napotem nie mówił.  
-9 A tak zostawa sobotowanie ludowi Bożemu.  
-10 Albowiem który wszedł do odpoczynienia jego, ten też odpoczął od dziełów swych, jako Bóg od swoich.  
-11 Spieszmy się tedy, abyśmy weszli do onego odpoczynienia, iżby kto w tenże przykład niedowiarstwa nie wpadł.  
-12 Bo żywa jest mowa Boża i skuteczna, i przeraźliwsza niżeli wszelaki miecz po obu stron ostry i przenikająca aż do rozdzielenia dusze i ducha, stawów też i szpików, i rozeznawająca myśli i przedsięwzięcia serdeczne.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Hbr 6:4-6*  
-4 Albowiem nie podobna jest, aby ci, którzy raz są oświeceni, skosztowali też daru niebieskiego i uczęstniki się stali Ducha Świętego,  
-5 Skosztowali nie mniej dobrego słowa Bożego i mocy przyszłego wieku,  
-6 A upadli, aby zaś byli odnowieni ku pokucie, znowu krzyżujący sami sobie Syna Bożego, i na pośmiewisko mający.  
-  
-
-
-### Lectio3  
-*Hbr 6:7-10*  
-7 Bo ziemia, która deszcz często na się padający pije i rodzi ziele użyteczne tym, przez które bywa sprawowana, bierze błogosławieństwo od Boga.  
-8 Lecz która rodzi ciernie i osty, odrzucona jest i blizka przeklęctwa, której koniec na spalenie.  
-9 Ale tuszymy sobie o was coś lepszego, najmilejsi! i zbawienia bliższego, chociaż tak mówimy.  
-10 Albowiem nie jest niesprawiedliwy Bóg, aby zapamiętał roboty waszej, i miłości, którąście okazali w imię jego, którzyście posługowali świętym i posługujecie.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Hbr 7:4-6*  
-4 A przypatrzcie się, jako to wielki, któremu też dziesięcinę z rzeczy przedniejszych dał Abraham Patryarcha.  
-5 A iście z synów Lewi, urząd kapłański przyjmujący rozkazanie mają, aby brali dziesięcinę od ludu wedle zakonu, to jest, od braciéj swojej, chociaż i oni wyszli z biódr Abrahamowych.  
-6 Lecz którego naród nie jest poczytan między nimi, dziesięcinę brał od Abrahama i tego, który miał obietnice, błogosławił.  
-  
-
-
-### Lectio3  
-*Hbr 7:7-12*  
-7 A bez wszelakiego sporu, co mniejszem jest, od lepszego bywa błogosławione.  
-8 A tu jednak ludzie, którzy  umierają, dziesięciny biorą; lecz tam świadectwo ma, iż żywię.  
-9 A (iżby się tak rzekło) przez Abrahama i Lewi, który brał dziesięciny, oddał dziesięcinę.  
-10 Albowiem jeszcze był w biodrach ojcowych, gdy wyszedł przeciw niemu Melchisedech.  
-11 Jeźliż tedy doskonałość była przez kapłaństwo Lewitskie; (bo pod niem lud wziął zakon), cóż jeszcze było potrzeba, aby nastał inszy kapłan wedle porządku Melchisedechowego, a nie był rzeczon wedle porządku Aaronowego?  
-12 Bo za przeniesieniem kapłaństwa trzeba, żeby się i zakonu przeniesienie stało.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Hbr 11:5-7*  
-5 Wiarą Henoch był przeniesion, aby śmierci nie oglądał, i nie najdował się, bo go przeniósł Bóg; albowiem przed przeniesieniem miał świadectwo, iż się Bogu podobał.   
-6 A bez wiary nie podobna jest, spodobać się Bogu; albowiem przystępującemu do Boga potrzeba wierzyć, iż jest, a iż jest oddawcą tym, którzy go szukają.  
-7 Wiarą Noe odpowiedź wziąwszy o tem, czego jeszcze nie było widać, bojąc się, zgotował korab ku zachowaniu domu swego, przez który potępił świat, i sprawiedliwości, która jest przez wiarę, dziedzicem jest uczyniony.   
-  
-
-
-### Lectio3  
-*Hbr 11:8-10*  
-8 Wiarą, który nazwany jest Abraham, usłuchał, aby wyszedł na miejsce, które w dziedzictwo wziąć miał, i wyszedł, nie wiedząc dokąd szedł.   
-9 Wiarą mieszkał w ziemi obiecanej, jako w cudzej, mieszkając w namieciech z Izaakiem i Jakóbem, spólnymi dziedzicmi tejże obietnice.  
-10 Albowiem oczekiwał miasta fundamenty mającego, którego rzemieślnik i budownik Bóg.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Hbr 13:5-8*  
-5 Obyczaje niech będą bez łakomstwa, przestawając na teraźniejszych rzeczach; bo sam powiedział: Nie zaniecham cię, ani opuszczę;   
-6 Tak iż śmiele mówimy: Pan mi pomocnikiem, nie będę się bał, coby mi człowiek uczynił.   
-7 Pamiętajcie na przełożone wasze, którzy wam mówili słowo Boże, których przypatrując się dokonaniu obcowania, naśladujcie wiary.  
-8 Jezus Chrystus wczoraj i dziś, ten i na wieki.  
-  
-
-
-### Lectio3  
-*Hbr 13:9-12*  
-9 Naukami rozmaitemi i obcemi nie unoście się; albowiem najlepsza jest serce utwierdzić łaską, nie pokarmami, które nie pomogły tym, co się niemi bawili.  
-10 Mamy ołtarz, z którego nie mają mocy jeść, którzy przybytkowi służą.  
-11 Albowiem których bydląt krew bywa wnoszona do świątnice przez najwyższego kapłana, tych ciała bywają palone za obozem.   
-12 Dlaczego i Jezus, aby poświęcił lud przez własną krew, za bramą ucierpiał.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 # Przedpoście
@@ -2534,86 +1262,6 @@ Uprzedźmy oblicze Pana: * A psalmami śpiewajmy mu.
   
 
 
-### Responsory1  
-R. Na początku stworzył Bóg niebo i ziemię, i stworzył człowieka.  
-* Na wyobrażenie podobieństwa swego.  
-V. Utworzył tedy Pan Bóg człowieka z mułu ziemie, i natchnął w oblicze jego dech żywota.  
-R. Na wyobrażenie podobieństwa swego.  
-  
-
-
-### Lectio2  
-*Rdz 1:9-19*  
-9 Potem rzekł Bóg: Niech się zbiorą wody, które są pod niebem, na jedno miejsce: a niech się ukaże sucha. I stało się tak.  
-10 I nazwał Bóg suchą, Ziemią: a zebranie wód przezwał Morzem. I widział Bóg, że było dobre.  
-11 I rzekł: Niech zrodzi ziemia ziele zielone, i dawające nasienie: i drzewo rodzajne, owoc czyniące według rodzaju swego, któregoby nasienie było w samym sobie na ziemi. I stało się tak.  
-12 I zrodziła ziemia ziele zielone, i dawające nasienie według rodzaju swego: i drzewo czyniące owoc, i mając każde z nich nasienie według rodzaju swego. I widział Bóg, że było dobre.  
-13 I stał się wieczór i zaranek, dzień trzeci.  
-14 I rzekł Bóg: Niech się staną światła na utwierdzeniu nieba, a niech dzielą dzień od nocy: i niech będą na znaki, i czasy, i dni i lata:  
-15 Aby świeciły na utwierdzeniu nieba, a oświecały ziemię. I stało się tak.  
-16 I uczynił Bóg dwa światła wielkie: światło większe, aby rządziło dzień, i światło mniejsze, aby rządziło noc: i gwiazdy.  
-17 I postawił je na utwierdzeniu nieba, aby świeciły nad ziemią:  
-18 Żeby rządziły dzień i noc, i dzieliły światłość od ciemności. I widział Bóg, iż było dobre.  
-19 I stał się wieczór i zaranek, dzień czwarty.  
-  
-
-
-### Responsory2  
-R. Na początku stworzył Bóg niebo i ziemię, a Duch Boży unaszał się nad wodami.  
-* I widział Bóg wszystkie rzeczy, które był uczynił: i były bardzo dobre.  
-V. Dokończone są tedy niebiosa i ziemia, i wszystko ochędóstwo ich.  
-R. I widział Bóg wszystkie rzeczy, które był uczynił: i były bardzo dobre.  
-  
-
-
-### Lectio3  
-*Rdz 1:20-26*  
-20 Rzekł téż Bóg: Niech wywiodą wody płaz dusze żywiącéj, i ptastwo nad ziemią pod utwierdzeniem nieba.  
-21 I stworzył Bóg wieloryby wielkie, i wszelką duszę żywiącą i ruszającą się, którą wywiodły wody według rodzaju ich: i wszelkie ptastwo według rodzaju jego. I widział Bóg, iż było dobre.  
-22 I błogosławił im, mówiąc:  Rośćcie, i mnóżcie się, i napełniajcie wody morskie: i ptastwo niech się mnoży na ziemi.  
-23 I stał się wieczór i zaranek, dzień piąty.  
-24 Rzekł téż Bóg: Niech zrodzi ziemia duszę żywiącą, według rodzaju swego: bydło, i płaz, i bestye ziemne, według rodzajów swoich. I stało się tak.  
-25 I uczynił Bóg bestye ziemne, według rodzajów ich, i bydło i wszelki ziemopłaz, według rodzaju swego. I widział Bóg, że było dobre.  
-26 I rzekł: Uczyńmy człowieka na wyobrażenie i na podobieństwo nasze: a niech przełożony będzie rybom morskim, i ptastwu powietrznemu, i bestyom, i wszystkiéj ziemi, i nad wszelkim płazem który się płaza po ziemi.  
-  
-
-
-### Responsory3  
-R. Utworzył tedy Pan Bóg człowieka z mułu ziemie.  
-* I natchnął w oblicze jego dech żywota: i stał się człowiek w duszę żywiącą.  
-V. Na początku stworzył Bóg niebo i ziemię, i ulepił człowieka.  
-R. I natchnął w oblicze jego dech żywota: i stał się człowiek w duszę żywiącą.  
-Chwała Ojcu.  
-R. I natchnął w oblicze jego dech żywota: i stał się człowiek w duszę żywiącą.  
-  
-
-
-### Responsory4  
-R. Wziął tedy Pan Bóg człowieka, i posadził go w Raju rozkoszy:  
-* Aby sprawował i strzégł go.  
-V. A naszczepił był Pan Bóg Raj rozkoszy od początku, w którym postanowił człowieka, którego utworzył.  
-R. Aby sprawował i strzégł go.  
-  
-
-
-### Responsory5  
-Rzekł Pan Bóg: Nie dobrze być człowiekowi samemu:  
-* Uczyńmy mu pomoc jemu podobną.  
-V. Lecz Adamowi nie najdował się pomocnik podobny jemu: rzekł Pan.  
-R. Uczyńmy mu pomoc jemu podobną.  
-  
-
-
-### Responsory6  
-R. Przepuścił tedy Pan Bóg twardy sen na Adama: wyjął jedno żebro z niego:  
-* I zbudował z żebra, które wyjął Pan z Adama, białągłowę, i przywiódł ją do Adama, by zobaczyć jak ją nazwie: i nazwał ją Mężyną; bo z męża wzięta jest.  
-V. Gdy zasnął, wyjął jedno żebro z niego, i napełnił ciałem miasto niego.  
-R. I zbudował z żebra, które wyjął Pan z Adama, białągłowę, i przywiódł ją do Adama, by zobaczyć jak ją nazwie:  
-Chwała Ojcu.  
-R. I nazwał ją Mężyną; bo z męża wzięta jest.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Mateusza  
 *Mt 20:1-6*  
@@ -2622,14 +1270,6 @@ Onego czasu: Rzekł Jezus uczniom swoim tę przypowieść: „Podobne jest Król
 Homilia świętego Grzegorza, Papieża  
 *Homilia 19. na Ewangelię, przy początku*  
 Królestwo Niebieskie nazywane jest podobnym do człowieka gospodarza, który najmuje robotników do uprawy swej winnicy. Któż zaś jest podobniejszy do tego gospodarza, niż nasz Stwórca, który rządzi tymi, których stworzył, i swych wybranych na tym świecie tak ma, jakby pan miał podwładnych w swoim domu? Ma On winnicę, to jest powszechny Kościół. Ten, począwszy od sprawiedliwego Abla aż do ostatniego wybranego, który przy końcu świata się urodzi, tylu wydał świętych jakby winne latorośle.  
-  
-
-
-### Responsory7  
-R. A naszczepił był Pan Bóg Raj rozkoszy od początku:  
-* W którym postanowił człowieka, którego utworzył.  
-V. I wywiódł Pan Bóg z ziemie wszelkie drzewo piękne ku widzeniu i ku jedzeniu smaczne: drzewo téż żywota w pośród Raju.  
-R. W którym postanowił człowieka, którego utworzył.  
   
 
 
@@ -2724,45 +1364,9 @@ R. Jako woń kadzidła przed obliczem Twoim.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 2:1-6*  
-1 Dokończone są tedy niebiosa i ziemia, i wszystko ochędóstwo ich.  
-2 I dokonał Bóg w dzień siódmy dzieła swego, które uczynił: i odpoczął w dzień siódmy od wszelkiego dzieła, które sprawił.  
-3 I błogosławił dniowi siódmemu i poświęcił go: iż weń odpoczął od wszelkiego dzieła swego, które stworzył Bóg, aby uczynił.  
-4 Te są zrodzenia nieba i ziemie, gdy były stworzone w dzień, którego uczynił Pan Bóg niebo i ziemię.  
-5 Wszelką różczkę polną niż weszła na ziemi, i wszelkie ziele krainy niźli wyniknęło: Nie spuścił bowiem był Pan Bóg dżdża na ziemię, i człowieka nie było, któryby sprawował ziemię.  
-6 Ale zdrój wynikał z ziemie, oblewający wszystek wiérzch ziemie.  
-  
-
-
-### Lectio3  
-*Rdz 2:7-10*  
-7 Utworzył tedy Pan Bóg człowieka z mułu ziemie, i natchnął w oblicze jego dech żywota: i stał się człowiek w duszę żywiącą.  
-8 A naszczepił był Pan Bóg Raj rozkoszy od początku, w którym postanowił człowieka, którego utworzył.  
-9 I wywiódł Pan Bóg z ziemie wszelkie drzewo piękne ku widzeniu i ku jedzeniu smaczne: drzewo téż żywota w pośród Raju, i drzewo wiadomości dobrego i złego.  
-10 A rzeka wychodziła z miejsca rozkoszy na oblewanie Raju, która się ztamtąd dzieliła na cztery główne rzeki.  
-  
-
-
 ### Ant 3  
 Ci ostatni * tylko jedną godzine pracowali, a uczyniłeś ich równymi nam, którzyśmy znosili ciężar dnia i upału.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 2:19-20*  
-19 Utworzywszy tedy Pan Bóg z ziemie wszelkie zwierzęta ziemne, i wszelkie ptastwo powietrzne, przywiódł je do Adama; wszystko bowiem, co nazwał Adam duszę żywiącą, to jest imię jego.  
-20 I nazwał Adam imionmi ich wszystkie zwierzęta, i wszystko ptastwo powietrzne, i wszystkie bestye ziemne: lecz Adamowi nie najdował się pomocnik podobny jemu.  
-  
-
-
-### Lectio3  
-*Rdz 2:21-24*  
-21 Przepuścił tedy Pan Bóg twardy sen na Adama: a gdy zasnął, wyjął jedno żebro z niego, i napełnił ciałem miasto niego.  
-22 I zbudował Pan Bóg z żebra, które wyjął z Adama, białągłowę, i przywiódł ją do Adama.  
-23 I rzekł Adam: To teraz kość z kości moich, i ciało z ciała mego: tę będą zwać Mężyną; bo z męża wzięta jest.  
-24 Przetóż opuści człowiek ojca swego i matkę, a przyłączy się do żony swéj, i będą dwoje w jednem ciele.  
-  
 
 
 ### Ant 3  
@@ -2770,95 +1374,15 @@ Powiedział zaś gospodarz: * Przyjacielu, nie wyrządzam ci krzywdy: czyżeś s
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 3:7-13*  
-7 A gdy poznali, że byli nagimi, pozszywali liście figowe, i poczynili sobie zasłony.  
-8 A gdy usłyszeli głos Pana Boga przechodzącego się po raju na wiatrku z południa, skrył się Adam i żona jego od oblicza Pana Boga między drzewa rajskie.  
-9 I zawołał Pan Bóg Adama, i rzekł mu: Gdzieżeś?  
-10 Który odpowiedział: Usłyszałem twój głos w raju, i zlękłem się, przeto, żem jest nagi, i skryłem się.  
-11 Któremu rzekł: A któż ci pokazał, żeś jest nagim, jedno żeś jadł z drzewa, z któregom ci rozkazał abyś nie jadł?  
-12 I rzekł Adam: Niewiasta, którąś mi dał za towarzyszkę, dała mi z drzewa, i jadłem.  
-13 I rzekł Pan Bóg do niewiasty: Czemuś to uczyniła? Która odpowiedziała: Wąż mię zwiódł, i jadłam.  
-  
-
-
-### Lectio3  
-*Rdz 3:14-20*  
-14 I rzekł Pan Bóg do węża: Iżeś to uczynił, przeklętyś jest między wszystkiemi zwierzęty i bestyami ziemskiemi: na piersiach twoich czołgać się będziesz, a ziemię jeść będziesz po wszystkie dni żywota twego.  
-15 Położę nieprzyjaźń między tobą, a między niewiastą: i między nasieniem twem, a nasieniem jéj: ona zetrze głowę twoję, a ty czyhać będziesz na piętę jéj.  
-16 Do niewiasty téż rzekł: Rozmnożę nędze twoje, i poczęcia twoje: z boleścią rodzić będziesz dziatki i pod mocą będziesz mężową, a on będzie panował nad tobą.  
-17 Adamowi zaś rzekł: Iżeś usłuchał głosu żony twojéj, i jadłeś z drzewa, z któregom ci był kazał, abyś nie jadł: przeklęta będzie ziemia w dziele twoim: w pracach jeść z niéj będziesz po wszystkie dni żywota twego.  
-18 Ciernie i osty rodzić ci będzie, a ziele będziesz jadł ziemie.  
-19 W pocie oblicza twego będziesz pożywał chleba, aż się wrócisz do ziemie, z któréjeś wzięty; boś jest proch, i w proch się obrócisz.  
-20 I nazwał Adam imię żony swéj Hewa, iż ona była matką wszech żywiących.  
-  
-
-
 ### Ant 3  
 Weźmij co twoje, * a idź; bo ja jestem dobry, mówi Pan.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 4:8-12*  
-8 I rzekł Kain do Abela brata swego: Wynidźmy na pole. A gdy byli na polu, powstał Kain na Abela brata swego, i zabił go.  
-9 I rzekł Pan do Kaina: Gdzie jest Abel brat twój? Który odpowiedział: Niewiem: Zalim ja jest stróżem brata mego?  
-10 I rzekł do niego: Coś uczynił? głos krwie brata twego woła do mnie z ziemie.  
-11 Teraz tedy będziesz przeklętym na ziemi, która otworzyła gębę swą, i przyjęła krew brata twego z ręki twojéj.  
-12 Gdy ją sprawować będziesz, nie da tobie użytków swoich: tułaczem i zbiegiem będziesz na ziemi.  
-  
-
-
-### Lectio3  
-*Rdz 4:13-16*  
-13 I rzekł Kain do Pana: Większa jest nieprawość moja, niżbym miał odpuszczenia być godzien.  
-14 Oto mię dziś wyganiasz od oblicza ziemie, i skryję się przed obliczem twojem, i będę tułaczem i zbiegiem na ziemi: każdy tedy, który mię najdzie, zabije mię.  
-15 I rzekł mu Pan: Żadną miarą tak nie będzie: ale każdy, ktoby zabił Kaina, siedmiorako będzie karan. I włożył Pan na Kaina znamię, aby go nie zabijał wszelki, któryby go nalazł.  
-16 I wyszedłszy Kain od oblicza Pańskiego, mieszkał wygnańcem na ziemi ku wschodowéj części Eden.  
-  
-
-
 ### Ant 3  
 Czyliż mi nie wolno * uczynić co chcę? i czyż złym patrzysz okiem? bo ja jestem dobry, mówi Pan.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 4:23-26*  
-23 I rzekł Lamech żonom swym, Adzie i Selli: Słuchajcie głosu mego, żony Lamechowe, posłuchajcie mowy mojéj: żeciem zabił męża na ranę moję, i młodzieniaszka na siność moję:  
-24 Siedmioraka pomsta będzie z Kaina, a z Lamecha siedmdziesiąt siedm kroć.  
-25 Poznał téż jeszcze Adam żonę swoję, i porodziła syna, i nazwała imię jego Seth, mówiąc: Położył mi Bóg plemię inne miasto Abela, którego zabił Kain.  
-26 Ale i Sethowi narodził się syn, którego nazwał Enos: ten począł wzywać imienia Pańskiego.  
-  
-
-
-### Lectio3  
-*Rdz 5:1-5*  
-1 Te są księgi rodzaju Adamowego, w dzień, którego stworzył Bóg człowieka; na podobieństwo Boże uczynił go.  
-2 Mężczyznę i niewiastę stworzył je, i błogosławił im: i nazwał imię ich Adam, w dzień którego są stworzeni.  
-3 I żył Adam sto i trzydzieści lat, i zrodził na wyobrażenie i podobieństwo swoje: i nazwał imię jego Seth.  
-4 I stało się dni Adamowych potem, jako zrodził Setha, ośm set lat: i zrodził syny i córki.  
-5 I stał się wszystek czas, którego żył Adam, lat dziewięć set trzydzieści: i umarł.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 5:22-27*  
-22 I chodził Henoch z Bogiem, i żył potem, jako zrodził Mathusalę, trzy sta lat, i zrodził syny i córki.  
-23 I stały się wszystkie dni Henochowe trzy sta sześćdziesiąt pięć lat.  
-24 I chodził z Bogiem, i nie było go widać; bo go wziął Bóg.  
-25 Żył Mathusala sto ośmdziesiąt siedm lat, i zrodził Lamecha.  
-26 I żył Mathusala potem, jako zrodził Lamecha, siedm set ośmdziesiąt dwa lata, i zrodził syny i córki.  
-27 I stały się wszystkie dni Mathusale, dziewięć set sześćdziesiąt dziewięć lat: i umarł.  
-  
-
-
-### Lectio3  
-*Rdz 5:28-31*  
-28 Lamech zaś żył sto ośmdziesiąt dwa lata i zrodził syna.  
-29 I nazwał imię jego Noe, mówiąc: Ten nas pocieszy z prac i robót rąk naszych, na ziemi, którą Pan przeklnął.  
-30 I żył Lamech potem, jako zrodził Noego, pięć set dziewięćdziesiąt pięć lat, i zrodził syny i córki.  
-31 I stały się wszystkie dni Lamechowe siedm set siedmdziesiąt siedm lat: i umarł.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
@@ -2886,51 +1410,6 @@ Przez Pana.
   
 
 
-### Responsory1  
-R. Rzekł do Noego: Koniec wszelkiemu ciału przyszedł przedemną: napełniona jest ziemia nieprawością od oblicza ich:  
-* A ja wytracę ich z ziemi.  
-V. Uczyń sobie korab z drzewa heblowanego: mieszkaniczka w nim poczynisz.  
-R. A ja wytracę ich z ziemi.  
-  
-
-
-### Lectio2  
-*Rdz 6:5-8*  
-5 A widząc Bóg, że wiele było złości ludzkiéj na ziemi, a wszystka myśl serca była napięta ku złemu po wszystek czas:  
-6 Żal mu było, że uczynił człowieka na ziemi: i ruszony serdeczną boleścią wewnątrz rzekł:  
-7 Wygładzę człowieka, któregom stworzył z obliczności ziemie: od człowieka aż do zwierząt: od ziemopłazu aż do ptastwa powietrznego; bo mi żal, żem je uczynił.  
-8 Noe zaś nalazł łaskę przed Panem.  
-  
-
-
-### Lectio3  
-*Rdz 6:9-15*  
-9 Noego rodzaje te są. Noe mąż sprawiedliwy i doskonały był w rodzajach swoich, z Bogiem chodził.  
-10 I zrodził trzech synów, Sema, Chama, i Japhetha.  
-11 Ale ziemia skaziła się przed Bogiem, i napełniła się nieprawością.  
-12 A gdy ujrzał Bóg ziemię być skażoną; (bo wszelkie ciało popsowało było drogę swą na ziemi):  
-13 Rzekł do Noego: Koniec wszelkiemu ciału przyszedł przedemną: napełniona jest ziemia nieprawością od oblicza ich: a ja wytracę je z ziemią.  
-14 Uczyń sobie korab z drzewa heblowanego: mieszkaniczka w nim poczynisz, i namażesz klijem wewnątrz i zewnątrz.  
-15 A uczynisz go tak: Trzysta łokci będzie długość korabia, pięćdziesiąt łokci szerokość, a trzydzieści łokci wysokość jego.  
-  
-
-
-### Responsory4  
-R. Zbudował Noe ołtarz Panu: ofiarował na nim całopalenia: zawoniał Pan wonność wdzięczności i błogosławił mu mówiąc:  
-* Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-V. Oto ja postanowię przymierze moje z wami i z nasieniem waszem po was.  
-R. Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-  
-
-
-### Responsory5  
-R. Łuk mój położę na obłokach, powiedział Pan do Noego:  
-* I wspomnię na przymierze moje z wami.  
-V. A gdy okryję obłokami niebo, ukaże się łuk mój na obłokach.  
-R. I wspomnię na przymierze moje z wami.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Łukasza  
 *Łk 8:4-15*  
@@ -2939,22 +1418,6 @@ Onego czasu: Gdy zgromadziła się rzesza wielka i z miast zdążali do Jezusa, 
 Homilia świętego Grzegorza, Papieża  
 *Homilia 15. na Ewangelię*  
 Czytanie świętej Ewangelii, którą, najdrożsi bracia, teraz słyszeliście, nie wymaga wykładu, lecz napomnienia. O tym, co sama Prawda wyjaśniła, słabość ludzka rozprawiać się nie odważa. Jednakże jest coś w tym wykładzie Pana, nad czym pilnie winniście się zastanowić: gdybyśmy bowiem wam tłumaczyli, iż ziarnem jest słowo, polem – świat, ptakami – szatani, cierniami – bogactwa, to może by wasz umysł nie chciał nam uwierzyć. Toteż Pan zechciał wyjaśnić to, co powiedział, abyście umieli szukać znaczenia i tych rzeczy, których sam nie chciał wyjaśnić.  
-  
-
-
-### Responsory7  
-R. Błogosławił Bóg Noego i syny jego, i rzekł do nich:  
-* Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-V. Oto ja postanowię przymierze moje z wami i z nasieniem waszem po was.  
-R. Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-  
-
-
-### Responsory8  
-R. Oto ja postanowię przymierze moje z wami i z nasieniem waszem po was:  
-* Więcej nie będzie potop pustoszący ziemię.  
-V. Łuk mój położę na obłokach, i będzie znakiem przymierza między mną a między ziemią.  
-R. Więcej nie będzie potop pustoszący ziemię.  
   
 
 
@@ -3049,45 +1512,9 @@ R. Jako woń kadzidła przed obliczem Twoim.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 7:5; 7:10-12*  
-5 Uczynił tedy Noe wszystko, co mu Pan kazał.  
-10 A gdy minęło siedm dni, wody potopu wylały po ziemi.  
-11 Roku sześćsetnego żywota Noego, miesiąca wtórego, siedmnastego dnia miesiąca, przerwały się wszystkie źródła przepaści wielkiéj, i upusty niebieskie otworzone są.  
-12 I spadł deszcz na ziemię czterdzieści dni i czterdzieści nocy.  
-  
-
-
-### Lectio3  
-*Rdz 7:13-14; 7:17*  
-13 Onegoż dnia wszedł Noe, i Sem i Cham i Japhet, synowie jego, żona jego, i trzy żony synów jego z nimi do korabia:  
-14 Sami i wszelki zwierz według rodzaju swego, i wszystko bydło według rodzaju swego, i wszystko, co płaza po ziemi, według rodzaju swego, i wszystko latające według rodzaju swego, i wszyscy ptacy i wszystko, co ma skrzydła,  
-17 I stał się potop przez czterdzieści dni na ziemi: i wezbrały wody, i podniosły korab wysoko od ziemie.  
-  
-
-
 ### Ant 3  
 Jeśli szczytu * prawdziwej czci szukacie, do niebieskiej ojczyzny pospieszajcie.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 8:5-9*  
-5 Lecz wody schodziły i opadały aż do dziesiątego miesiąca; dziesiątego bowiem miesiąca, pierwszego dnia miesiąca, okazały się wierzchy gór.  
-6 A gdy minęło czterdzieści dni, otworzywszy Noe okno korabia, które był uczynił, wypuścił kruka:  
-7 Który wychodził a nie wracał się, aż oschły wody na ziemi.  
-8 Wypuścił téż gołębicę za nim, aby poznał, jeźli już ustały wody na ziemi.  
-9 Która nie nalazłszy, gdzieby odpoczęła noga jej, wróciła się k niemu do korabia.  
-  
-
-
-### Lectio3  
-*Rdz 8:10-13*  
-10 A poczekawszy jeszcze siedm dni drugie, powtóre wypuścił gołębicę z korabia.  
-11 A ona przyleciała do niego pod wieczór, niosąc gałązkę oliwy z zielonem liściem w gębie swojéj: a tak poznał Noe, że przestały wody na ziemi.  
-12 I poczekał przecię jeszcze siedm dni drugich: i wypuścił gołębicę, która się nie wróciła więcéj do niego.  
-13 A tak sześćsetnego pierwszego roku, pierwszego miesiąca, pierwszego dnia miesiąca, opadły wody na ziemi.  
-  
 
 
 ### Ant 3  
@@ -3095,90 +1522,11 @@ Ziarnem jest * słowo Boże, siewcą zaś Chrystus: każdy, który go znajdzie, 
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 8:20-22*  
-20 I zbudował Noe ołtarz Panu: a wziąwszy z każdego bydła i ptastwa czystego, ofiarował całopalenia na ołtarzu.  
-21 I zawoniał Pan wonność wdzięczności i rzekł: Żadną miarą więcéj nie będę przeklinał ziemie dla ludzi; zmysł bowiem i myśl serca człowieczego skłonne są do złego od młodzieństwa swego: przetóż téż nie pobiję więcéj wszystkiéj dusze żyjącéj, jakom uczynił.  
-22 Po wszystkie dni ziemie siew i żniwo, zimno i gorąco, lato i zima, noc i dzień nie ustaną.  
-  
-
-
-### Lectio3  
-*Rdz 9:1-6*  
-1 I błogosławił Bóg Noego i syny jego, i rzekł do nich: Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-2 A strach wasz i drżenie niechaj będzie nad wszelkiem zwierzęciem ziemnem, i nadewszem ptastwem powietrznem, ze wszystkiemi, które się ruszają na ziemi: wszystkie ryby morskie ręce waszéj podane są.  
-3 A wszystko, co się rusza i żywie, będzie wam na pokarm: jako jarzyny zielone dałem wam wszystko.  
-4 Wyjąwszy że mięsa ze krwią jeść nie będziecie.  
-5 Albowiem krwie dusz waszych będę szukał z ręki wszelkich bestyi: i z ręki człowieczéj, z ręki męża i brata jego będę szukał dusze człowieczéj.  
-6 Ktobykolwiek wylał krew człowieczą, będzie wylana krew jego; bo na obraz Boży uczynion jest człowiek.  
-  
-
-
 ### Ant 3  
 A które upadną * na ziemię dobrą, ci są, którzy dobrem a wybornem sercem usłyszawszy, owoc przynoszą w cierpliwości.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 9:20-23*  
-20 I począł Noe, mąż oracz sprawować ziemię, i nasadził winnicę.  
-21 I pijąc wino upił się, i obnażył się w namiecie swoim.  
-22 Co ujrzawszy Cham, ojciec Chanaan, to jest, że łono ojca jego odkryte było, powiedział to dwiema braci swéj na dworze.  
-23 Sem tedy i Japhet włożyli płaszcz na ramiona swoje, a idąc nawstecz zakryli łono ojca swego: a oblicza ich były odwrócone, i ojcowskiego łona nie widzieli.  
-  
-
-
-### Lectio3  
-*Rdz 9:24-29*  
-24 A ocuciwszy się Noe z wina, gdy się dowiedział, co mu uczynił syn jego młodszy,  
-25 Rzekł: przeklęty Chanaan, niewolnik niewolników będzie braci swéj.  
-26 I rzekł: Błogosławiony Pan Bóg Semów, niech Chanaan niewolnikiem jego będzie.  
-27 Niech rozszerzy Bóg Japheta, i niech mieszka w namieciech Semowych: a Chanaan niech będzie niewolnikiem jego.  
-28 I żył Noe po potopie trzy sta i pięćdziesiąt lat.  
-29 I wypełniły się wszystkie dni jego, dziewięć set i pięćdziesiąt lat, i umarł.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 11:1-4*  
-1 A ziemia była jednego języka i téjże mowy.  
-2 I gdy szli od wschodu słońca, naleźli pole na ziemi Sennaar, i mieszkali na niem.  
-3 I rzekli, jeden do bliskiego swego: Pójdźcie, naczyńmy cegieł i wypalmy ją ogniem. I mieli cegłę miasto kamienia, a ił kliowaty miasto wapna.  
-4 I rzekli: Pójdźcie, zbudujmy sobie miasto i wieżę, któréjby wierzch dosięgał do nieba: a uczyńmy sławne imię nasze, pierwéj niźli się rozproszymy po wszystkich ziemiach.  
-  
-
-
-### Lectio3  
-*Rdz 11:5-8*  
-5 I zstąpił Pan, aby oglądał miasto i wieżę, którą budowali synowie Adamowi:  
-6 I rzekł: Oto jeden jest lud, i jeden język wszystkim: a poczęli to czynić, i nie przestaną od myśli swych, aż je skutkiem wypełnią.  
-7 Przeto pójdźcie, zstąpmy, a pomięszajmy tam język ich, aby nie słyszał żaden głosu bliźniego swego.  
-8 I tak rozproszył je Pan z onego miejsca po wszystkich ziemiach, i przestali budować miasta.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 11:16-23*  
-16 A Heber żył trzydzieści i cztery lata, i zrodził Phalega.  
-17 I żył Heber, zrodziwszy Phalega, cztery sta i trzydzieści lat, i zrodził syny i córki.  
-18 Żył téż Phaleg trzydzieści lat, i zrodził Rewa:  
-19 I żył Phaleg, zrodziwszy Rewa, dwieście i dziewięć lat, i zrodził syny i córki.  
-20 Rew zasię żył trzydzieści i dwie lecie, i zrodził Saruga.  
-21 I żył Rew, zrodziwszy Saruga dwieście i siedm lat, i zrodził syny i córki.  
-22 Sarug lepak żył trzydzieści lat, i zrodził Nachora.  
-23 I żył Sarug, zrodziwszy Nachora, dwieście lat, i zrodził syny i córki.  
-  
-
-
-### Lectio3  
-*Rdz 11:24-30*  
-24 Nachor zasię żył dwadzieścia i dziewięć lat, i zrodził Tharego.  
-25 I żył Nachor, zrodziwszy Tharego, sto i dziewiętnaście lat, i zrodził syny i córki.  
-26 I żył Thare siedmdziesiąt lat, i zrodził Abrama, i Nachora, i Arana.  
-27 A Tharego rodzaje są te: Thare zrodził Abrama, Nachora, i Arana. Aran zaś zrodził Lota.  
-28 I umarł Aran przed Tharem, ojcem swoim, w ziemi narodzenia swego, w Ur Chaldejczyków.  
-29 I pojęli Abram i Nachor żony: imię żony Abramowéj Sarai, a imię żony Nachorowéj Melcha, córka Arana, ojca Melchy i ojca Jeschy.  
-30 A była Sarai niepłodną, i nie miała dzieci.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
@@ -3211,81 +1559,6 @@ Uprzedźmy oblicze Pana: * a psalmami śpiewajmy mu.
   
 
 
-### Responsory1  
-R. Mówił Pan do Abrahama: Wynidź z ziemie twojéj, i od rodziny twojéj, a idź do ziemie, którąć ukażę.  
-* A uczynię cię narodem wielkim.  
-V. Będę błogosławił błogosławiącym tobie, i uwielbię imię twoje, i będziesz błogosławiony.  
-R. A uczynię cię narodem wielkim.  
-  
-
-
-### Lectio2  
-*Rdz 12:7-13*  
-7 I ukazał się Pan Abramowi, i rzekł mu: Nasieniu twemu dam ziemię tę; który zbudował tam ołtarz Panu, który mu się był ukazał.  
-8 A z tamtąd przeszedł do góry, która była ku wschodowi Bethel: rozbił tam namiot swój, mając od zachodu Bethel, a od wschodu Haj, i zbudował téż tam ołtarz Panu, i wzywał imię jego.  
-9 I ciągnął Abram idąc i daléj postępując ku południu.  
-10 Stał się potem głód w ziemi, i stąpił Abram do Egiptu, aby tam gościem był; ciężki bowiem był głód w ziemi.  
-11 A gdy już blisko był, aby wszedł do Egiptu, rzekł do Sarai żony swéj: Wiem, żeś piękna niewiasta:  
-12 A iż, gdy cię ujrzą Egiptyanie, rzeką: żona to jego: i zabiją mię, a ciebie zachowają.  
-13 Mów przeto, proszę cię, żeś jest siostra moja: aby mi było dobrze dla ciebie, i dusza moja aby żyła dla ciebie.  
-  
-
-
-### Responsory2  
-R. Gdy Abraham stał pod dębem Mamre, dostrzegł trzech mężów idących drogą.  
-* Trzech ujrzał, a Jednemu oddał pokłon.  
-V. Oto Sara, twoja żona, urodzi ci syna, i nazwiesz imię jego Izaak.  
-R. Trzech ujrzał, a Jednemu oddał pokłon.  
-  
-
-
-### Lectio3  
-*Rdz 12:14-19*  
-14 Gdy tedy wszedł Abram do Egiptu, ujrzeli Egiptyanie niewiastę, że była bardzo piękna.  
-15 I dały znać Książęta Pharaonowi, i chwalili ją przed nim: i wzięto niewiastę do domu Pharaonowego.  
-16 A Abramowi czynili dobrze dla niéj: i miał owce, i woły, i osły, i niewolniki, i niewolnice, i oślice, i wielbłądy.  
-17 Ale Pan skarał Pharaona plagami wielkiemi, i dom jego, dla Sarai żony Abramowéj.  
-18 I zawołał Pharao Abrama, i rzekł mu: Cóż wżdy to jest, coś mi uczynił? Czemuś mi nie oznajmił, że to żona twoja?  
-19 Czemuś powiedział, że jest siostra twoja, abym ją wziął sobie za żonę? Ale teraz oto żona twoja, weźmijż ją, a idź.  
-  
-
-
-### Responsory3  
-R. Pan wystawił Abrahama na próbę i rzekł do niego:  
-* Weź twego syna, którego miłujesz, Izaaka, i złóż go w ofierze całopalnej na jednej z gór, jaką ci wskażę.  
-V. A on, wezwany przez Pana, odpowiedział: Oto jestem; Pan zaś rzekł do niego:  
-R. Weź twego syna, którego miłujesz, Izaaka, i złóż go w ofierze całopalnej na jednej z gór, jaką ci wskażę.  
-Chwała Ojcu.  
-R. Weź twego syna, którego miłujesz, Izaaka, i złóż go w ofierze całopalnej na jednej z gór, jaką ci wskażę.  
-  
-
-
-### Responsory4  
-R. Anioł Pański zawołał na Abrahama i rzekł:  
-* Nie podnoś ręki swej na syna, ponieważ boisz się Pana.  
-V. A gdy Abraham wyciągnął rękę, aby złożyć w ofierze swego syna, oto Anioł Pański zawołał na niego z nieba, mówiąc: Nie.  
-R. Nie podnoś ręki swej na syna, ponieważ boisz się Pana.  
-  
-
-
-### Responsory5  
-R. Anioł Pański zawołał z nieba do Abrahama po raz drugi, mówiąc : Będę ci błogosławił  
-* I rozmnożę cię szczodrze jak gwiazdy na niebie.  
-V. Potomkowie twoi zdobędą bramy twoich nieprzyjaciół; a w twoim potomstwie będą błogosławione wszystkie ludy ziemi.  
-R. I rozmnożę cię szczodrze jak gwiazdy na niebie.  
-  
-
-
-### Responsory6  
-R. Boże pana mego, Abrahama, prostuj moją drogę,  
-* Abym szczęśliwie powrócił do domu mego pana.  
-V. Proszę, Panie, bądź łaskaw dla swego sługi.  
-R. Abym szczęśliwie powrócił do domu mego pana.  
-Chwała Ojcu.  
-R. Abym szczęśliwie powrócił do domu mego pana.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Łukasza  
 *Łk 18:31-43*  
@@ -3294,22 +1567,6 @@ Onego czasu: Jezus, wziąwszy z sobą dwunastu, mówił do nich: „Oto idziemy 
 Homilia świętego Grzegorza, Papieża  
 *Homilia 2. na Ewangelię*  
 Nasz Odkupiciel, wiedząc naprzód, iż Jego męka wprowadzi w zamieszanie ducha Jego uczniów, na długo przedtem zapowiedział im trud swej męki i chwałę swego zmartwychwstania, aby widząc przepowiedzianą Jego śmierć, nie mieli wątpliwości, iż ujrzą Go również zmartwychwstałego. Ponieważ jednak jeszcze cieleśnie nastawieni uczniowie w żaden sposób nie mogli pojąć słów tajemnicy, Jezus uczynił cud. Na ich oczach niewidomy odzyskuje wzrok, aby ci, którzy nie rozumieli słów niebiańskiej tajemnicy, zostali umocnieni w swej wierze przez niebiańskie czyny.  
-  
-
-
-### Responsory7  
-R. Przyszedłem dzisiaj do źródła i modliłem się do Pana, mówiąc:  
-* Panie, Boże Abrahama, Ty spełniłeś moją prośbę.  
-V. Niechaj dziewczyna, której powiem: Daj mi wody z dzbana, abym się napił: a ona mi odpowie: Pij, panie, a i wielbłądy twe napoję; będzie tą, którą przeznaczył Pan dla syna pana mojego.  
-R. Panie, Boże Abrahama, Ty spełniłeś moją prośbę.  
-  
-
-
-### Responsory8  
-R. Pan powiedział do Abrama, mówiąc:  
-* Nie obawiaj się, Abramie, bo Ja jestem twoim obrońcą; nagroda twoja będzie sowita.  
-V. Albowiem Ja jestem Pan, Bóg twój, który ciebie wywiodłem z Ur chaldejskiego.  
-R. Nie obawiaj się, Abramie, bo Ja jestem twoim obrońcą; nagroda twoja będzie sowita.  
   
 
 
@@ -3404,71 +1661,14 @@ R. Jako woń kadzidła przed obliczem Twoim.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Ruszywszy tedy namiot swój, Abram przyszedł i mieszkał przy dolinie Mambre:  
-* I zbudował tam ołtarz Panu.  
-V. I rzekł Pan do niego: Podnieś oczy swoje, i pojrzyj: wszystkę ziemię, którą widzisz, tobie dam i nasieniu twemu aż na wieki.  
-R. I zbudował tam ołtarz Panu.  
-  
-
-
-### Lectio2  
-*Rdz 13:7-11*  
-7 Zkąd téż był swar między pasterzmi bydła Abramowego i Lotowego. A na on czas Chananejczyk i Pherezejczyk mieszkali w onéj ziemi.  
-8 Rzekł tedy Abram do Lota: Niech proszę nie będzie swaru między mną a tobą, i między pasterzmi mymi, a pasterzmi twymi: ponieważ bracia jesteśmy.  
-9 Oto wszystka ziemia jest przed tobą: odejdź odemnie proszę: jeźli w lewo pójdziesz, ja się udam w prawo: jeźli w prawo obierzesz, ja w lewo pójdę.  
-10 Podniósłszy tedy Lot oczy swe, ujrzał wszystkę wokół krainę Jordanu, która wszystka polewana była przed tem, niż Pan zatracił Sodomę i Gomorrę, jako Raj Pański, i jako Egipt idącym do Segora.  
-11 I obrał sobie Lot krainę nad Jordanem, i odszedł ze wschodu słońca.  
-  
-
-
-### Lectio3  
-*Rdz 13:11-16*  
-11 I odłączyli się bracia jeden od drugiego.  
-12 Abram mieszkał w ziemi Chananejskiéj: a Lot przebywał w mieściech, które były nad Jordanem i mieszkał w Sodomie.  
-13 A ludzie Sodomscy byli bardzo źli, i zbytnie grzesznicy przed Panem.  
-14 I rzekł Pan do Abrama, gdy się już był Lot odłączył od niego: Podnieś oczy twoje, i pojrzyj z miejsca, na któremeś teraz, na północy i na południe, na wschód i na zachód.  
-15 Wszystkę ziemię, którą widzisz, tobie dam i nasieniu twemu aż na wieki.  
-16 I uczynię nasienie twoje jako proch ziemie.  
-  
-
-
 ### Ant 3  
 A którzy szli wprzód, * fukali nań, aby milczał: lecz on tem więcéj wołał: Zmiłuj się nademną, Synu Dawidów.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 14:13-16*  
-13 A oto jeden, który był uszedł, oznajmił Abramowi Hebreowi, który mieszkał w dolinie Mambrego Amorrejczyka, brata Eschol, i brata Aner; ci bowiem uczynili byli przymierze z Abramem.  
-14 Co usłyszawszy Abram, to jest, iż poiman Lot, brat jego, zebrał gotowych domowych sług swoich trzy sta i ośmnaście: i pogon uczynił aż do Dan.  
-15 A rozdzieliwszy towarzysze, przypadł na nie w nocy: i poraził je, i gonił je aż do Hoby, która jest po lewéj stronie Damaszku.  
-16 I przywrócił nazad wszystkę majętność, i Lota brata swego z majętnością jego, i niewiasty i lud.  
-  
-
-
-### Lectio3  
-*Rdz 14:17-20*  
-17 I wyjechał król Sodomski przeciw jemu, gdy się wracał od porażki Chodorlahomora, i królów, którzy z nim byli w dolinie Sawe, która jest dolina królewska.  
-18 Ali Melchisedech, król Salem wyniósłszy chléb i wino; bo był kapłanem Boga najwyższego,  
-19 Błogosławił mu i rzekł: Błogosławiony Abram Bogu wysokiemu, który stworzył niebo i ziemię:  
-20 I błogosławiony Bóg wysoki, którego obroną nieprzyjaciele są w rękach twoich. I dał mu dziesięciny ze wszystkiego.  
-  
-
-
 ### Ant 3  
 Zmiłuj się nademną, * Synu Dawidów. Co chcesz, abym ci uczynił? Panie, abych przejrzał.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Kto przeto wyróżnia się nieumiarkowaną dbałością o ciało i odzienie albo zbytkownością w pozostałych rzeczach, ten łatwo może być uznany za zwolennika światowego przepychu i nikogo nie zwiedzie podstępnym obrazem świętości. Kto natomiast w wyznawaniu chrześcijaństwa zwraca na siebie oczy ludzi niezwykłym niechlujstwem i brudem, czyniąc to dobrowolnie, a nie znosząc tego z konieczności, to na podstawie innych jego czynów można poznać, czy czyni to z pogardy dla zbytku, czy też z jakiejś ambicji. Dlatego Pan nakazał strzec się wilków pod owczą skórą. Powiedział: Po ich owocach poznacie ich.  
-  
-
-
-### Lectio3  
-Gdy bowiem z powodu jakichś prób zacznie im brakować tych rzeczy albo im tego odmówią, co pod tą pokrywką osiągnęli albo osiągnąć pragną, wtedy nieodparcie okaże się, czy są wilkami w owczej skórze, czy prawdziwymi owcami. Albowiem chrześcijanin nie powinien zbytnim strojem zwracać spojrzenia ludzi dlatego, że owego skromnego i koniecznego ubrania często także kłamcy używają, aby oszukać nieostrożnych. A więc i te chrześcijańskie owce nie powinny zdejmować z siebie swych skór, chociaż niekiedy okrywają się nimi wilki.  
-  
 
 
 ### Ant 2  
@@ -3496,24 +1696,6 @@ Skarbcie sobie * skarby w niebie, gdzie ani rdza, ani mól nie psuje.
 Wejrzyj, Panie, łaskawie na nas, korzących się przed Majestatem Twoim: aby tych, których Boskim darem posilasz, pomoc niebieska zawsze wzmacniała.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Panie, sługa mój leży w domu, powietrzem ruszony, i ciężko trapiony jest:  
-* Zaprawdę powiadam ci, ja przyjdę i uzdrowię go.  
-V. Panie, nie jestem godzien, abyś wszedł pod dach mój: ale tylko rzecz słowo, a będzie uzdrowiony sługa mój.  
-R. Zaprawdę powiadam ci, ja przyjdę i uzdrowię go.  
-  
-
-
-### Lectio2  
-Skoro więc sprawy tak się miały, to w jaki sposób może być prawdziwe to, co opisuje Mateusz, że: Przystąpił do Niego pewien setnik, skoro nie on sam przyszedł, lecz posłał przyjaciół? Otóż jeśli dokładniej się przyjrzymy, zrozumiemy, iż Mateusz nie całkiem odstąpił od zwyczajowego sposobu mówienia. „Przystąpić do czegoś” zwykło się bowiem mówić nie tylko bezpośrednio przed momentem dotarcia do celu, jaki miało się osiągnąć. Stąd też powiadamy: „ledwo przystąpił”, albo: „przystąpił bardzo blisko” do tego, ku czemu chciał dotrzeć. Skądinąd samo dotarcie, ze względu na które przystępujemy, często określa się jako już dokonane, gdy przez przyjaciela kierujemy się do kogoś, choć tego, do kogo przystępujemy i czyja łaska jest nam potrzebna, sami nie widzimy. Weszło to do tego stopnia w przyzwyczajenie, że już nawet pospolicie mówi się o tak zwanych „mających dojścia”. Są to ci, którzy dzięki zręcznym zabiegom i pośrednictwu odpowiednich osób mają przystęp do ludzi wielkich, a którzy wydają się nieosiągalni dla innych.  
-  
-
-
-### Lectio3  
-Niebezpodstawnie zatem Mateusz skrótowo mógł powiedzieć o przypadku zwrócenia się setnika do Pana poprzez innych, stwierdzając: Przystąpił do Niego setnik, co nawet pospolicie da się łatwo zrozumieć. Jednakże z uwagą należy się także przyjrzeć głębi mistycznego języka świętego Ewangelisty. Według tego języka napisano w psalmie: Przystąpcie do Niego, a zostaniecie oświeceni. Ponieważ sam Pan pochwalił wiarę setnika, przez którą rzeczywiście zwraca się do Jezusa, mówiąc: Nie znalazłem tak wielkiej wiary w Izraelu, dlatego z tego wynika, że to raczej ów setnik zwrócił się do Chrystusa, niżeli ci, przez których przekazał swoje słowa, i to właśnie chciał wyrazić roztropny Ewangelista.  
-  
 
 
 ### Versum 2  
@@ -3549,16 +1731,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Abyście byli synami Ojca waszego, który jest w niebiesiech. Skoro strzegąc Bożych przykazań, staje się ktoś synem Bożym, zatem nie jest synem z natury, lecz dzięki własnej woli. Gdy tedy dajesz jałmużnę, nie trąb przed sobą, jako czynią obłudnicy w synagogach i na ulicach, aby ich ludzie chwalili. Kto trąbi przed sobą, udzielając jałmużny, jest obłudnikiem. Kto, poszcząc, szpeci swoją twarz, aby już jego wygląd wskazywał na pusty brzuch, jest obłudnikiem. Kto modli się w synagogach i na rogach ulic, aby się ludziom pokazać – i ten jest obłudnikiem.  
-  
-
-
-### Lectio3  
-Wynika z tego wszystkiego, że obłudnikiem jest każdy, kto czyni cokolwiek, aby odebrać chwałę od ludzi. Zda mi się, że i ów, który zwraca się do swego brata w słowach: Dozwól, że wyjmę źdźbło z oka twego, mówi tak z próżnej chwały, aby się na zewnątrz okazać sprawiedliwym. Stąd też skierowane są do niego słowa Pana: Obłudniku, wyrzuć najpierw belkę z oka własnego. Zatem nie sam postępek, ale jego motywacja ma nagrodę u Boga. I jeśli zszedłeś nieco ze ścieżki słusznej, nie ma znaczenia, czy zboczyłeś na prawo czy na lewo, skoro drogę prawdziwą opuściłeś.  
-  
-
-
 ### Versum 2  
 V. Od rana pełni jesteśmy twego miłosierdzia.  
 R. Radujemy się i weselimy.  
@@ -3590,16 +1762,6 @@ Ale ty gdy się modlić będziesz, * wnidź do komory swojéj, a zawarłszy drzw
 Broń, Panie, ludu swego i od wszelkich grzechów oczyść go łaskawie: bo żadna przeciwność szkodzić mu nie będzie, gdy żadna nieprawość nie będzie w nim panowała.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Stąd bierze się głos Kościoła pogrążonego wśród fal i nawałnic napierających pokus. Stąd pochodzi jego błagalne wołanie, gdy szuka pomocy i ochrony: Dlaczego z dala stoisz, o Panie, odwracasz wzrok w czasie trudności i utrapienia? W dalszym ciągu tego psalmu znajduje swój wyraz również głos prześladującego nieprzyjaciela: Mówi on bowiem w sercu swoim: „Bóg nie pamięta, oblicze swe odwrócił, nigdy tego nie ujrzy”.  
-  
-
-
-### Lectio3  
-Jednakże Bóg nie zapomina modlitwy ubogich, ani nie odwraca swego oblicza od tych, którzy Mu ufają. Co więcej: wspomaga swoich wiernych, aby dać im zwycięstwo w walce z wrogami, a zwycięzców uwieńczyć chwałą wieczną. Dlatego też mówi się tu wyraźnie, że Jezus widział ich, jak pracowali wiosłami.  Albowiem Pan widzi pracujących na morzu, choć sam stoi na lądzie; bo gdyby nawet przez chwilę się zdawało, iż zwleka z udzieleniem wsparcia, to przecież, aby nie osłabli pośród utrapień, umacnia ich swym miłosiernym spojrzeniem.  Czasem również, pokonawszy przeciwności, sam uwalnia ich swą jawną pomocą, tak jak uspokoił wzburzone fale, depcąc je swymi stopami.  
-  
 
 
 ### Versum 2  
@@ -3672,86 +1834,6 @@ Uprzedźmy oblicze Pana: * A psalmami śpiewajmy mu.
   
 
 
-### Responsory1  
-R. Na początku stworzył Bóg niebo i ziemię, i stworzył człowieka.  
-* Na wyobrażenie podobieństwa swego.  
-V. Utworzył tedy Pan Bóg człowieka z mułu ziemie, i natchnął w oblicze jego dech żywota.  
-R. Na wyobrażenie podobieństwa swego.  
-  
-
-
-### Lectio2  
-*Rdz 1:9-19*  
-9 Potem rzekł Bóg: Niech się zbiorą wody, które są pod niebem, na jedno miejsce: a niech się ukaże sucha. I stało się tak.  
-10 I nazwał Bóg suchą, Ziemią: a zebranie wód przezwał Morzem. I widział Bóg, że było dobre.  
-11 I rzekł: Niech zrodzi ziemia ziele zielone, i dawające nasienie: i drzewo rodzajne, owoc czyniące według rodzaju swego, któregoby nasienie było w samym sobie na ziemi. I stało się tak.  
-12 I zrodziła ziemia ziele zielone, i dawające nasienie według rodzaju swego: i drzewo czyniące owoc, i mając każde z nich nasienie według rodzaju swego. I widział Bóg, że było dobre.  
-13 I stał się wieczór i zaranek, dzień trzeci.  
-14 I rzekł Bóg: Niech się staną światła na utwierdzeniu nieba, a niech dzielą dzień od nocy: i niech będą na znaki, i czasy, i dni i lata:  
-15 Aby świeciły na utwierdzeniu nieba, a oświecały ziemię. I stało się tak.  
-16 I uczynił Bóg dwa światła wielkie: światło większe, aby rządziło dzień, i światło mniejsze, aby rządziło noc: i gwiazdy.  
-17 I postawił je na utwierdzeniu nieba, aby świeciły nad ziemią:  
-18 Żeby rządziły dzień i noc, i dzieliły światłość od ciemności. I widział Bóg, iż było dobre.  
-19 I stał się wieczór i zaranek, dzień czwarty.  
-  
-
-
-### Responsory2  
-R. Na początku stworzył Bóg niebo i ziemię, a Duch Boży unaszał się nad wodami.  
-* I widział Bóg wszystkie rzeczy, które był uczynił: i były bardzo dobre.  
-V. Dokończone są tedy niebiosa i ziemia, i wszystko ochędóstwo ich.  
-R. I widział Bóg wszystkie rzeczy, które był uczynił: i były bardzo dobre.  
-  
-
-
-### Lectio3  
-*Rdz 1:20-26*  
-20 Rzekł téż Bóg: Niech wywiodą wody płaz dusze żywiącéj, i ptastwo nad ziemią pod utwierdzeniem nieba.  
-21 I stworzył Bóg wieloryby wielkie, i wszelką duszę żywiącą i ruszającą się, którą wywiodły wody według rodzaju ich: i wszelkie ptastwo według rodzaju jego. I widział Bóg, iż było dobre.  
-22 I błogosławił im, mówiąc:  Rośćcie, i mnóżcie się, i napełniajcie wody morskie: i ptastwo niech się mnoży na ziemi.  
-23 I stał się wieczór i zaranek, dzień piąty.  
-24 Rzekł téż Bóg: Niech zrodzi ziemia duszę żywiącą, według rodzaju swego: bydło, i płaz, i bestye ziemne, według rodzajów swoich. I stało się tak.  
-25 I uczynił Bóg bestye ziemne, według rodzajów ich, i bydło i wszelki ziemopłaz, według rodzaju swego. I widział Bóg, że było dobre.  
-26 I rzekł: Uczyńmy człowieka na wyobrażenie i na podobieństwo nasze: a niech przełożony będzie rybom morskim, i ptastwu powietrznemu, i bestyom, i wszystkiéj ziemi, i nad wszelkim płazem który się płaza po ziemi.  
-  
-
-
-### Responsory3  
-R. Utworzył tedy Pan Bóg człowieka z mułu ziemie.  
-* I natchnął w oblicze jego dech żywota: i stał się człowiek w duszę żywiącą.  
-V. Na początku stworzył Bóg niebo i ziemię, i ulepił człowieka.  
-R. I natchnął w oblicze jego dech żywota: i stał się człowiek w duszę żywiącą.  
-Chwała Ojcu.  
-R. I natchnął w oblicze jego dech żywota: i stał się człowiek w duszę żywiącą.  
-  
-
-
-### Responsory4  
-R. Wziął tedy Pan Bóg człowieka, i posadził go w Raju rozkoszy:  
-* Aby sprawował i strzégł go.  
-V. A naszczepił był Pan Bóg Raj rozkoszy od początku, w którym postanowił człowieka, którego utworzył.  
-R. Aby sprawował i strzégł go.  
-  
-
-
-### Responsory5  
-Rzekł Pan Bóg: Nie dobrze być człowiekowi samemu:  
-* Uczyńmy mu pomoc jemu podobną.  
-V. Lecz Adamowi nie najdował się pomocnik podobny jemu: rzekł Pan.  
-R. Uczyńmy mu pomoc jemu podobną.  
-  
-
-
-### Responsory6  
-R. Przepuścił tedy Pan Bóg twardy sen na Adama: wyjął jedno żebro z niego:  
-* I zbudował z żebra, które wyjął Pan z Adama, białągłowę, i przywiódł ją do Adama, by zobaczyć jak ją nazwie: i nazwał ją Mężyną; bo z męża wzięta jest.  
-V. Gdy zasnął, wyjął jedno żebro z niego, i napełnił ciałem miasto niego.  
-R. I zbudował z żebra, które wyjął Pan z Adama, białągłowę, i przywiódł ją do Adama, by zobaczyć jak ją nazwie:  
-Chwała Ojcu.  
-R. I nazwał ją Mężyną; bo z męża wzięta jest.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Mateusza  
 *Mt 20:1-6*  
@@ -3760,14 +1842,6 @@ Onego czasu: Rzekł Jezus uczniom swoim tę przypowieść: „Podobne jest Król
 Homilia świętego Grzegorza, Papieża  
 *Homilia 19. na Ewangelię, przy początku*  
 Królestwo Niebieskie nazywane jest podobnym do człowieka gospodarza, który najmuje robotników do uprawy swej winnicy. Któż zaś jest podobniejszy do tego gospodarza, niż nasz Stwórca, który rządzi tymi, których stworzył, i swych wybranych na tym świecie tak ma, jakby pan miał podwładnych w swoim domu? Ma On winnicę, to jest powszechny Kościół. Ten, począwszy od sprawiedliwego Abla aż do ostatniego wybranego, który przy końcu świata się urodzi, tylu wydał świętych jakby winne latorośle.  
-  
-
-
-### Responsory7  
-R. A naszczepił był Pan Bóg Raj rozkoszy od początku:  
-* W którym postanowił człowieka, którego utworzył.  
-V. I wywiódł Pan Bóg z ziemie wszelkie drzewo piękne ku widzeniu i ku jedzeniu smaczne: drzewo téż żywota w pośród Raju.  
-R. W którym postanowił człowieka, którego utworzył.  
   
 
 
@@ -3862,45 +1936,9 @@ R. Jako woń kadzidła przed obliczem Twoim.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 2:1-6*  
-1 Dokończone są tedy niebiosa i ziemia, i wszystko ochędóstwo ich.  
-2 I dokonał Bóg w dzień siódmy dzieła swego, które uczynił: i odpoczął w dzień siódmy od wszelkiego dzieła, które sprawił.  
-3 I błogosławił dniowi siódmemu i poświęcił go: iż weń odpoczął od wszelkiego dzieła swego, które stworzył Bóg, aby uczynił.  
-4 Te są zrodzenia nieba i ziemie, gdy były stworzone w dzień, którego uczynił Pan Bóg niebo i ziemię.  
-5 Wszelką różczkę polną niż weszła na ziemi, i wszelkie ziele krainy niźli wyniknęło: Nie spuścił bowiem był Pan Bóg dżdża na ziemię, i człowieka nie było, któryby sprawował ziemię.  
-6 Ale zdrój wynikał z ziemie, oblewający wszystek wiérzch ziemie.  
-  
-
-
-### Lectio3  
-*Rdz 2:7-10*  
-7 Utworzył tedy Pan Bóg człowieka z mułu ziemie, i natchnął w oblicze jego dech żywota: i stał się człowiek w duszę żywiącą.  
-8 A naszczepił był Pan Bóg Raj rozkoszy od początku, w którym postanowił człowieka, którego utworzył.  
-9 I wywiódł Pan Bóg z ziemie wszelkie drzewo piękne ku widzeniu i ku jedzeniu smaczne: drzewo téż żywota w pośród Raju, i drzewo wiadomości dobrego i złego.  
-10 A rzeka wychodziła z miejsca rozkoszy na oblewanie Raju, która się ztamtąd dzieliła na cztery główne rzeki.  
-  
-
-
 ### Ant 3  
 Ci ostatni * tylko jedną godzine pracowali, a uczyniłeś ich równymi nam, którzyśmy znosili ciężar dnia i upału.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 2:19-20*  
-19 Utworzywszy tedy Pan Bóg z ziemie wszelkie zwierzęta ziemne, i wszelkie ptastwo powietrzne, przywiódł je do Adama; wszystko bowiem, co nazwał Adam duszę żywiącą, to jest imię jego.  
-20 I nazwał Adam imionmi ich wszystkie zwierzęta, i wszystko ptastwo powietrzne, i wszystkie bestye ziemne: lecz Adamowi nie najdował się pomocnik podobny jemu.  
-  
-
-
-### Lectio3  
-*Rdz 2:21-24*  
-21 Przepuścił tedy Pan Bóg twardy sen na Adama: a gdy zasnął, wyjął jedno żebro z niego, i napełnił ciałem miasto niego.  
-22 I zbudował Pan Bóg z żebra, które wyjął z Adama, białągłowę, i przywiódł ją do Adama.  
-23 I rzekł Adam: To teraz kość z kości moich, i ciało z ciała mego: tę będą zwać Mężyną; bo z męża wzięta jest.  
-24 Przetóż opuści człowiek ojca swego i matkę, a przyłączy się do żony swéj, i będą dwoje w jednem ciele.  
-  
 
 
 ### Ant 3  
@@ -3908,95 +1946,15 @@ Powiedział zaś gospodarz: * Przyjacielu, nie wyrządzam ci krzywdy: czyżeś s
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 3:7-13*  
-7 A gdy poznali, że byli nagimi, pozszywali liście figowe, i poczynili sobie zasłony.  
-8 A gdy usłyszeli głos Pana Boga przechodzącego się po raju na wiatrku z południa, skrył się Adam i żona jego od oblicza Pana Boga między drzewa rajskie.  
-9 I zawołał Pan Bóg Adama, i rzekł mu: Gdzieżeś?  
-10 Który odpowiedział: Usłyszałem twój głos w raju, i zlękłem się, przeto, żem jest nagi, i skryłem się.  
-11 Któremu rzekł: A któż ci pokazał, żeś jest nagim, jedno żeś jadł z drzewa, z któregom ci rozkazał abyś nie jadł?  
-12 I rzekł Adam: Niewiasta, którąś mi dał za towarzyszkę, dała mi z drzewa, i jadłem.  
-13 I rzekł Pan Bóg do niewiasty: Czemuś to uczyniła? Która odpowiedziała: Wąż mię zwiódł, i jadłam.  
-  
-
-
-### Lectio3  
-*Rdz 3:14-20*  
-14 I rzekł Pan Bóg do węża: Iżeś to uczynił, przeklętyś jest między wszystkiemi zwierzęty i bestyami ziemskiemi: na piersiach twoich czołgać się będziesz, a ziemię jeść będziesz po wszystkie dni żywota twego.  
-15 Położę nieprzyjaźń między tobą, a między niewiastą: i między nasieniem twem, a nasieniem jéj: ona zetrze głowę twoję, a ty czyhać będziesz na piętę jéj.  
-16 Do niewiasty téż rzekł: Rozmnożę nędze twoje, i poczęcia twoje: z boleścią rodzić będziesz dziatki i pod mocą będziesz mężową, a on będzie panował nad tobą.  
-17 Adamowi zaś rzekł: Iżeś usłuchał głosu żony twojéj, i jadłeś z drzewa, z któregom ci był kazał, abyś nie jadł: przeklęta będzie ziemia w dziele twoim: w pracach jeść z niéj będziesz po wszystkie dni żywota twego.  
-18 Ciernie i osty rodzić ci będzie, a ziele będziesz jadł ziemie.  
-19 W pocie oblicza twego będziesz pożywał chleba, aż się wrócisz do ziemie, z któréjeś wzięty; boś jest proch, i w proch się obrócisz.  
-20 I nazwał Adam imię żony swéj Hewa, iż ona była matką wszech żywiących.  
-  
-
-
 ### Ant 3  
 Weźmij co twoje, * a idź; bo ja jestem dobry, mówi Pan.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 4:8-12*  
-8 I rzekł Kain do Abela brata swego: Wynidźmy na pole. A gdy byli na polu, powstał Kain na Abela brata swego, i zabił go.  
-9 I rzekł Pan do Kaina: Gdzie jest Abel brat twój? Który odpowiedział: Niewiem: Zalim ja jest stróżem brata mego?  
-10 I rzekł do niego: Coś uczynił? głos krwie brata twego woła do mnie z ziemie.  
-11 Teraz tedy będziesz przeklętym na ziemi, która otworzyła gębę swą, i przyjęła krew brata twego z ręki twojéj.  
-12 Gdy ją sprawować będziesz, nie da tobie użytków swoich: tułaczem i zbiegiem będziesz na ziemi.  
-  
-
-
-### Lectio3  
-*Rdz 4:13-16*  
-13 I rzekł Kain do Pana: Większa jest nieprawość moja, niżbym miał odpuszczenia być godzien.  
-14 Oto mię dziś wyganiasz od oblicza ziemie, i skryję się przed obliczem twojem, i będę tułaczem i zbiegiem na ziemi: każdy tedy, który mię najdzie, zabije mię.  
-15 I rzekł mu Pan: Żadną miarą tak nie będzie: ale każdy, ktoby zabił Kaina, siedmiorako będzie karan. I włożył Pan na Kaina znamię, aby go nie zabijał wszelki, któryby go nalazł.  
-16 I wyszedłszy Kain od oblicza Pańskiego, mieszkał wygnańcem na ziemi ku wschodowéj części Eden.  
-  
-
-
 ### Ant 3  
 Czyliż mi nie wolno * uczynić co chcę? i czyż złym patrzysz okiem? bo ja jestem dobry, mówi Pan.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 4:23-26*  
-23 I rzekł Lamech żonom swym, Adzie i Selli: Słuchajcie głosu mego, żony Lamechowe, posłuchajcie mowy mojéj: żeciem zabił męża na ranę moję, i młodzieniaszka na siność moję:  
-24 Siedmioraka pomsta będzie z Kaina, a z Lamecha siedmdziesiąt siedm kroć.  
-25 Poznał téż jeszcze Adam żonę swoję, i porodziła syna, i nazwała imię jego Seth, mówiąc: Położył mi Bóg plemię inne miasto Abela, którego zabił Kain.  
-26 Ale i Sethowi narodził się syn, którego nazwał Enos: ten począł wzywać imienia Pańskiego.  
-  
-
-
-### Lectio3  
-*Rdz 5:1-5*  
-1 Te są księgi rodzaju Adamowego, w dzień, którego stworzył Bóg człowieka; na podobieństwo Boże uczynił go.  
-2 Mężczyznę i niewiastę stworzył je, i błogosławił im: i nazwał imię ich Adam, w dzień którego są stworzeni.  
-3 I żył Adam sto i trzydzieści lat, i zrodził na wyobrażenie i podobieństwo swoje: i nazwał imię jego Seth.  
-4 I stało się dni Adamowych potem, jako zrodził Setha, ośm set lat: i zrodził syny i córki.  
-5 I stał się wszystek czas, którego żył Adam, lat dziewięć set trzydzieści: i umarł.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 5:22-27*  
-22 I chodził Henoch z Bogiem, i żył potem, jako zrodził Mathusalę, trzy sta lat, i zrodził syny i córki.  
-23 I stały się wszystkie dni Henochowe trzy sta sześćdziesiąt pięć lat.  
-24 I chodził z Bogiem, i nie było go widać; bo go wziął Bóg.  
-25 Żył Mathusala sto ośmdziesiąt siedm lat, i zrodził Lamecha.  
-26 I żył Mathusala potem, jako zrodził Lamecha, siedm set ośmdziesiąt dwa lata, i zrodził syny i córki.  
-27 I stały się wszystkie dni Mathusale, dziewięć set sześćdziesiąt dziewięć lat: i umarł.  
-  
-
-
-### Lectio3  
-*Rdz 5:28-31*  
-28 Lamech zaś żył sto ośmdziesiąt dwa lata i zrodził syna.  
-29 I nazwał imię jego Noe, mówiąc: Ten nas pocieszy z prac i robót rąk naszych, na ziemi, którą Pan przeklnął.  
-30 I żył Lamech potem, jako zrodził Noego, pięć set dziewięćdziesiąt pięć lat, i zrodził syny i córki.  
-31 I stały się wszystkie dni Lamechowe siedm set siedmdziesiąt siedm lat: i umarł.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
@@ -4024,51 +1982,6 @@ Przez Pana.
   
 
 
-### Responsory1  
-R. Rzekł do Noego: Koniec wszelkiemu ciału przyszedł przedemną: napełniona jest ziemia nieprawością od oblicza ich:  
-* A ja wytracę ich z ziemi.  
-V. Uczyń sobie korab z drzewa heblowanego: mieszkaniczka w nim poczynisz.  
-R. A ja wytracę ich z ziemi.  
-  
-
-
-### Lectio2  
-*Rdz 6:5-8*  
-5 A widząc Bóg, że wiele było złości ludzkiéj na ziemi, a wszystka myśl serca była napięta ku złemu po wszystek czas:  
-6 Żal mu było, że uczynił człowieka na ziemi: i ruszony serdeczną boleścią wewnątrz rzekł:  
-7 Wygładzę człowieka, któregom stworzył z obliczności ziemie: od człowieka aż do zwierząt: od ziemopłazu aż do ptastwa powietrznego; bo mi żal, żem je uczynił.  
-8 Noe zaś nalazł łaskę przed Panem.  
-  
-
-
-### Lectio3  
-*Rdz 6:9-15*  
-9 Noego rodzaje te są. Noe mąż sprawiedliwy i doskonały był w rodzajach swoich, z Bogiem chodził.  
-10 I zrodził trzech synów, Sema, Chama, i Japhetha.  
-11 Ale ziemia skaziła się przed Bogiem, i napełniła się nieprawością.  
-12 A gdy ujrzał Bóg ziemię być skażoną; (bo wszelkie ciało popsowało było drogę swą na ziemi):  
-13 Rzekł do Noego: Koniec wszelkiemu ciału przyszedł przedemną: napełniona jest ziemia nieprawością od oblicza ich: a ja wytracę je z ziemią.  
-14 Uczyń sobie korab z drzewa heblowanego: mieszkaniczka w nim poczynisz, i namażesz klijem wewnątrz i zewnątrz.  
-15 A uczynisz go tak: Trzysta łokci będzie długość korabia, pięćdziesiąt łokci szerokość, a trzydzieści łokci wysokość jego.  
-  
-
-
-### Responsory4  
-R. Zbudował Noe ołtarz Panu: ofiarował na nim całopalenia: zawoniał Pan wonność wdzięczności i błogosławił mu mówiąc:  
-* Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-V. Oto ja postanowię przymierze moje z wami i z nasieniem waszem po was.  
-R. Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-  
-
-
-### Responsory5  
-R. Łuk mój położę na obłokach, powiedział Pan do Noego:  
-* I wspomnię na przymierze moje z wami.  
-V. A gdy okryję obłokami niebo, ukaże się łuk mój na obłokach.  
-R. I wspomnię na przymierze moje z wami.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Łukasza  
 *Łk 8:4-15*  
@@ -4077,22 +1990,6 @@ Onego czasu: Gdy zgromadziła się rzesza wielka i z miast zdążali do Jezusa, 
 Homilia świętego Grzegorza, Papieża  
 *Homilia 15. na Ewangelię*  
 Czytanie świętej Ewangelii, którą, najdrożsi bracia, teraz słyszeliście, nie wymaga wykładu, lecz napomnienia. O tym, co sama Prawda wyjaśniła, słabość ludzka rozprawiać się nie odważa. Jednakże jest coś w tym wykładzie Pana, nad czym pilnie winniście się zastanowić: gdybyśmy bowiem wam tłumaczyli, iż ziarnem jest słowo, polem – świat, ptakami – szatani, cierniami – bogactwa, to może by wasz umysł nie chciał nam uwierzyć. Toteż Pan zechciał wyjaśnić to, co powiedział, abyście umieli szukać znaczenia i tych rzeczy, których sam nie chciał wyjaśnić.  
-  
-
-
-### Responsory7  
-R. Błogosławił Bóg Noego i syny jego, i rzekł do nich:  
-* Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-V. Oto ja postanowię przymierze moje z wami i z nasieniem waszem po was.  
-R. Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-  
-
-
-### Responsory8  
-R. Oto ja postanowię przymierze moje z wami i z nasieniem waszem po was:  
-* Więcej nie będzie potop pustoszący ziemię.  
-V. Łuk mój położę na obłokach, i będzie znakiem przymierza między mną a między ziemią.  
-R. Więcej nie będzie potop pustoszący ziemię.  
   
 
 
@@ -4187,45 +2084,9 @@ R. Jako woń kadzidła przed obliczem Twoim.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 7:5; 7:10-12*  
-5 Uczynił tedy Noe wszystko, co mu Pan kazał.  
-10 A gdy minęło siedm dni, wody potopu wylały po ziemi.  
-11 Roku sześćsetnego żywota Noego, miesiąca wtórego, siedmnastego dnia miesiąca, przerwały się wszystkie źródła przepaści wielkiéj, i upusty niebieskie otworzone są.  
-12 I spadł deszcz na ziemię czterdzieści dni i czterdzieści nocy.  
-  
-
-
-### Lectio3  
-*Rdz 7:13-14; 7:17*  
-13 Onegoż dnia wszedł Noe, i Sem i Cham i Japhet, synowie jego, żona jego, i trzy żony synów jego z nimi do korabia:  
-14 Sami i wszelki zwierz według rodzaju swego, i wszystko bydło według rodzaju swego, i wszystko, co płaza po ziemi, według rodzaju swego, i wszystko latające według rodzaju swego, i wszyscy ptacy i wszystko, co ma skrzydła,  
-17 I stał się potop przez czterdzieści dni na ziemi: i wezbrały wody, i podniosły korab wysoko od ziemie.  
-  
-
-
 ### Ant 3  
 Jeśli szczytu * prawdziwej czci szukacie, do niebieskiej ojczyzny pospieszajcie.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 8:5-9*  
-5 Lecz wody schodziły i opadały aż do dziesiątego miesiąca; dziesiątego bowiem miesiąca, pierwszego dnia miesiąca, okazały się wierzchy gór.  
-6 A gdy minęło czterdzieści dni, otworzywszy Noe okno korabia, które był uczynił, wypuścił kruka:  
-7 Który wychodził a nie wracał się, aż oschły wody na ziemi.  
-8 Wypuścił téż gołębicę za nim, aby poznał, jeźli już ustały wody na ziemi.  
-9 Która nie nalazłszy, gdzieby odpoczęła noga jej, wróciła się k niemu do korabia.  
-  
-
-
-### Lectio3  
-*Rdz 8:10-13*  
-10 A poczekawszy jeszcze siedm dni drugie, powtóre wypuścił gołębicę z korabia.  
-11 A ona przyleciała do niego pod wieczór, niosąc gałązkę oliwy z zielonem liściem w gębie swojéj: a tak poznał Noe, że przestały wody na ziemi.  
-12 I poczekał przecię jeszcze siedm dni drugich: i wypuścił gołębicę, która się nie wróciła więcéj do niego.  
-13 A tak sześćsetnego pierwszego roku, pierwszego miesiąca, pierwszego dnia miesiąca, opadły wody na ziemi.  
-  
 
 
 ### Ant 3  
@@ -4233,90 +2094,11 @@ Ziarnem jest * słowo Boże, siewcą zaś Chrystus: każdy, który go znajdzie, 
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 8:20-22*  
-20 I zbudował Noe ołtarz Panu: a wziąwszy z każdego bydła i ptastwa czystego, ofiarował całopalenia na ołtarzu.  
-21 I zawoniał Pan wonność wdzięczności i rzekł: Żadną miarą więcéj nie będę przeklinał ziemie dla ludzi; zmysł bowiem i myśl serca człowieczego skłonne są do złego od młodzieństwa swego: przetóż téż nie pobiję więcéj wszystkiéj dusze żyjącéj, jakom uczynił.  
-22 Po wszystkie dni ziemie siew i żniwo, zimno i gorąco, lato i zima, noc i dzień nie ustaną.  
-  
-
-
-### Lectio3  
-*Rdz 9:1-6*  
-1 I błogosławił Bóg Noego i syny jego, i rzekł do nich: Rośćcie i mnóżcie się, a napełniajcie ziemię.  
-2 A strach wasz i drżenie niechaj będzie nad wszelkiem zwierzęciem ziemnem, i nadewszem ptastwem powietrznem, ze wszystkiemi, które się ruszają na ziemi: wszystkie ryby morskie ręce waszéj podane są.  
-3 A wszystko, co się rusza i żywie, będzie wam na pokarm: jako jarzyny zielone dałem wam wszystko.  
-4 Wyjąwszy że mięsa ze krwią jeść nie będziecie.  
-5 Albowiem krwie dusz waszych będę szukał z ręki wszelkich bestyi: i z ręki człowieczéj, z ręki męża i brata jego będę szukał dusze człowieczéj.  
-6 Ktobykolwiek wylał krew człowieczą, będzie wylana krew jego; bo na obraz Boży uczynion jest człowiek.  
-  
-
-
 ### Ant 3  
 A które upadną * na ziemię dobrą, ci są, którzy dobrem a wybornem sercem usłyszawszy, owoc przynoszą w cierpliwości.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 9:20-23*  
-20 I począł Noe, mąż oracz sprawować ziemię, i nasadził winnicę.  
-21 I pijąc wino upił się, i obnażył się w namiecie swoim.  
-22 Co ujrzawszy Cham, ojciec Chanaan, to jest, że łono ojca jego odkryte było, powiedział to dwiema braci swéj na dworze.  
-23 Sem tedy i Japhet włożyli płaszcz na ramiona swoje, a idąc nawstecz zakryli łono ojca swego: a oblicza ich były odwrócone, i ojcowskiego łona nie widzieli.  
-  
-
-
-### Lectio3  
-*Rdz 9:24-29*  
-24 A ocuciwszy się Noe z wina, gdy się dowiedział, co mu uczynił syn jego młodszy,  
-25 Rzekł: przeklęty Chanaan, niewolnik niewolników będzie braci swéj.  
-26 I rzekł: Błogosławiony Pan Bóg Semów, niech Chanaan niewolnikiem jego będzie.  
-27 Niech rozszerzy Bóg Japheta, i niech mieszka w namieciech Semowych: a Chanaan niech będzie niewolnikiem jego.  
-28 I żył Noe po potopie trzy sta i pięćdziesiąt lat.  
-29 I wypełniły się wszystkie dni jego, dziewięć set i pięćdziesiąt lat, i umarł.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 11:1-4*  
-1 A ziemia była jednego języka i téjże mowy.  
-2 I gdy szli od wschodu słońca, naleźli pole na ziemi Sennaar, i mieszkali na niem.  
-3 I rzekli, jeden do bliskiego swego: Pójdźcie, naczyńmy cegieł i wypalmy ją ogniem. I mieli cegłę miasto kamienia, a ił kliowaty miasto wapna.  
-4 I rzekli: Pójdźcie, zbudujmy sobie miasto i wieżę, któréjby wierzch dosięgał do nieba: a uczyńmy sławne imię nasze, pierwéj niźli się rozproszymy po wszystkich ziemiach.  
-  
-
-
-### Lectio3  
-*Rdz 11:5-8*  
-5 I zstąpił Pan, aby oglądał miasto i wieżę, którą budowali synowie Adamowi:  
-6 I rzekł: Oto jeden jest lud, i jeden język wszystkim: a poczęli to czynić, i nie przestaną od myśli swych, aż je skutkiem wypełnią.  
-7 Przeto pójdźcie, zstąpmy, a pomięszajmy tam język ich, aby nie słyszał żaden głosu bliźniego swego.  
-8 I tak rozproszył je Pan z onego miejsca po wszystkich ziemiach, i przestali budować miasta.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Rdz 11:16-23*  
-16 A Heber żył trzydzieści i cztery lata, i zrodził Phalega.  
-17 I żył Heber, zrodziwszy Phalega, cztery sta i trzydzieści lat, i zrodził syny i córki.  
-18 Żył téż Phaleg trzydzieści lat, i zrodził Rewa:  
-19 I żył Phaleg, zrodziwszy Rewa, dwieście i dziewięć lat, i zrodził syny i córki.  
-20 Rew zasię żył trzydzieści i dwie lecie, i zrodził Saruga.  
-21 I żył Rew, zrodziwszy Saruga dwieście i siedm lat, i zrodził syny i córki.  
-22 Sarug lepak żył trzydzieści lat, i zrodził Nachora.  
-23 I żył Sarug, zrodziwszy Nachora, dwieście lat, i zrodził syny i córki.  
-  
-
-
-### Lectio3  
-*Rdz 11:24-30*  
-24 Nachor zasię żył dwadzieścia i dziewięć lat, i zrodził Tharego.  
-25 I żył Nachor, zrodziwszy Tharego, sto i dziewiętnaście lat, i zrodził syny i córki.  
-26 I żył Thare siedmdziesiąt lat, i zrodził Abrama, i Nachora, i Arana.  
-27 A Tharego rodzaje są te: Thare zrodził Abrama, Nachora, i Arana. Aran zaś zrodził Lota.  
-28 I umarł Aran przed Tharem, ojcem swoim, w ziemi narodzenia swego, w Ur Chaldejczyków.  
-29 I pojęli Abram i Nachor żony: imię żony Abramowéj Sarai, a imię żony Nachorowéj Melcha, córka Arana, ojca Melchy i ojca Jeschy.  
-30 A była Sarai niepłodną, i nie miała dzieci.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
@@ -4349,81 +2131,6 @@ Uprzedźmy oblicze Pana: * a psalmami śpiewajmy mu.
   
 
 
-### Responsory1  
-R. Mówił Pan do Abrahama: Wynidź z ziemie twojéj, i od rodziny twojéj, a idź do ziemie, którąć ukażę.  
-* A uczynię cię narodem wielkim.  
-V. Będę błogosławił błogosławiącym tobie, i uwielbię imię twoje, i będziesz błogosławiony.  
-R. A uczynię cię narodem wielkim.  
-  
-
-
-### Lectio2  
-*Rdz 12:7-13*  
-7 I ukazał się Pan Abramowi, i rzekł mu: Nasieniu twemu dam ziemię tę; który zbudował tam ołtarz Panu, który mu się był ukazał.  
-8 A z tamtąd przeszedł do góry, która była ku wschodowi Bethel: rozbił tam namiot swój, mając od zachodu Bethel, a od wschodu Haj, i zbudował téż tam ołtarz Panu, i wzywał imię jego.  
-9 I ciągnął Abram idąc i daléj postępując ku południu.  
-10 Stał się potem głód w ziemi, i stąpił Abram do Egiptu, aby tam gościem był; ciężki bowiem był głód w ziemi.  
-11 A gdy już blisko był, aby wszedł do Egiptu, rzekł do Sarai żony swéj: Wiem, żeś piękna niewiasta:  
-12 A iż, gdy cię ujrzą Egiptyanie, rzeką: żona to jego: i zabiją mię, a ciebie zachowają.  
-13 Mów przeto, proszę cię, żeś jest siostra moja: aby mi było dobrze dla ciebie, i dusza moja aby żyła dla ciebie.  
-  
-
-
-### Responsory2  
-R. Gdy Abraham stał pod dębem Mamre, dostrzegł trzech mężów idących drogą.  
-* Trzech ujrzał, a Jednemu oddał pokłon.  
-V. Oto Sara, twoja żona, urodzi ci syna, i nazwiesz imię jego Izaak.  
-R. Trzech ujrzał, a Jednemu oddał pokłon.  
-  
-
-
-### Lectio3  
-*Rdz 12:14-19*  
-14 Gdy tedy wszedł Abram do Egiptu, ujrzeli Egiptyanie niewiastę, że była bardzo piękna.  
-15 I dały znać Książęta Pharaonowi, i chwalili ją przed nim: i wzięto niewiastę do domu Pharaonowego.  
-16 A Abramowi czynili dobrze dla niéj: i miał owce, i woły, i osły, i niewolniki, i niewolnice, i oślice, i wielbłądy.  
-17 Ale Pan skarał Pharaona plagami wielkiemi, i dom jego, dla Sarai żony Abramowéj.  
-18 I zawołał Pharao Abrama, i rzekł mu: Cóż wżdy to jest, coś mi uczynił? Czemuś mi nie oznajmił, że to żona twoja?  
-19 Czemuś powiedział, że jest siostra twoja, abym ją wziął sobie za żonę? Ale teraz oto żona twoja, weźmijż ją, a idź.  
-  
-
-
-### Responsory3  
-R. Pan wystawił Abrahama na próbę i rzekł do niego:  
-* Weź twego syna, którego miłujesz, Izaaka, i złóż go w ofierze całopalnej na jednej z gór, jaką ci wskażę.  
-V. A on, wezwany przez Pana, odpowiedział: Oto jestem; Pan zaś rzekł do niego:  
-R. Weź twego syna, którego miłujesz, Izaaka, i złóż go w ofierze całopalnej na jednej z gór, jaką ci wskażę.  
-Chwała Ojcu.  
-R. Weź twego syna, którego miłujesz, Izaaka, i złóż go w ofierze całopalnej na jednej z gór, jaką ci wskażę.  
-  
-
-
-### Responsory4  
-R. Anioł Pański zawołał na Abrahama i rzekł:  
-* Nie podnoś ręki swej na syna, ponieważ boisz się Pana.  
-V. A gdy Abraham wyciągnął rękę, aby złożyć w ofierze swego syna, oto Anioł Pański zawołał na niego z nieba, mówiąc: Nie.  
-R. Nie podnoś ręki swej na syna, ponieważ boisz się Pana.  
-  
-
-
-### Responsory5  
-R. Anioł Pański zawołał z nieba do Abrahama po raz drugi, mówiąc : Będę ci błogosławił  
-* I rozmnożę cię szczodrze jak gwiazdy na niebie.  
-V. Potomkowie twoi zdobędą bramy twoich nieprzyjaciół; a w twoim potomstwie będą błogosławione wszystkie ludy ziemi.  
-R. I rozmnożę cię szczodrze jak gwiazdy na niebie.  
-  
-
-
-### Responsory6  
-R. Boże pana mego, Abrahama, prostuj moją drogę,  
-* Abym szczęśliwie powrócił do domu mego pana.  
-V. Proszę, Panie, bądź łaskaw dla swego sługi.  
-R. Abym szczęśliwie powrócił do domu mego pana.  
-Chwała Ojcu.  
-R. Abym szczęśliwie powrócił do domu mego pana.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Łukasza  
 *Łk 18:31-43*  
@@ -4432,22 +2139,6 @@ Onego czasu: Jezus, wziąwszy z sobą dwunastu, mówił do nich: „Oto idziemy 
 Homilia świętego Grzegorza, Papieża  
 *Homilia 2. na Ewangelię*  
 Nasz Odkupiciel, wiedząc naprzód, iż Jego męka wprowadzi w zamieszanie ducha Jego uczniów, na długo przedtem zapowiedział im trud swej męki i chwałę swego zmartwychwstania, aby widząc przepowiedzianą Jego śmierć, nie mieli wątpliwości, iż ujrzą Go również zmartwychwstałego. Ponieważ jednak jeszcze cieleśnie nastawieni uczniowie w żaden sposób nie mogli pojąć słów tajemnicy, Jezus uczynił cud. Na ich oczach niewidomy odzyskuje wzrok, aby ci, którzy nie rozumieli słów niebiańskiej tajemnicy, zostali umocnieni w swej wierze przez niebiańskie czyny.  
-  
-
-
-### Responsory7  
-R. Przyszedłem dzisiaj do źródła i modliłem się do Pana, mówiąc:  
-* Panie, Boże Abrahama, Ty spełniłeś moją prośbę.  
-V. Niechaj dziewczyna, której powiem: Daj mi wody z dzbana, abym się napił: a ona mi odpowie: Pij, panie, a i wielbłądy twe napoję; będzie tą, którą przeznaczył Pan dla syna pana mojego.  
-R. Panie, Boże Abrahama, Ty spełniłeś moją prośbę.  
-  
-
-
-### Responsory8  
-R. Pan powiedział do Abrama, mówiąc:  
-* Nie obawiaj się, Abramie, bo Ja jestem twoim obrońcą; nagroda twoja będzie sowita.  
-V. Albowiem Ja jestem Pan, Bóg twój, który ciebie wywiodłem z Ur chaldejskiego.  
-R. Nie obawiaj się, Abramie, bo Ja jestem twoim obrońcą; nagroda twoja będzie sowita.  
   
 
 
@@ -4542,71 +2233,14 @@ R. Jako woń kadzidła przed obliczem Twoim.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Ruszywszy tedy namiot swój, Abram przyszedł i mieszkał przy dolinie Mambre:  
-* I zbudował tam ołtarz Panu.  
-V. I rzekł Pan do niego: Podnieś oczy swoje, i pojrzyj: wszystkę ziemię, którą widzisz, tobie dam i nasieniu twemu aż na wieki.  
-R. I zbudował tam ołtarz Panu.  
-  
-
-
-### Lectio2  
-*Rdz 13:7-11*  
-7 Zkąd téż był swar między pasterzmi bydła Abramowego i Lotowego. A na on czas Chananejczyk i Pherezejczyk mieszkali w onéj ziemi.  
-8 Rzekł tedy Abram do Lota: Niech proszę nie będzie swaru między mną a tobą, i między pasterzmi mymi, a pasterzmi twymi: ponieważ bracia jesteśmy.  
-9 Oto wszystka ziemia jest przed tobą: odejdź odemnie proszę: jeźli w lewo pójdziesz, ja się udam w prawo: jeźli w prawo obierzesz, ja w lewo pójdę.  
-10 Podniósłszy tedy Lot oczy swe, ujrzał wszystkę wokół krainę Jordanu, która wszystka polewana była przed tem, niż Pan zatracił Sodomę i Gomorrę, jako Raj Pański, i jako Egipt idącym do Segora.  
-11 I obrał sobie Lot krainę nad Jordanem, i odszedł ze wschodu słońca.  
-  
-
-
-### Lectio3  
-*Rdz 13:11-16*  
-11 I odłączyli się bracia jeden od drugiego.  
-12 Abram mieszkał w ziemi Chananejskiéj: a Lot przebywał w mieściech, które były nad Jordanem i mieszkał w Sodomie.  
-13 A ludzie Sodomscy byli bardzo źli, i zbytnie grzesznicy przed Panem.  
-14 I rzekł Pan do Abrama, gdy się już był Lot odłączył od niego: Podnieś oczy twoje, i pojrzyj z miejsca, na któremeś teraz, na północy i na południe, na wschód i na zachód.  
-15 Wszystkę ziemię, którą widzisz, tobie dam i nasieniu twemu aż na wieki.  
-16 I uczynię nasienie twoje jako proch ziemie.  
-  
-
-
 ### Ant 3  
 A którzy szli wprzód, * fukali nań, aby milczał: lecz on tem więcéj wołał: Zmiłuj się nademną, Synu Dawidów.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Rdz 14:13-16*  
-13 A oto jeden, który był uszedł, oznajmił Abramowi Hebreowi, który mieszkał w dolinie Mambrego Amorrejczyka, brata Eschol, i brata Aner; ci bowiem uczynili byli przymierze z Abramem.  
-14 Co usłyszawszy Abram, to jest, iż poiman Lot, brat jego, zebrał gotowych domowych sług swoich trzy sta i ośmnaście: i pogon uczynił aż do Dan.  
-15 A rozdzieliwszy towarzysze, przypadł na nie w nocy: i poraził je, i gonił je aż do Hoby, która jest po lewéj stronie Damaszku.  
-16 I przywrócił nazad wszystkę majętność, i Lota brata swego z majętnością jego, i niewiasty i lud.  
-  
-
-
-### Lectio3  
-*Rdz 14:17-20*  
-17 I wyjechał król Sodomski przeciw jemu, gdy się wracał od porażki Chodorlahomora, i królów, którzy z nim byli w dolinie Sawe, która jest dolina królewska.  
-18 Ali Melchisedech, król Salem wyniósłszy chléb i wino; bo był kapłanem Boga najwyższego,  
-19 Błogosławił mu i rzekł: Błogosławiony Abram Bogu wysokiemu, który stworzył niebo i ziemię:  
-20 I błogosławiony Bóg wysoki, którego obroną nieprzyjaciele są w rękach twoich. I dał mu dziesięciny ze wszystkiego.  
-  
-
-
 ### Ant 3  
 Zmiłuj się nademną, * Synu Dawidów. Co chcesz, abym ci uczynił? Panie, abych przejrzał.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Kto przeto wyróżnia się nieumiarkowaną dbałością o ciało i odzienie albo zbytkownością w pozostałych rzeczach, ten łatwo może być uznany za zwolennika światowego przepychu i nikogo nie zwiedzie podstępnym obrazem świętości. Kto natomiast w wyznawaniu chrześcijaństwa zwraca na siebie oczy ludzi niezwykłym niechlujstwem i brudem, czyniąc to dobrowolnie, a nie znosząc tego z konieczności, to na podstawie innych jego czynów można poznać, czy czyni to z pogardy dla zbytku, czy też z jakiejś ambicji. Dlatego Pan nakazał strzec się wilków pod owczą skórą. Powiedział: Po ich owocach poznacie ich.  
-  
-
-
-### Lectio3  
-Gdy bowiem z powodu jakichś prób zacznie im brakować tych rzeczy albo im tego odmówią, co pod tą pokrywką osiągnęli albo osiągnąć pragną, wtedy nieodparcie okaże się, czy są wilkami w owczej skórze, czy prawdziwymi owcami. Albowiem chrześcijanin nie powinien zbytnim strojem zwracać spojrzenia ludzi dlatego, że owego skromnego i koniecznego ubrania często także kłamcy używają, aby oszukać nieostrożnych. A więc i te chrześcijańskie owce nie powinny zdejmować z siebie swych skór, chociaż niekiedy okrywają się nimi wilki.  
-  
 
 
 ### Ant 2  
@@ -4634,24 +2268,6 @@ Skarbcie sobie * skarby w niebie, gdzie ani rdza, ani mól nie psuje.
 Wejrzyj, Panie, łaskawie na nas, korzących się przed Majestatem Twoim: aby tych, których Boskim darem posilasz, pomoc niebieska zawsze wzmacniała.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Panie, sługa mój leży w domu, powietrzem ruszony, i ciężko trapiony jest:  
-* Zaprawdę powiadam ci, ja przyjdę i uzdrowię go.  
-V. Panie, nie jestem godzien, abyś wszedł pod dach mój: ale tylko rzecz słowo, a będzie uzdrowiony sługa mój.  
-R. Zaprawdę powiadam ci, ja przyjdę i uzdrowię go.  
-  
-
-
-### Lectio2  
-Skoro więc sprawy tak się miały, to w jaki sposób może być prawdziwe to, co opisuje Mateusz, że: Przystąpił do Niego pewien setnik, skoro nie on sam przyszedł, lecz posłał przyjaciół? Otóż jeśli dokładniej się przyjrzymy, zrozumiemy, iż Mateusz nie całkiem odstąpił od zwyczajowego sposobu mówienia. „Przystąpić do czegoś” zwykło się bowiem mówić nie tylko bezpośrednio przed momentem dotarcia do celu, jaki miało się osiągnąć. Stąd też powiadamy: „ledwo przystąpił”, albo: „przystąpił bardzo blisko” do tego, ku czemu chciał dotrzeć. Skądinąd samo dotarcie, ze względu na które przystępujemy, często określa się jako już dokonane, gdy przez przyjaciela kierujemy się do kogoś, choć tego, do kogo przystępujemy i czyja łaska jest nam potrzebna, sami nie widzimy. Weszło to do tego stopnia w przyzwyczajenie, że już nawet pospolicie mówi się o tak zwanych „mających dojścia”. Są to ci, którzy dzięki zręcznym zabiegom i pośrednictwu odpowiednich osób mają przystęp do ludzi wielkich, a którzy wydają się nieosiągalni dla innych.  
-  
-
-
-### Lectio3  
-Niebezpodstawnie zatem Mateusz skrótowo mógł powiedzieć o przypadku zwrócenia się setnika do Pana poprzez innych, stwierdzając: Przystąpił do Niego setnik, co nawet pospolicie da się łatwo zrozumieć. Jednakże z uwagą należy się także przyjrzeć głębi mistycznego języka świętego Ewangelisty. Według tego języka napisano w psalmie: Przystąpcie do Niego, a zostaniecie oświeceni. Ponieważ sam Pan pochwalił wiarę setnika, przez którą rzeczywiście zwraca się do Jezusa, mówiąc: Nie znalazłem tak wielkiej wiary w Izraelu, dlatego z tego wynika, że to raczej ów setnik zwrócił się do Chrystusa, niżeli ci, przez których przekazał swoje słowa, i to właśnie chciał wyrazić roztropny Ewangelista.  
-  
 
 
 ### Versum 2  
@@ -4687,16 +2303,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Abyście byli synami Ojca waszego, który jest w niebiesiech. Skoro strzegąc Bożych przykazań, staje się ktoś synem Bożym, zatem nie jest synem z natury, lecz dzięki własnej woli. Gdy tedy dajesz jałmużnę, nie trąb przed sobą, jako czynią obłudnicy w synagogach i na ulicach, aby ich ludzie chwalili. Kto trąbi przed sobą, udzielając jałmużny, jest obłudnikiem. Kto, poszcząc, szpeci swoją twarz, aby już jego wygląd wskazywał na pusty brzuch, jest obłudnikiem. Kto modli się w synagogach i na rogach ulic, aby się ludziom pokazać – i ten jest obłudnikiem.  
-  
-
-
-### Lectio3  
-Wynika z tego wszystkiego, że obłudnikiem jest każdy, kto czyni cokolwiek, aby odebrać chwałę od ludzi. Zda mi się, że i ów, który zwraca się do swego brata w słowach: Dozwól, że wyjmę źdźbło z oka twego, mówi tak z próżnej chwały, aby się na zewnątrz okazać sprawiedliwym. Stąd też skierowane są do niego słowa Pana: Obłudniku, wyrzuć najpierw belkę z oka własnego. Zatem nie sam postępek, ale jego motywacja ma nagrodę u Boga. I jeśli zszedłeś nieco ze ścieżki słusznej, nie ma znaczenia, czy zboczyłeś na prawo czy na lewo, skoro drogę prawdziwą opuściłeś.  
-  
-
-
 ### Versum 2  
 V. Od rana pełni jesteśmy twego miłosierdzia.  
 R. Radujemy się i weselimy.  
@@ -4728,16 +2334,6 @@ Ale ty gdy się modlić będziesz, * wnidź do komory swojéj, a zawarłszy drzw
 Broń, Panie, ludu swego i od wszelkich grzechów oczyść go łaskawie: bo żadna przeciwność szkodzić mu nie będzie, gdy żadna nieprawość nie będzie w nim panowała.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Stąd bierze się głos Kościoła pogrążonego wśród fal i nawałnic napierających pokus. Stąd pochodzi jego błagalne wołanie, gdy szuka pomocy i ochrony: Dlaczego z dala stoisz, o Panie, odwracasz wzrok w czasie trudności i utrapienia? W dalszym ciągu tego psalmu znajduje swój wyraz również głos prześladującego nieprzyjaciela: Mówi on bowiem w sercu swoim: „Bóg nie pamięta, oblicze swe odwrócił, nigdy tego nie ujrzy”.  
-  
-
-
-### Lectio3  
-Jednakże Bóg nie zapomina modlitwy ubogich, ani nie odwraca swego oblicza od tych, którzy Mu ufają. Co więcej: wspomaga swoich wiernych, aby dać im zwycięstwo w walce z wrogami, a zwycięzców uwieńczyć chwałą wieczną. Dlatego też mówi się tu wyraźnie, że Jezus widział ich, jak pracowali wiosłami.  Albowiem Pan widzi pracujących na morzu, choć sam stoi na lądzie; bo gdyby nawet przez chwilę się zdawało, iż zwleka z udzieleniem wsparcia, to przecież, aby nie osłabli pośród utrapień, umacnia ich swym miłosiernym spojrzeniem.  Czasem również, pokonawszy przeciwności, sam uwalnia ich swą jawną pomocą, tak jak uspokoił wzburzone fale, depcąc je swymi stopami.  
-  
 
 
 ### Versum 2  
@@ -4800,62 +2396,6 @@ Przez Pana.
   
 
 
-### Responsory1  
-R. Oto teraz czas przyjemny, oto teraz dzień zbawienia: stawmy samych siebie w cierpliwości wielkiéj, w pościech częstych.  
-* Przez broń sprawiedliwości mocy Bożej.  
-V. We wszystkiem stawmy samych siebie jako sługi Boże w cierpliwości wielkiéj, w pościech częstych.  
-R. Przez broń sprawiedliwości mocy Bożej.  
-  
-
-
-### Lectio2  
-*2 Kor 6:11-16*  
-11 Usta nasze, Korynthowie, otworzone ku wam, serce nasze jest rozszerzone.  
-12 Nie jesteście ściśnieni w nas, lecz ściśnieni jesteście w wnętrznościach waszych.  
-13 A mając nagrodę, mówię jako synom, rozprzestrzeńcie się i wy.  
-14 Nie ciągnijcie jarzma z niewiernymi; albowiem co za uczestnictwo sprawiedliwości z nieprawością? Albo co za towarzystwo światłości z ciemnościami?  
-15 Albo co za zgoda Chrystusowi z Beliałem? Albo co za część wiernemu z niewiernym?  
-16 A co za zgoda kościołowi Bożemu z bałwanami? Albowiem wy jesteście kościołem Boga żywego, jako mówi Bóg: Iż będę mieszkał i przechadzał się w nich, i będę Bogiem ich, a oni będą mi ludem.   
-  
-
-
-### Responsory2  
-R. We wszystkiem stawmy samych siebie jako sługi Boże w cierpliwości wielkiéj  
-* Aby nie było naganione posługowanie nasze.  
-V. Oto teraz czas przyjemny, oto teraz dzień zbawienia: stawmy samych siebie w cierpliwości wielkiéj.  
-R. Aby nie było naganione posługowanie nasze.  
-  
-
-
-### Lectio3  
-*2 Kor 7:4-9*  
-4 Pełenem pociechy, nader obfituję weselem w każdem utrapieniu naszem.  
-5 Albowiem i gdyśmy przyszli do Macedonii, ciało nasze żadnego odpoczynienia nie miało, aleśmy ucierpieli wszelkie utrapienie: zewnątrz walki, a wewnątrz strachy.  
-6 Ale który cieszy uniżone, pocieszył nas, Bóg, przyjściem Tytusowem.  
-7 A nie tylko przyjściem jego, ale téż pociechą, którą ucieszony jest z was, oznajmując nam chęć waszę, płacz wasz, wasze za mię zastawiania, tak żem się więcéj weselił.  
-8 Iż chociam was zasmucił w liście, nie żal mi, a chociażbym téż żałował, widząc, iż on list (chociaż na godzinę) zasmucił was:  
-9 Teraz raduję się, nie iżeście się zasmucili, ale iżeście się zasmucili ku pokucie.  
-  
-
-
-### Responsory3  
-R. W poście i w płaczu, będą modlić się kapłani, mówiąc:  
-* Przepuść, Panie, przepuść ludowi twemu, a nie daj dziedzictwa twego na zgubę.  
-V. Między przysionkiem a ołtarzem będą płakać kapłani, a będą mówić:  
-R. Przepuść, Panie, przepuść ludowi twemu, a nie daj dziedzictwa twego na zgubę.  
-Chwała Ojcu.  
-R. Przepuść, Panie, przepuść ludowi twemu, a nie daj dziedzictwa twego na zgubę.  
-  
-
-
-### Responsory4  
-R. Zmieńmy na lepsze wszystko to, czem zgrzeszyliśmy w zaślepieniu naszem, abyśmy, gdy nagle zaskoczy dzień śmierci, nie szukali już napróżno drogi pokuty, a znaleźć onej nie mogli.  
-* Wysłuchaj Panie, i zmiłuj się: albowiem zgrzeszyliśmy przeciw Tobie.  
-V. Wspomóżże nas, Boże, Zbawicielu nasz: a dla sławy Imienia Twego, Panie, wybaw nas.  
-R. Wysłuchaj Panie, i zmiłuj się: albowiem zgrzeszyliśmy przeciw Tobie.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Mateusza  
 *Mt 4:1-11*  
@@ -4864,22 +2404,6 @@ Onego czasu: Jezus zawiedziony był na pustynię od Ducha, aby był kuszony prze
 Homilia świętego Grzegorza, Papieża  
 *Homilia 16. na Ewangelię*  
 Niektórzy mają zazwyczaj co do tego wątpliwości, jaki duch zaprowadził Jezusa na pustynię, ponieważ jest dodane: Wziął Go diabeł do miasta świętego. I znowu: Wziął Go na górę wysoką bardzo. Jednakże z całą prawdą, bez jakichkolwiek wątpliwości zgodnie się przyjmuje i wierzy, iż Duch Święty Go zaprowadził na pustynię. Jego Duch tam Go zawiódł, gdzie potem zły przyszedł Go kusić. Gdy jednak jest powiedziane, iż diabeł wziął Boga-Człowieka na wysoką górę lub do świętego miasta, to umysł wzbrania się w to wierzyć, a ludzkie uszy lękają się, to słysząc. A jednak poznajemy, iż nie jest to nie do wiary, jeśli zważymy, co się z Nim działo w innym czasie.  
-  
-
-
-### Responsory7  
-R. Rozdzierajcie serca wasze, a nie szaty wasze, a nawróćcie się do Pana, Boga waszego:  
-* Bo dobrotliwy i miłosierny jest.  
-V. Niech opuści złośnik drogę swoje, a mąż nieprawy myśli swe, i niech się nawróci do Pana, a zmiłuje się nad nim.  
-R. Bo dobrotliwy i miłosierny jest.  
-  
-
-
-### Responsory8  
-R. Ułam łaknącemu chleba twego, a ubogie i tułające się wprowadź do domu twego.  
-* Tedy wyniknie jako zaranie światłość twoja, i pójdzie przed obliczem twojem sprawiedliwość twoja.  
-V. Gdy ujrzysz nagiego, przyodziej go, a nie gardź ciałem twojem.  
-R. Tedy wyniknie jako zaranie światłość twoja, i pójdzie przed obliczem twojem sprawiedliwość twoja.  
   
 
 
@@ -4953,16 +2477,6 @@ Oto teraz czas * przyjemny, oto teraz dzień zbawienia: w tenże więc dzień st
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Czy może w ogień wieczny pójdą ci, którzy nie wykonywali uczynków miłosiernych, a nie pójdą ci, którzy cudzą własność zrabowali – albo ci, którzy burząc w sobie Bożą świątynię, dla siebie samych niemiłosierni byli? Wcale nie tak, gdyż uczynki miłosierne na nic się zdadzą bez miłości, bo Apostoł powiada: Gdybym na ubogich rozdał wszystką majętność swoją, a miłości bym nie miał, nic mi nie pomoże. Albo też czy może ktoś miłować bliźniego jak siebie samego, kto siebie samego nie miłuje? Nie, albowiem: Kto miłuje nieprawość, ma w nienawiści duszę swoją.  
-  
-
-
-### Lectio3  
-A tak również nie można powiedzieć, czym niektórzy łudzą się, utrzymując, że ogień nazwano wiecznym, ale samej kary palenia się nie nazwano wieczną. Sądzą oni, że chociaż przez wieczny ogień przejdą ci, których wiara jest martwa, lecz jednak obiecują im, że zostaną zbawieni właśnie przez ten ogień. W ten sposób więc sam ogień miałby być wieczny, ale ich palenie się, to znaczy działanie ognia na nich, nie miałoby trwać wiecznie. Ale i to Pan przewidział, przeto też swój wyrok zamknął tymi słowy: Tak pójdą ci na spalenie wieczne, a sprawiedliwi do żywota wiecznego. A zatem wieczne będzie palenie, jak i wieczny ogień. I powiedziała Prawda, że ci tam pójdą, którym według Jej sądu nie wiary zabrakło, lecz dobrych uczynków.  
-  
-
-
 ### Ant 2  
 Pójdźcie, błogosławieni * Ojca Mego, otrzymajcie królestwo wam zgotowane od założenia świata.  
   
@@ -4983,16 +2497,6 @@ Coście uczynili * jednemu z tych braci Moich najmniejszych, Mnieście uczynili,
 Rozwiąż, prosimy Cię, Panie, więzy grzechów naszych i odwróć łaskawie karę, na którą przez nie zasłużyliśmy.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Ale ponieważ Go nie zrozumieli, w następstwie tego Pan Jezus z bezwzględnością zastosował wobec nich zasłużoną karę. Usunął więc czysto ludzki handel z owego domu, co do którego istniało przykazanie, aby sprawowano tam wyłącznie rzeczy Boskie, zanoszono przed Boga ofiary i modlitwy, a słowo Boże było tam odczytywane, wysłuchiwane i odśpiewywane. Jednak trzeba nam wierzyć, że Pan nasz znalazł w świątyni tylko to, co sprzedawano i kupowano na potrzeby kultu tejże świątyni. Przy okazji innego wypędzenia czytamy, że wchodząc do tejże świątyni, zastał w niej sprzedających i kupujących woły, owce i gołębie i niewątpliwie winniśmy uznać, iż przybywający z daleka wszystko to nabywali od miejscowej ludności tylko w celu złożenia ofiary w domu Pańskim.  
-  
-
-
-### Lectio3  
-Pan nie chciał więc, aby w świątyni sprzedawano to, co zgodnie z Jego wolą miało być tam później składane w ofierze. Stało się tak ze względu na skłonność do chciwości lub oszustwa, które zwykły być występkami kupców. Jak wielką zatem, uważasz, wymierzy karę tym, których by tam znalazł oddających się żartom albo czczym pogawędkom, względnie postępujących w jakikolwiek inny, niegodny sposób? Bo jeśli Pan nie potrafi ścierpieć w swojej świątyni tych doczesnych czynności handlowych, które gdzie indziej mogły być bez przeszkód prowadzone, to o ileż bardziej zasługują na gniew z nieba te rzeczy, których nigdzie czynić nie wolno, a mimo to mają miejsce w przybytkach poświęconych Bogu? Ponieważ wiadomo nam, że Duch Święty ukazał się nad Panem w postaci gołębicy, zatem gołębie słusznie oznaczają dary Ducha Świętego. A kim są dzisiaj sprzedawcy gołębi w świątyni Boga, jak nie tymi z duchownych, którzy w Kościele otrzymują zapłatę za nałożenie rąk? Albowiem przez to nałożenie rąk udzielany jest z nieba Duch Święty.  
-  
 
 
 ### Ant 2  
@@ -5017,26 +2521,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-I tak: tajemnica to jest wielka w odniesieniu do Chrystusa i Kościoła. Większa jest od tej, która w figurze poprzedzała tę, która teraz z całą prawdą się spełniła. Tam bowiem Salomon był figurą, tu Chrystus jest w swoim ciele. Z dwojga więc Kościół się składa: z tego, aby nie znał grzechu, lub z tego, aby przestał grzeszyć. Pokuta bowiem winę usuwa, mądrość przed nią broni.  
-  
-
-
-### Lectio3  
-Zresztą znak Jonasza, jako figura męki Pana, jest też zarazem świadectwem ciężkich grzechów, jakie Żydzi popełnili. Można się też w nim dopatrywać wyroczni Bożego Majestatu i dowodu Jego miłosierdzia. O ile bowiem idzie o Niniwitów, to przedstawiona jest tu kara, jaka ich czeka, a i lekarstwo na nią. Toteż i Żydzi nie powinni rozpaczać, iż nie dostąpią przebaczenia, byleby chcieli pokutować.  
-  
-
-
-### Responsory3  
-R. Ukryjcie jałmużnę na łonie ubogich, a ona będzie się wstawiać za wami u Pana:  
-* Bo jak woda gasi ogień, tak jałmużna gasi grzechy.  
-V. Dawajcie jałmużnę, a oto wszystko czystym się stanie.  
-R. Bo jak woda gasi ogień, tak jałmużna gasi grzechy.  
-Chwała Ojcu.  
-R. Bo jak woda gasi ogień, tak jałmużna gasi grzechy.  
-  
-
-
 ### Ant 2  
 To pokolenie * złe i przewrotne znaku szuka, a znak mu nie będzie dany, jedno znak Jonasza proroka.  
   
@@ -5057,24 +2541,6 @@ Jako był Jonasz * w brzuchu wieloryba trzy dni i trzy noce, tak będzie Syn Cz�
 Oświeć, Panie umysły nasze jasnością, światłości swojej: abyśmy zrozumieli, co czynić mamy i to co dobre wykonywać mogli.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Lękałbym się, gdybym nie znał miłosierdzia Twego, Panie; lecz Ty powiedziałeś: Nie pragnę śmierci grzesznika, ale raczej, aby się nawrócił i miał życie.  
-* Ty niewiastę chananejską i celnika wezwałeś do pokuty.  
-V. Według wielu boleści w moim sercu Twoje pocieszenie uwesela duszę moją.  
-R. Ty niewiastę chananejską i celnika wezwałeś do pokuty.  
-  
-
-
-### Lectio2  
-Córka moja ciężko przez szatana jest dręczona. Ja za córkę niewiasty chananejskiej uznaję dusze wierzących, które dręczone były bardzo przez szatana, nie znając Stwórcy i czcząc kamienie. A On nie odpowiedział jej ani słowa. Nie przez faryzejską pychę ani też dumę, jak uczeni w Piśmie, ale by się nie okazać sprzecznym ze swym własnym słowem, przez które nakazywał: Na drogę pogan nie zachodźcie i do miast samarytańskich nie wchodźcie. Nie chciał bowiem prowokować oszczerców, a doskonałe zbawienie pogan odkładał na czas męki i zmartwychwstania.  
-  
-
-
-### Lectio3  
-Tedy przystąpili uczniowie Jego i prosili Go, mówiąc: „Odpraw ją, bo woła za nami”. W owym czasie uczniowie jeszcze nie znali tajemnic Pańskich i bądź to prosili za ową niewiastą chananejską (inny z Ewangelistów nazwał ją Syrofenicjanką), poruszeni miłosierdziem; bądź też pragnęli uwolnić się od jej natręctwa, bo coraz bardziej się powtarzając, wołała jakby na surowego lekarza, nie na łagodnego. On zaś odpowiadając, rzekł: „Nie zostałem posłany, jeno do owiec, które zginęły z domu izraelskiego”. Nie żeby i do pogan nie został posłany, lecz że najpierw został posłany do Izraela, aby skoro Żydzi nie przyjęli Ewangelii, mógł się udać z czystym sumieniem do pogan.  
-  
 
 
 ### Ant 2  
@@ -5099,16 +2565,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-A więc czy to w Zakonie, czy u Proroków, czy w Ewangelii liczba czterdzieści odnosi się do postu. Wielki zaś i ogólny post polega na wstrzymaniu się od niegodziwości, od niedozwolonych uciech światowych. Na tym zasadza się doskonały post, abyśmy wyrzekłszy się bezbożności i żądz światowych, rozsądnie, sprawiedliwie i pobożnie żyli na tym świecie. Jaką nagrodę temu postowi Apostoł przypisuje? Tak mówi dalej: Oczekując owej błogosławionej nadziei i objawienia się chwały wielkiego Boga i Zbawiciela naszego, Jezusa Chrystusa. W tym więc świecie jakby czterdziestodniowy post zachowujemy, gdy nasze życie jest prawe, gdy wstrzymujemy się od niegodziwości i niedozwolonych uciech. A ponieważ ta wstrzemięźliwość nie będzie bez nagrody, oczekujemy owej błogosławionej nadziei i objawienia się chwały wielkiego Boga i Zbawiciela naszego, Jezusa Chrystusa. Gdy nadzieja się urzeczywistni, otrzymamy w nagrodę po denarze. Taka bowiem zapłata wręczona jest robotnikom według Ewangelii pracującym w winnicy, a jak wierzę, o tym pamiętacie. Nie potrzeba bowiem wszystkiego przypominać, jakbyście byli niedokształceni i nieuświadomieni. Denar więc, który otrzymał nazwę od liczby dziesięć, jest udzielany; a gdy go się złączy z liczbą czterdziestu, staje się pięćdziesiątką, toteż z wysiłkiem obchodzimy Czterdziestnicę przed Paschą, a natomiast, jakby otrzymawszy zapłatę, radujemy się przez Pięćdziesiątnicę po odbyciu Paschy.  
-  
-
-
-### Lectio3  
-Pamiętajcie o tym, co na początku wam przedłożyłem o liczbie trzydziestu ośmiu lat u owego chorego. Chcę wyjaśnić, dlaczego tę liczbę trzydzieści osiem bardziej do choroby niż do zdrowia się stosuje. A więc, jak powiedziałem, pełnią Zakonu jest miłość. Do wypełnienia Zakonu we wszystkich dziełach należy liczba czterdzieści. Dwa są przykazania miłości przez Pana ukazane: Będziesz miłował Pana Boga twego ze wszystkiego serca twego i ze wszystkiej duszy twojej, i ze wszystkiej myśli twojej i Będziesz miłował bliźniego twego jako siebie samego. Na tych dwóch przykazaniach cały Zakon zawisł i Prorocy. Słusznie i wdowa wrzuciła wszystko, co miała – dwa pieniążki – do skarbony Boga. Słusznie i właściciel gospody otrzymał dwa pieniążki, aby troszczył się o uzdrowienie chorego, którego rozbójnicy poranili; słusznie i u Samarytan Jezus dwa dni przebywał, aby w miłości ich umocnić. W podwójnej więc owej liczbie, która coś dobrego oznacza, szczególniej ukazuje się dwojaka miłość. Jeśli więc liczba czterdzieści wyraża doskonałość Zakonu, a Zakon wypełnia się tylko w tym podwójnym przykazaniu miłości, to dlaczego się dziwisz, iż ten był chory, który miał lat czterdzieści bez dwóch?  
-  
-
-
 ### Ant 2  
 Anioł Pański * zstąpił z nieba, i poruszała się woda i ozdrowiał.  
   
@@ -5129,16 +2585,6 @@ Ten który mnie uleczył * rzekł mi: weźmij łoże twe, a idź w pokoju.
 Wysłuchaj nas, miłosierny Boże, i serca nasze racz światłem łaski swojej oświecić.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Aby tedy umocnić w swoich uczniach panowanie tej tak koniecznej do zbawienia wiary, zagadnął ich Pan, aby się wypowiedzieli – wobec różnych co do tego opinii ludzkich – za kogo oni sami Go mają i co o Nim sądzą. Wtedy Apostoł Piotr, przezwyciężając na podstawie światła od Ojca Niebieskiego ograniczoność zmysłów i czysto ludzkie patrzenie, oczyma ducha dojrzał w Nim Syna Boga żywego. I wyznał swoją wiarę w majestat Bóstwa właśnie dlatego, że sięgał wzrokiem poza postać z ciała i krwi złożoną. A tą niebosiężną wiarą tak przypadł Panu do serca, że obsypany szczęściem błogosławieństwa, otrzymał moc świętej i niezłomnej opoki, pozwalającej zbudowanemu na niej Kościołowi zwycięsko opierać się bramom piekieł i prawom śmierci i wydawać we wszystkich sprawach wyroki, wtedy tylko wiążące lub rozwiązujące w niebie, gdy Piotr zasiada na stolicy sędziowskiej.  
-  
-
-
-### Lectio3  
-To nadprzyrodzone zrozumienie świętego Piotra, co z taką pochwałą się spotkało, trzeba było, najmilsi, uzupełnić objaśnieniem tajemnicy niższej natury Pana. Apostoł wzbił się wiarą do wyznania Bóstwa w Chrystusie. Ale trzeba było go ustrzec od mniemań, jakoby żadną miarą nie dało się pogodzić z Bóstwem – niedostępnym przecież z istoty swej dla cierpień – przyjęcie przezeń na siebie naszej słabej natury, albo też jakoby w Chrystusie natura ludzka była aż tak uwielbioną, że jej ani kaźń nie mogłaby się imać, ani śmierć dotknąć. Dlatego to właśnie – jak czytamy w Ewangelii – począł Pan okazywać uczniom swoim, że potrzeba, aby szedł do Jeruzalem i tam cierpiał wiele od starszych, i uczonych w Piśmie, i przedniejszych kapłanów; i był zabity, a trzeciego dnia zmartwychwstał. A kiedy święty Piotr, oświecony nadprzyrodzonym światłem i przejęty żarliwym wyznaniem wiary w Syna Bożego, ze szczerym i świętym, jak mniemał, oburzeniem odrzucił samą możliwość zniewag i hańbę okrutnej śmierci, wtedy Chrystus łagodnie go za to skarcił, a jednocześnie zachęcił go do udziału w swoich cierpieniach.  
-  
 
 
 ### Ant 2  
@@ -5163,45 +2609,6 @@ Przez Pana.
   
 
 
-### Lectio2  
-*Rdz 27:11-20*  
-11 Któréj on odpowiedział: Wiesz, iż Ezaw brat mój jest człowiek kosmaty, a ja goły:  
-12 Jeźli się mnie dotknie ojciec mój, a poczuje, boję się, aby nie mniemał, żem chciał z niego szydzić: i przywiodę na się przeklęctwo miasto błogosławieństwa.  
-13 Do którego matka: Na mnie, pry, niech będzie to przeklęctwo, synu mój: tylko słuchaj głosu mego, a szedłszy przynieś, com rzekła.  
-14 Poszedł i przyniósł, i dał matce. Zgotowała ona potrawy jako wiedziała, że chciał ojciec jego.  
-15 A w szaty Ezawowe bardzo dobre, które u siebie miała doma, oblokła go.  
-16 I skórki koźlęce obwinęła wkoło ręku, i gołość szyje jego okryła.  
-17 I dała potrawę, i chleb, którego była napiekła, oddała.  
-18 Które on wniósłszy rzekł: Ojcze mój? A on odpowiedział: Słyszę: ktoś ty jest, synu mój?  
-19 I rzekł Jakób: Jam jest pierworodny twój Ezaw: uczyniłem, jakoś mi rozkazał: wstań, siądź, a jedz z łowu mego, aby mi błogosławiła dusza twoja.  
-20 Izaak zasię rzekł do syna swego:  Jakóżeś tak rychło naleść mógł, synu mój? Który odpowiedział: Wola Boża była, że mi się prędko nagodziło, czegom chciał.  
-  
-
-
-### Lectio3  
-*Rdz 27:21-29*  
-21 I rzekł Izaak: Przystąp sam, żebym się ciebie dotknął, synu mój, a doznał, jeźliś ty jest syn mój Ezaw, czyli nie.  
-22 Przystąpił on do ojca, a pomacawszy go, rzekł Izaak: Głos wprawdzie głos Jakóbów jest: ale ręce są ręce Ezawowe.  
-23 I nie poznał go, iż kosmate ręce podobieństwo starszego wyrażały. A tak błogosławiąc mu,  
-24 Rzekł: Tyżeś jest syn mój Ezaw? Odpowiedział: Jam jest.  
-25 A on: podaj mi, prawi, potrawy z łowu twego, synu mój, abyć błogosławiła dusza moja. Które gdy podane jadł, podał mu téż i wina, którego napiwszy się,  
-26 Rzekł do niego: Przystąpże do mnie, całuj mię, synu mój.  
-27 Przystąpił i całował go. I wnet skoro poczuł wonność szat jego, błogosławiąc mu rzekł: Oto wonność syna mego jako wonność pola pełnego, któremu błogosławił Pan.  
-28 Dajże Boże, z rosy niebieskiéj, i z tłustości ziemskiéj, obfitość zboża i wina.  
-29 I niech ci służą narodowie, i niech ci się kłaniają pokolenia: bądź panem braciéj twojéj, a niech się pochylają przed tobą synowie matki twojéj. Ktoby cię przeklinał, niech ten przeklętym będzie: a ktoby cię błogosławił, niech będzie błogosławieństwa pełen.  
-  
-
-
-### Responsory3  
-R. Dajże Boże, z rosy niebieskiéj, i z tłustości ziemskiéj, obfitość: niech ci służą narodowie pokolenia:  
-* Bądź panem braciéj twojéj.  
-V. A niech się pochylają przed tobą synowie matki twojéj.  
-R. Bądź panem braciéj twojéj.  
-Chwała Ojcu.  
-R. Bądź panem braciéj twojéj.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Mateusza  
 *Mt 17:1-9*  
@@ -5210,22 +2617,6 @@ Onego czasu: Wziął Jezus Piotra i Jakuba i Jana, brata jego, i zaprowadził ic
 Z Homilii św. Leona, Papieża  
 *Homilia o Przemienieniu Pańskim*  
 Wziął Jezus Piotra i Jakuba, i brata jego, Jana, i wszedłszy z nimi w czworo na górę wysoką, ukazał im swoją chwałę w całym blasku. Bo chociaż oni już rozumieli, że jest w Nim Majestat Boski, nie domyślali się jeszcze, jaka potęga tai się też w Jego ciele, okrywającym Bóstwo. Do tego właśnie bardzo wyraźnie i znacząco zmierzała obietnica, że niektórzy z otaczających Go uczniów nie zaznają śmierci, zanim nie ujrzą Syna Człowieczego przychodzącego w Królestwie swoim. To znaczy, że już przed swoją śmiercią zobaczą Go w królewskiej jasności, właściwej z osobna także ludzkiej Jego naturze. To właśnie chciał ukazać tym trzem mężom naocznie. Bo owego niewysłowionego i niedostępnego widzenia samego Bóstwa, jakie zachowane jest na życie wieczne błogosławionym czystego serca, żadną miarą nie mogli oni dostąpić i oglądać, dopóki śmiertelnym ciałem byli obleczeni.  
-  
-
-
-### Responsory7  
-R. Anioł rzekł do Jakóba:  
-* Puść mię; bo już wschodzi zorza. Odpowiedział: Nie puszczę cię, aż mi błogosławisz. I błogosławił mu na onemże miejscu.  
-V. I powstał Jakób, a oto mąż biedził się z nim aż do zarania: który widząc, iż go nie mógł przemódz, rzekł mu.  
-R. Puść mię; bo już wschodzi zorza. Odpowiedział: Nie puszczę cię, aż mi błogosławisz. I błogosławił mu na onemże miejscu.  
-  
-
-
-### Responsory8  
-R. Widziałem Boga twarzą w twarz:  
-* A zbawiona jest dusza moja.  
-V. I powiedział mi: nie będziesz nazywany Jakób lecz Izreal będzie imię twoje.  
-R. A zbawiona jest dusza moja.  
   
 
 
@@ -5318,32 +2709,6 @@ Widzenia, któreście widzieli, * nikomu nie powiadajcie, aż Syn Człowieczy zm
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Kiedy Jakub, wyszedłszy z Beer-Szeby, wyruszył do Charanu, rzekł do niego Pan, mówiąc:  
-* Ziemię, na której śpisz, oddaję tobie i twemu potomstwu.  
-V. Jakub zbudował z kamieni ołtarz na cześć Pana i rozlał na jego wierzchu oliwę, a Bóg pobłogosławił go, mówiąc:  
-R. Ziemię, na której śpisz, oddaję tobie i twemu potomstwu.  
-  
-
-
-### Lectio2  
-Oskarżał tych, którzy nie szukali; karał tych, którzy szukali. Dobrą rzeczą jest bowiem szukać duszy Chrystusa w taki sposób, w jaki uczniowie jej szukali; a złym jest tak szukać, jak jej szukali Żydzi. Pierwsi czynili to, aby ją posiadać; drudzy, żeby ją zgubić. Wreszcie tym, którzy Go szukali w złym zamiarze i przewrotnym sercem, dalej powiedział: Szukać Mnie będziecie. Jednakże abyście nie sądzili, że należycie Mnie szukacie, dodał: pomrzecie w grzechu waszym. Złe szukanie Chrystusa polega na tym, iż ktoś umiera w swym grzechu, że nienawidzi Tego, który jedynie zbawić go może.  
-  
-
-
-### Responsory2  
-R. Bóg ukazał się Jakubowi i pobłogosławił go, mówiąc: Ja jestem Bóg z Betel, gdzie namaściłeś kamień i gdzie ślub Mi złożyłeś:  
-* Rozkrzewię cię i rozmnożę.  
-V. Prawdziwie Pan jest na tym miejscu, a ja nie wiedziałem.  
-R. Rozkrzewię cię i rozmnożę.  
-  
-
-
-### Lectio3  
-Ludzie, którzy pokładają nadzieję w Bogu, nie powinni złem za zło odpłacać, tak jak Żydzi za dobro złem odpłacili. Zapowiedział im, wiedząc, iż umrą w swym grzechu, i wyrok im ogłosił. Na koniec dodał: Dokąd Ja idę, wy pójść nie możecie. To i w innym miejscu uczniom powiedział, ale im nie rzekł: Pomrzecie w grzechu waszym. Co im powiedział? To samo, co i Żydom: Dokąd Ja idę, wy pójść nie możecie. Nie odebrał im nadziei, lecz zapowiedział zwłokę. Wtedy bowiem, gdy Pan uczniom to powiedział, uczniowie iść jeszcze nie mogli tam, gdzie On szedł, lecz potem tam podążyli; ci zaś, którym, przewidując, powiedział: Pomrzecie w grzechu waszym, nigdy się tam nie udali.  
-  
-
-
 ### Ant 2  
 Jam jest początek * który i mówię wam.  
   
@@ -5364,16 +2729,6 @@ Który Mię posłał, * ze Mną jest, i nie zostawił Mię samego: bo Ja, co Mu 
 Racz wysłuchać próśb naszych wszechmogący Boże tym, którym dajesz łaskę ufności w Twą dobroć, racz łaskawie udzielić skutków Twego miłosierdzia.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Bo wiążą ciężkie i nieznośne brzemiona i nakładają na barki ludzkie, a palcem swym nie chcą ich ruszyć. To, ogólnie rzecz biorąc, przeciwko wszelkim nauczycielom, którzy wydają wielkie polecenia, a nie czynią nawet mało. Należy też zauważyć, że i barki, i palec, i brzemiona, i więzy, których się używa do skrępowania owych brzemion, należy rozumieć w sposób duchowy. Wszystkie też sprawy swe czynią, aby byli widziani od ludzi. Kto przeto tak czyni cokolwiek, aby był widziany od ludzi, uczonym jest w Piśmie i faryzeuszem.  
-  
-
-
-### Lectio3  
-Powiększają bowiem filakterie swe i wydłużają kraj szat swoich. Chętnie też zajmują pierwsze miejsca na ucztach i w synagogach, a lubią pozdrowienia na rynku i aby ich ludzie „Rabbi” nazywali. Biada nam nieszczęsnym, na których przeszły błędy faryzeuszy. Pan, kiedy dawał przez Mojżesza przykazania Prawa, na koniec dodał: Przywiążesz je do twojej ręki i będą stale przed twymi oczyma, a takie jest tego znaczenie: Moje przykazania niech będą w twojej ręce, aby uczynkiem były wypełnione; niech będą przed twymi oczyma, abyś je dniem i nocą rozważał. Faryzeusze, źle to rozumiejąc, pisali na pergaminach dekalog Mojżesza, to jest dziesięć słów Prawa, zwijali je i wiążąc na czole, czynili jakby wieniec na głowie, aby się zawsze poruszały przed oczyma.  
-  
 
 
 ### Ant 2  
@@ -5398,16 +2753,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Ta więc niewiasta, powodowana macierzyńską troskliwością, błagała Zbawiciela, mówiąc: Niechaj ci dwaj synowie moi zasiądą w Królestwie Twoim, jeden po prawicy Twojej, a drugi po lewicy. Jest to wprawdzie błąd, ale błąd miłości; serce bowiem matki nie umie czekać. Jakkolwiek ma przesadne żądania, jest to jednak chciwość wybaczalna, gdyż nie pragnie pieniędzy, ale łaski. Ani też nie jest zuchwała taka prośba, która ma na oku nie siebie, ale dzieci. Wyobraźcie sobie matkę, zrozumcie matkę!  
-  
-
-
-### Lectio3  
-Chrystus miał wzgląd na miłość macierzyńską, która pokrzepiała staruszkę nadzieją czekającej synów nagrody. Jakkolwiek nękały ją matczyne troski, znosiła nieobecność najdroższych swych synów. Zwróćcie uwagę, że jest to niewiasta, to znaczy istota słabsza, której Pan nie umocnił jeszcze własną Męką. Zwróćcie uwagę, powtarzam, na słabość nieumiarkowanej chciwości, przechodzącej na wszystkich jako dziedzictwo po Ewie, pierwszej niewieście, od której to słabości nie uwolnił nas jeszcze Pan krwią swoją; jeszcze bowiem Jezus swoim bólem nie zniszczył głęboko zakorzenionych we wszystkich sercach pragnień, które są niezgodne z chwałą Bożą. Niewiasta ta błądziła wskutek winy dziedzicznej.  
-  
-
-
 ### Ant 2  
 Oto wstępujemy * do Jeruzalem, a Syn Człowieczy będzie wydany na krzyżowanie.  
   
@@ -5428,16 +2773,6 @@ Podadzą Go poganom * ku naigraniu i biczowaniu i krzyżowaniu.
 Boże, miłośniku i odnowicielu niewinności, kieruj ku sobie serca sług Twoich, aby żarliwością ducha Twego ożywieni, posiedli stałość w wierze i gorliwość w pełnieniu dobrych czynów.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Czymże więc jest wyznanie grzechów, jeśli nie pewnego rodzaju otworzeniem rany? Przez spowiedź zbawiennie się wydostaje jad grzechu, który zgubnie ukrywał się w duchu. Rany bowiem skóry wydobywają na zewnątrz jątrzący się jad. Czyż wyznając grzechy, czynimy co innego, jak to, iż odkrywamy zło, które się w nas taiło? Lecz Łazarz, pokryty wrzodami, pragnął nasycić się odrobinami, które spadały ze stołu bogacza, a nikt mu nie dawał, ponieważ ów pyszny lud żydowski uważał za zniewagę dla siebie, gdyby któregoś z pogan dopuścił do znajomości Prawa.  
-  
-
-
-### Lectio3  
-Ponieważ nie korzystał z nauk Prawa dla okazania miłości, lecz dla swego wywyższenia, jakby napuchł z powodu nagromadzonych bogactw, a że z jego ust płynęły mądre słowa, były one jakby okruszynami spadającymi ze stołu. I przeciwnie: rany leżącego żebraka lizały psy. Niekiedy Pismo święte pod nazwą psów zwykło rozumieć kaznodziejów. Język bowiem psów uzdrawia rany, gdy je liżą. Tak też i święci nauczyciele, pouczając nas przy wyznawaniu grzechów, jakby leczą rany ducha, językiem jej dotykając.  
-  
 
 
 ### Ant 2  
@@ -5462,16 +2797,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Toteż słusznie masz u Mateusza, iż płotem ją ogrodził, to jest, że otoczył ją opieką Bożą, aby nie mogły jej łatwo napaść bestie duchowe. I wykopał w niej prasę. Jak zrozumiemy, co oznacza prasa, czyli tłocznia? Chyba tak, iż niektóre psalmy mają w tytule „dla tłoczni”, to jest, iż w nich tajemnice Męki Pańskiej, jak moszcz winny, z większą siłą wrzały pod działaniem Ducha Świętego? Wreszcie za pijanych tych uważano, których napełnił Duch Święty. A więc Pan i tu wykopał tłocznię, w której z duchową obfitością miał płynąć plon wewnętrznego życia wyciśnięty z rozumnego grona, czyli duszy.  
-  
-
-
-### Lectio3  
-Zbudował wieżę. Wzniósł mianowicie wierzchołek Zakonu i tak w tej winnicy umocnionej, przygotowanej, ozdobionej umieścił Żydów. A w czasie owoców wysłał swe sługi. Słusznie powiedział: czas owoców, a nie ich zbiorów, Żydzi bowiem żadnego owocu nie wydali, żadnego z tej winnicy nie było zbioru. Tak Pan o niej powiedział: Spodziewałem się, że wyda winogrona, lecz ona zrodziła ciernie. Toteż nie winem radości, nie duchowym moszczem winnym, lecz tłocznie opływały w nadmiarze krwią Proroków.  
-  
-
-
 ### Ant 2  
 Złe źle potraci, * a winnicę swą najmie inszym oraczom, którzy oddadzą mu owoc czasów swoich.  
   
@@ -5492,24 +2817,6 @@ Szukając Go pojmać, * bali się rzesz, ponieważ Go jako proroka mieli.
 Racz dać Panie, ludowi Twemu zbawienie duszy i ciała, aby przez pełnienie dobrych uczynków, zasłużył sobie na nieustanną opiekę Twoją.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Ojcze, zgrzeszyłem przeciw niebu i przeciw tobie. Już nie jestem godzien zwać się synem twoim:  
-* Uczyń mię jakby jednym z najemników twoich.  
-V. Iluż to najemników w domu ojca mego ma dosyć chleba, gdy ja tu głodem przymieram. Wstanę i pójdę do ojca mego i mu powiem.  
-R. Uczyń mię jakby jednym z najemników twoich.  
-  
-
-
-### Lectio2  
-Odjechał w daleką krainę. Co jeszcze bardziej oddala, jak odejść od siebie samego; jak odłączyć się nie przestrzenią, lecz postępowaniem; nie odległością ziem, lecz zapatrywań i, jakby otoczywszy się napływem fal światowej rozwiązłości, oddzielić się od Świętych. Albowiem kto od Chrystusa się odłącza, jest wygnańcem z ojczyzny, a obywatelem świata. My jednak nie jesteśmy przychodniami i obcymi, ale współobywatelami Świętych i domownikami Boga. Byliśmy bowiem dalekimi, staliśmy się bliskimi we krwi Chrystusowej. Nie bądźmy zawistni względem tych, którzy powracają z dalekiej krainy, bo i my byliśmy w krainie odległej, jak o tym Izajasz poucza: Światłość wzeszła siedzącym w krainie cienia śmierci. A więc ową daleką krainą jest cień śmierci.  
-  
-
-
-### Lectio3  
-My zaś, dla których oblicza tchnieniem jest Chrystus Pan, żyjemy w cieniu Chrystusa. Toteż Kościół mówi (słowami Pieśni nad pieśniami): W Jego cieniu pragnęłam i siedziałam. A więc ten, którzy żył rozwiąźle, zmarnował wszystkie ozdoby swej natury. Toteż ty, który otrzymałeś obraz Boga i jesteś podobny do Niego, strzeż się, abyś nierozumną brzydotą go nie zniszczył. Jesteś dziełem Boga i nie mów do drzewa: „Ty jesteś moim ojcem”, abyś się nie upodobnił do drzewa, napisane jest bowiem: Do bożków z drzewa będą podobni ci, którzy je robią.  
-  
 
 
 ### Ant 2  
@@ -5545,91 +2852,11 @@ Przez Pana.
   
 
 
-### Responsory1  
-R. Widząc Józefa z daleka, bracia rozmawiali między sobą, mówiąc: Oto nadchodzi ten, który sny miewa!  
-* Chodźcie, zabijmy go i zobaczmy na co mu się przydadzą sny jego!  
-V. A gdy bracia Józefa ujrzeli, że ojciec kocha go bardziej niż pozostałych braci, tak go znienawidzili, że w żaden sposób nie mogli przyjaźnie z nim porozmawiać. Dlatego też powiedzieli:  
-R. Chodźcie, zabijmy go i zobaczmy na co mu się przydadzą sny jego!  
-  
-
-
-### Lectio2  
-*Rdz 37:11-20*  
-11 Zajrzeli mu tedy bracia jego: a ojciec milcząc rzecz uważał.  
-12 A gdy bracia jego, pasąc bydło ojca swego, mieszkali w Sychem,  
-13 Rzekł do niego Izrael: Bracia twoi pasą owce w Sychimie: pójdź, poślę cię do nich.  
-14 Który gdy odpowiedział: Gotówem, rzekł mu: Idź, a obacz, jeźli się wszystko szczęśliwie powodzi braciéj twojéj i bydłu: a daj mi znać, co się dzieje.  
-15 Posłany z doliny Hebron przyszedł do Sychem: i nadszedł go jeden mąż błądzącego po polu, i spytał, czegoby szukał.  
-16 A on odpowiedział: Braciéj mojéj szukam: powiedz mi, kędy pasą trzody.  
-17 I rzekł mu mąż: Odeszli z miejsca tego: a słyszałem je mówiące: Pójdźmy do Dothain. Poszedł tedy Józeph za bracią swoją, i nalazł je w Dothain.  
-18 Którzy ujrzawszy go zdaleka, niźli przyszedł do nich, myślili go zabić.  
-19 I mówili do siebie: Onoć idzie widosen.  
-20 Pójdźcie, zabijmy go i wrzućmy do studnie staréj: i rzeczem: Zły zwierz go pożarł: a tam się pokaże, co mu pomogą sny jego.   
-  
-
-
-### Responsory2  
-R. Juda rzekł do swych braci: Oto przechodzą Izmaelici. Chodźcie, sprzedajmy Józefa, a nasze ręce nie skalają się zabójstwem.  
-* Wszak jest on naszym ciałem i naszym bratem.  
-V. Cóż nam przyjdzie z tego, gdy zabijemy naszego brata, i ukryjemy krew jego; lepiej będzie go sprzedać.  
-R. Wszak jest on naszym ciałem i naszym bratem.  
-  
-
-
-### Lectio3  
-*Rdz 37:21-28*  
-21 Co usłyszawszy Ruben, starał się wybawić go z rąk ich, i mówił:  
-22 Nie zabijajcie dusze jego, ani wylewajcie krwie, ale wrzućcie go do studnie téj, która jest na puszczy, a ręce wasze zachowajcie niewinne: a to mówił, chcąc go wyrwać z ręku ich, i wrócić ojcu swemu.  
-23 Wnet tedy skoro przyszedł do braciéj swéj, zewlekli go z onej suknie długiéj i wzorzystéj:  
-24 I wpuścili go do studnie staréj, która nie miała wody.  
-25 A usiadłszy aby jedli chleb, ujrzeli Ismaelity podróżne, jadąc z Galaad, i wielbłądy ich niosące korzenie, i resynę, i staktę do Egiptu.  
-26 Rzekł tedy Judas do braciéj swéj: Cóż nam pomoże, jeźli zabijemy brata naszego, i zatajemy krew jego?  
-27 Lepiéj że go przedamy Ismaelitom, a ręce nasze niech się nie mażą; brat bowiem i ciało nasze jest: i przyzwolili bracia na mowy jego.  
-28 A gdy mijali Madyanitowie kupcy, wyciągnąwszy go z studnie, przedali go Ismaelitom za dwadzieścia śrebrników, którzy go zawieźli do Egiptu.  
-  
-
-
-### Responsory3  
-R. Bracia, wyciągnąwszy Józefa ze studni, sprzedali go Izmaelitom za dwadzieścia sztuk srebra.  
-* Gdy Ruben wrócił do studni i zobaczył, że go nie ma, z płaczem rozdarł swoje szaty i powiedział: * Chłopca nie ma! A dokąd ja pójdę?  
-V. A oni umoczyli suknię Józefa we krwi kozła i wysłali człowieka, aby zaniósł ją ojcu i powiedział: Zobacz, czy to suknia twego syna, czy nie.  
-R. Gdy Ruben wrócił do studni i zobaczył, że go nie ma, z płaczem rozdarł swoje szaty i powiedział:  
-Chwała Ojcu.  
-R. Chłopca nie ma! A dokąd ja pójdę?  
-  
-
-
 ### Responsory3(rubrica 1960)  
 R. Bracia, wyciągnąwszy Józefa ze studni, sprzedali go Izmaelitom za dwadzieścia sztuk srebra.  
 * Gdy Ruben wrócił do studni i zobaczył, że go nie ma, z płaczem rozdarł swoje szaty i powiedział: Chłopca nie ma! A dokąd ja pójdę?  
 V. A oni umoczyli suknię Józefa we krwi kozła i wysłali człowieka, aby zaniósł ją ojcu i powiedział: Zobacz, czy to suknia twego syna, czy nie.  
 R. Gdy Ruben wrócił do studni i zobaczył, że go nie ma, z płaczem rozdarł swoje szaty i powiedział: Chłopca nie ma! A dokąd ja pójdę?  
-  
-
-
-### Responsory4  
-R. Jakub, widząc szatę Józefa, z płaczem rozdarł swoje szaty i zawołał:  
-* Zwierz okrutny pożarł mego syna Józefa!  
-V. Bracia wzięli jego suknię i posłali do ojca; a ojciec, rozpoznawszy ją, zawołał:  
-R. Zwierz okrutny pożarł mego syna Józefa!  
-  
-
-
-### Responsory5  
-R. Gdy Józef przybył do ziemi egipskiej, słuchał mowy, której nie znał; jego ręce służyły w trudzie,  
-* A jego język głosił mądrość pośród książąt.  
-V.  Kajdanami ścisnęli mu nogi, żelazo przeniknęło jego duszę. Aż się spełniło jego słowo.  
-R. A jego język głosił mądrość pośród książąt.  
-  
-
-
-### Responsory6  
-R. Pamiętaj na mię, gdy się będziesz miał dobrze:  
-* Abyś namienił Pharaonowi, iżby mię wywiódł z téj ciemnice: * Bo kradzieżą wzięto mię, a tu mię do tego dołu niewinnie wsadzono.  
-V. Trzy dni jeszcze są, po których wspomni Pharao na posługi twoje, i przywróci cię ku pierwszemu stanowi: wtedy pamiętaj na mię.  
-R. Abyś namienił Pharaonowi, iżby mię wywiódł z téj ciemnice:  
-Chwała Ojcu.  
-R. Bo kradzieżą wzięto mię, a tu mię do tego dołu niewinnie wsadzono.  
   
 
 
@@ -5641,22 +2868,6 @@ Onego czasu: Wyrzucał Jezus czarta, a ten był niemy. A gdy wyrzucił czarta, p
 Homilia świętego Bedy Czcigodnego, Kapłana  
 *Księga 4., rozdz. 48. (do rozdz. 11. Ewangelii wg św. Łukasza)*  
 Ewangelista Mateusz opowiada o tym opętanym, że był nie tylko niemy, ale i ślepy. Wspomina też, że został on uzdrowiony przez Pana, tak że mówił i widział. A zatem w tym jednym człowieku naraz dokonały się trzy cudowne znaki: ślepy widzi, niemy mówi, opętany zostaje uwolniony od szatana. Wówczas stało się to wprawdzie zgodnie z porządkiem cielesnym, ale spełnia się codziennie, gdy nawracają się wierzący. Najpierw, dzięki wygnaniu szatana, mogą ujrzeć światło wiary, a następnie milczące dotąd usta otwierają się ku wychwalaniu Boga. I mówili niektórzy z nich: „Przez Belzebuba, księcia czartowskiego, wyrzuca czarty”. Nie mówili tych oszczerstw niektórzy z tłumu, ale faryzeusze i uczeni w Piśmie, jak o tym świadczą inni Ewangeliści.  
-  
-
-
-### Responsory7  
-R. Słusznie to cierpiemy; bośmy zgrzeszyli przeciw bratu naszemu, widząc utrapienie dusze jego, gdy się nam modlił, a nie wysłuchaliśmy:  
-* Dlategóż przyszedł na nas ten kłopot.  
-V. Rzekł Ruben, braci swojej: Azam wam nie mówił: Nie grzeszcie przeciw dziecięciu, a nie słuchaliście mię?  
-R. Dlategóż przyszedł na nas ten kłopot.  
-  
-
-
-### Responsory8  
-R. Rzekł Ruben, braci swojej: Azam wam nie mówił: Nie grzeszcie przeciw dziecięciu, a nie słuchaliście mię?  
-* Otóż krwie jego dochodzą.  
-V. Słusznie to cierpiemy; bośmy zgrzeszyli przeciw bratu naszemu, widząc utrapienie dusze jego, gdy się nam modlił, a nie wysłuchaliśmy:  
-R. Otóż krwie jego dochodzą.  
   
 
 
@@ -5755,42 +2966,6 @@ Podnosząc. głos * niektóra niewiasta z rzeszy rzekła: Błogosławiony żywot
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Weźcie stąd ze sobą dary i udajcie się do władcy tej ziemi, a gdy go znajdziecie, pokłońcie się przed nim do ziemi.  
-* A Bóg mój niechaj sprawi, aby się zlitował nad wami i puścił wolno owego brata waszego i tego, którego trzyma w okowach.  
-V. Weźcie, co jest najlepsze z owoców ziemi do waszych naczyń, i zanieście owemu człowiekowi w darze.  
-R. A Bóg mój niechaj sprawi, aby się zlitował nad wami i puścił wolno owego brata waszego i tego, którego trzyma w okowach.  
-  
-
-
-### Lectio2  
-Nie na darmo więc Zbawiciel usprawiedliwia się, iż żadnych cudów nie czynił w swej ojczyźnie, aby przypadkiem ktoś z nas nie myślał, że swą ojczyznę mało winien kochać. Nie mógł bowiem Ten nie kochać swych współobywateli, który kochał wszystkich, lecz właśnie oni przez swą zazdrość wyzbyli się miłości swej ojczyzny. Prawdziwie powiadam wam, że wiele wdów było za dni Eliasza. Nie żeby to były dni Eliasza, lecz iż Eliasz w nich działał albo że sprawiał dzień tym, którzy w jego dziełach widzieli światło łaski duchowej i nawracali się do Pana. Toteż otwierało się niebo dla tych, którzy widzieli wieczne i Boże tajemnice; zamykało się zaś w czasie głodu, gdy nie było pełnej znajomości Boga. Lecz o tym obszerniej mówiłem, pisząc o wdowach.  
-  
-
-
-### Responsory2  
-R. Czy to ten brat wasz najmłodszy, o którym mi mówiliście? Oby Bóg się zmiłował nad tobą, mój synu.  
-* Odszedł więc Józef pośpiesznie do domu i tam się rozpłakał, gdyż łzy nabiegły mu do oczu i nie mógł nad sobą zapanować.  
-V. A gdy Józef podniósł oczy, ujrzał stojącego przed sobą Beniamina i ogarnęło go wielkie wzruszenie na widok brata swego.  
-R. Odszedł więc Józef pośpiesznie do domu i tam się rozpłakał, gdyż łzy nabiegły mu do oczu i nie mógł nad sobą zapanować.  
-  
-
-
-### Lectio3  
-I wielu było trędowatych w Izraelu za Elizeusza Proroka, ale żaden z nich nie był oczyszczony, jeno Naaman Syryjczyk. Jasne, iż te zbawienne słowa Pana są dla nas nauką i zachętą do gorliwego oddawania czci Bogu i że nikt zdrowia nie odzyska i choroby trądu ze swego ciała się nie pozbędzie, jeśli o to z pobożną gorliwością się nie stara. Albowiem nie śpiącym dobrodziejstwa Boże są udzielane, ale tym, którzy czuwają. Powiedzieliśmy w innej księdze, iż owa wdowa, do której Eliasz był skierowany, uprzednio była podana jako figura Kościoła. Lud żydowski dał początek Kościołowi, aby złączył się z nim ów lud z obcych zebrany. Lud ten przedtem trędowaty, lud poprzednio splamiony (zanim otrzymał chrzest mistyczny w rzece), po przyjęciu chrztu, obmyty z plam ciała i ducha, już nie był trędowatym, lecz stał się nieskalaną dziewicą, bez zmarszczki.  
-  
-
-
-### Responsory3  
-R. Rzekł Józef jedenastu braciom swoim: Ja jestem Józef, którego sprzedaliście do Egiptu. Czy jeszcze żyje nasz sędziwy ojciec, o którym mi mówiliście?  
-* Idźcie i sprowadźcie go do mnie, aby mógł żyć dalej.  
-V. Oto już dwa lata trwa głód w tym kraju, a jeszcze zostało pięć lat, podczas których nie będzie orki ani żniwa.  
-R. Idźcie i sprowadźcie go do mnie, aby mógł żyć dalej.  
-Chwała Ojcu.  
-R. Idźcie i sprowadźcie go do mnie, aby mógł żyć dalej.  
-  
-
-
 ### Ant 2  
 Zaprawdę wam powiadam, * iż żaden prorok nie jest przyjemny w ojczyźnie swojéj.  
   
@@ -5811,24 +2986,6 @@ Jezus przeszedłszy * przez pośrodek ich, uszedł.
 Niech miłosierdzie Twoje, Panie, przyjdzie nam z pomocą, aby opieka Twoja wyrwała nas z zagrażających nam niebezpieczeństw grzechowych, a pomoc Twoja doprowadziła do zbawienia.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Synowie oznajmili Jakubowi, mówiąc: Józef, syn twój, żyje i panuje nad całą ziemią egipską! Gdy to usłyszał, odżył duch jego, i rzekł:  
-* Dosyć mi na tym. Pójdę go zobaczyć, zanim umrę!  
-V. A gdy Jakub usłyszał, że jego syn jeszcze żyje, ocknął się jakby z ciężkiego snu i powiedział:  
-R. Dosyć mi na tym. Pójdę go zobaczyć, zanim umrę!  
-  
-
-
-### Lectio2  
-Czy chcesz wiedzieć, że zgubiłeś się, grzesząc przeciw człowiekowi? Jeśli ten, przeciw któremu zgrzeszyłeś, upomni cię w cztery oczy, a wysłuchasz go, zyskał ciebie. Co oznacza, że zyskał ciebie, jak nie to, że zginąłbyś, gdyby cię nie zyskał? Albowiem gdybyś nie miał zginąć, jakże by cię pozyskał? Niech więc nikt nie lekceważy grzechu przeciw bratu. Mówi bowiem gdzieś Apostoł: A tak grzesząc przeciw braciom i raniąc słabe ich sumienie, grzeszycie przeciw Chrystusowi, bo wszyscy jesteśmy członkami Chrystusa. Jakże możesz nie grzeszyć przeciwko Chrystusowi, jeśli grzeszysz przeciwko członkom Chrystusa?  
-  
-
-
-### Lectio3  
-Niechaj więc nikt nie mówi: „Nie zgrzeszyłem przeciwko Bogu, tylko przeciwko bratu; zgrzeszyłem przeciwko człowiekowi, to tylko grzech lekki albo nawet nie jest to grzech”. Może dlatego mówisz: „To nic wielkiego, bo szybko się wyleczy”. Zgrzeszyłeś przeciw bratu: uczyń zadość, a będziesz uzdrowiony. Szybko popełniłeś grzech śmiertelny, szybko jednak znalazłeś lekarstwo. Któż z nas, bracia moi, miałby nadzieję na Królestwo Niebieskie, skoro Ewangelia mówi: Kto by rzekł bratu swemu „głupcze”, będzie winien ognia piekielnego? Budzi to wielką grozę, ale zobacz, jaki jest na to środek zaradczy. Jeśli tedy poniesiesz dar twój do ołtarza, a tam wspomnisz, że brat twój ma coś przeciw tobie, zostawże tam dar twój przed ołtarzem. Nie pogniewa się Bóg, że odwleczesz złożenie swego daru: bardziej od twego daru pragnie Bóg ciebie samego.  
-  
 
 
 ### Ant 2  
@@ -5853,16 +3010,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Albowiem Bóg rzekł: „Czcij ojca twego i matkę” oraz: „Kto by złorzeczył ojcu lub matce, śmiercią niech będzie ukarany”. Wy zaś powiadacie: „Ktobykolwiek rzekł ojcu albo matce: »Ofiarą jest, cokolwiek ode mnie tobie się przynależy«”, nie uczci ojca swego albo matki swojej. Cześć w Pismach nie tyle polega na pozdrowieniach i okazywaniu uprzejmości, ile raczej na ofiarowywaniu jałmużny i darów. Apostoł mówi: Miej we czci wdowy, które prawdziwie są wdowami. Tutaj cześć rozumiemy jako dar. A w innym miejscu: Kapłani na podwójną cześć zasługują, zwłaszcza ci, którzy pracują w słowie i nauczaniu Bożym. A przez to polecenie każą nam nie zawiązywać pyska wołowi młócącemu i by robotnik godzien był zapłaty swojej.  
-  
-
-
-### Lectio3  
-Pan dał przykazanie, biorąc pod uwagę bądź słabość, bądź wiek, bądź ubóstwo rodziców, aby synowie czcili swych rodziców poprzez udzielanie im tego, co niezbędne do życia. To niezwykle opiekuńcze prawo Boże faryzeusze i uczeni w Piśmie chcąc przekreślić, by wprowadzić bezbożność pod płaszczykiem pobożności, pouczali najgorszych synów, aby jeśli kto zechce przyobiecać Bogu, który jest prawdziwym Ojcem, to, co winno być ofiarowane rodzicom, dar dla Pana był stawiany wyżej, ponad podarunki dla rodziców. Albo pewnie sami rodzice widzieli dary poświęcone Bogu, więc aby nie narazić się na zbrodnię świętokradztwa, ustępowali i cierpieli niedostatek i działo się tak, że ofiara dzieci pod pozorem potrzeb Świątyni i Boga, stawała się źródłem dochodu kapłanów.  
-  
-
-
 ### Ant 2  
 Słuchajcie a rozumiejcie * podania, które Pan nam daje.  
   
@@ -5883,16 +3030,6 @@ Jeść nieumytemi rękoma, * człowieka nie plugawi.
 Spraw, wszechmogący Boże, abyśmy prosząc o łaskę Twej opieki, od wszelkiegc złego wybawieni byli, i z poczuciem bezpieczeństwa Tobie służyli.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Pan w szabat rozpoczął swą uzdrawiającą pracę. Chciał przez to wyrazić, że nowe twórcze dzieło tam się rozpoczęło, gdzie dawne ongi ustało. Oznacza to jednocześnie, iż Syn Boga nie podlegał Zakonowi, lecz od początku był ponad Zakonem, i że nie przyszedł rozwiązywać Zakon, ale wypełnić. Nie przez Zakon bowiem został stworzony świat, ale przez Słowo, jak to czytamy: Przez słowo Pana powstały niebiosa. Nie jest więc Zakon rozwiązany, ale wypełniony, aby został odnowiony człowiek, który już upadł. Toteż Apostoł mówi: Zwlekłszy z siebie starego człowieka, obleczcie się w nowego, który według Boga stworzony jest.  
-  
-
-
-### Lectio3  
-I dobrze się stało, że w szabat rozpoczął, aby okazać, iż jest Stwórcą i do dzieł dzieła dodaje, i w dalszym ciągu prowadzi dzieło, które już sam rozpoczął. Jeśli budowniczy chce dom odnowić, to nie rozpoczyna od fundamentów, lecz od szczytu zaczyna usuwać to, co się zestarzało. I tak tam najpierw rękę przykłada, gdzie poprzednio zaprzestał pracy. Następnie od mniejszych rzeczy rozpoczyna, aby przejść do większych. Uwolnić od szatanów i ludzie mogą, ale słowem Boga; rozkazać jednak zmarłym, aby zmartwychwstali, jest to tylko w mocy Bożej. Może też owa niewiasta, świekra Szymona i Andrzeja, była figurą naszego ciała, które trawione gorączką różnych występków, płonęło przeróżnymi żądzami. Powiedziałbym, iż nie jest mniejsza gorączka wywołana miłością, jak ta, która ciało trawi. Tamta rozgorączkowuje ducha, ta zaś ciało. Naszą bowiem gorączką jest chciwość; naszą gorączką jest żądza zmysłowa; naszą gorączką jest rozpusta; naszą gorączką jest żądza sławy; naszą gorączką jest skłonność do gniewu.  
-  
 
 
 ### Ant 2  
@@ -5917,16 +3054,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Dla ciebie Jezus zmęczył się w drodze. Znajdujemy moc Jezusa, znajdujemy i słabego Jezusa; mocnego i słabego Jezusa. Mocnego, bo na początku było Słowo, a Słowo było u Boga i Bogiem było Słowo. Ono było na początku u Boga. Chcesz wiedzieć jak mocny jest ten Syn Boga? Wszystko się przez Nie stało, a bez Niego nic się nie stało. A stało się to bez żadnego wysiłku Cóż więc mocniejszego od Tego, który bez najmniejszego trudu wszystko uczynił? Chcesz poznać słabego? Słowo stało się Ciałem i mieszkało między nami Moc Chrystusa cię stworzyła; słabość Chrystusa życie ci przywróciła. Moc Chrystusa sprawiła, iż stało się to, czego nie było; słabość Chrystusa dokonała, iż nie zginęło to, co istniało. Stworzył nas mocą swoją; szukał nas swoją słabością.  
-  
-
-
-### Lectio3  
-Żywi więc słabych, sam będąc słabym, jak kokosz swe pisklęta; do niej się bowiem porównuje. Tak mówi do Jeruzalem: Ilekroć chciałem zgromadzić synów twoich, jako kokosz zgromadza pisklęta swe pod skrzydła, a nie chciałoś? Widzicie zaś, bracia, jak kokosz słabnie z troski dla swych piskląt. Przy żadnym innym ptaku nie poznaje się tak, iż jest matką. Widzimy, jak na naszych oczach wróble budują gniazda, codziennie widzimy gnieżdżące się jaskółki, bociany, gołąbki; tych, o ile ich w gniazdach nie widzimy, jako rodziców nie poznajemy. Kokosz zaś pokazuje się tak słabą przy swych pisklętach, iż choćbyś dzieci nie widział, jak za nią idą, matkę jednak poznajesz.  
-  
-
-
 ### Ant 2  
 Wody, którą Ja dam, * kto się jej napije, nie będzie pragnął na wieki.  
   
@@ -5947,16 +3074,6 @@ Panie, * widzę, iżeś Ty jest Prorok: ojcowie nasi chwalili na tej górze.
 Spraw, prosimy Cię, wszechmogący Boże, abyśmy, którzy w opiekę Twoją ufamy, zwyciężyli z Twoją pomocą wszelkię przeciwności.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Przyprowadzili doktorzy i faryzeusze niewiastę, którą zastano na cudzołóstwie, postawili ją w pośrodku i rzekli Mu: „Nauczycielu, niewiastę tę zastano dopiero na cudzołóstwie. Mojżesz w Prawie rozkazał nam takie kamienować. Cóż więc Ty powiesz?” A mówili to, kusząc Go, aby Go mogli oskarżyć. O co oskarżyć? Czy Go schwytali na jakim występku, lub czy niewiasta zależała w czymś od Niego?  
-  
-
-
-### Lectio3  
-Zobaczmy, bracia, jak zdumiewającą Pan okazywał łagodność. Zauważyli bowiem, iż jest niezmiernie cichy, nadmiernie łaskawy. O Nim przecież było zapowiedziane: Przypasz do biodra swój miecz, mocarzu. W śliczności twojej i piękności twojej nadciągnij, szczęśliwie postępuj i króluj dla prawdy i łagodności, i sprawiedliwości. A zatem przyniósł prawdę jako nauczyciel, łagodność jako oswobodziciel, sprawiedliwość jako sędzia. Z powodu tego natchniony Duchem Świętym Prorok przepowiedział, iż będzie królował. Gdy mówił, prawdę poznawano; że na wrogów się nie gniewał, łagodność chwalono. Gdy więc z powodu tych dwóch rzeczy, czyli prawdy i łagodności, Jego nieprzyjaciół dręczyły niechęć i zazdrość, z racji trzeciego, to znaczy co do sprawiedliwości, zgotowali Mu zasadzkę.  
-  
 
 
 ### Ant 2  
@@ -5981,77 +3098,6 @@ Przez Pana.
   
 
 
-### Responsory1  
-R. Pan rzekł do Mojżesza, mówiąc: Idź do Egiptu i powiedz faraonowi,  
-* Aby wypuścił lud mój. Serce faraona jest uparte: nie chce wypuścić mego ludu, chyba że się go zmusi ręką mocną.  
-V. Wołanie synów Izraela doszło do Mnie i ujrzałem ich udręczenie.  
-R. Aby wypuścił lud mój. Serce faraona jest uparte: nie chce wypuścić mego ludu, chyba że się go zmusi ręką mocną.  
-  
-
-
-### Lectio2  
-*Wj 3:7-10*  
-7 Któremu rzekł Pan: Widziałem utrapienie ludu mego w Egipcie, i słyszałem krzyk jego dla surowości tych, którzy są przełożeni nad robotami:   
-8 A widząc boleść jego, zstąpiłem, abych go wyzwolił z rąk Egiptyanów, i wywiódł z ziemie onéj, do ziemie dobréj i przestronéj: do ziemie, która opływa mlekiem i miodem, na miejsce Chananejczyka, i Hetejczyka, i Amorrejczyka, i Pherezejczyka, i Hewejczyka, i Jebuzejczyka.  
-9 Krzyk tedy synów Izraelowych przyszedł do mnie, i widziałem ich utrapienie, którem od Egiptyan są uciśnieni.  
-10 Ale pójdź, a poślę cię do Pharaona, abyś wywiódł lud mój, syny Izraelowe z Egiptu.  
-  
-
-
-### Responsory2  
-R. Stanął Mojżesz przed obliczem faraona i powiedział mu: Tak mówi Pan:  
-* Wypuść mój lud, aby złożył Mi ofiarę na pustyni.  
-V. Pan, Bóg Hebrajczyków, posłał mnie do ciebie, mówiąc:  
-R. Wypuść mój lud, aby złożył Mi ofiarę na pustyni.  
-  
-
-
-### Lectio3  
-*Wj 3:11-15*  
-11 I rzekł Mojżesz do Boga: Któżem ja jest, abych szedł do Pharaona, a wywiódł syny Izraelowe z Egiptu?  
-12 Który mu rzekł: Ja będę z tobą: a to będziesz miał na znak, żem cę posłał: Gdy wywiedziesz lud mój z Egiptu, ofiarujesz Bogu na téj górze.  
-13 Rzekł Mojżesz do Boga: Oto ja pójdę do synów Izraelowych, i rzekę im: Bóg ojców waszych posłał mię do was. Jeźli mi rzeką: Które jest imię jego? Cóż im powiem?  
-14 I rzekł Bóg do Mojżesza: Jam jest, którym jest. Rzekł: Tak powiesz synom Izraelowym: Który jest, posłał mię do was.  
-15 I rzekł zasię Bóg do Mojżesza: To powiesz synom Izraelowym: Pan, Bóg ojców waszych, Bóg Abrahamów, i Bóg Izaaków, i Bóg Jakóbów posłał mię do was: To jest imię moje na wieki, i to pamiętne moje na rodzaj i rodzaj.  
-  
-
-
-### Responsory3  
-R. Śpiewajmy Panu, który okrył się sławą, gdy konia i jeźdźca pogrążył w morskiej toni.  
-* Pan moją pomocą i ochroną, Jemu zawdzięczam moje zbawienie.  
-V. Pan jak wojownik potężny, „Wszechmocny” brzmi Jego imię.  
-R. Pan moją pomocą i ochroną, Jemu zawdzięczam moje zbawienie.  
-Chwała Ojcu.  
-R. Pan moją pomocą i ochroną, Jemu zawdzięczam moje zbawienie.  
-  
-
-
-### Responsory4  
-R. Twoje drogi wiodły przez morze, Twoje ścieżki przez wody wielkie.  
-* Wiodłeś Twój lud jak owce ręką Mojżesza i Aarona.  
-V. Przeprawiłeś ich przez Morze Czerwone, przeprowadziłeś ich przez wody mnogie.  
-R. Wiodłeś Twój lud jak owce ręką Mojżesza i Aarona.  
-  
-
-
-### Responsory5  
-R. Prześladowców ludu twego, pogrążyłeś, Panie, w głębinach morza  
-* Prowadziłeś ich w słupie obłoku.  
-V. Wiodłeś Twój lud jak owce ręką Mojżesza i Aarona.  
-R. Prowadziłeś ich w słupie obłoku.  
-  
-
-
-### Responsory6  
-R. Mojżesz, sługa Boży, pościł przez czterdzieści dni i czterdzieści nocy,  
-* Aby stać się godnym przyjąć Prawo Boże.  
-V. Kiedy Mojżesz wszedł na górę Synaj do Pana, przebywał tam czterdzieści dni i czterdzieści nocy.  
-R. Aby stać się godnym przyjąć Prawo Boże.  
-Chwała Ojcu.  
-R. Aby stać się godnym przyjąć Prawo Boże.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Jana  
 *J 6:1-15*  
@@ -6060,22 +3106,6 @@ Onego czasu: Oddalił się Jezus za Morze Galilejskie, czyli Tyberiadzkie. I sz�
 Homilia świętego Augustyna, Biskupa  
 *Traktat 24. na Ewangelię wg św. Jana*  
 Cuda, które zdziałał Pan nasz Jezus Chrystus, są niezawodnie Boskimi dziełami napominającymi ludzkiego ducha, aby z rzeczy widzialnych poznawał Boga. Nie jest On taką istotą, aby oczami mógł być widziany. Cuda Jego, którymi rządzi światem całym i całym stworzeniem kieruje, ponieważ są ciągłe, nie są cenione, tak iż prawie nikt nie uznaje przedziwnych i zdumiewających dzieł Boga objawiających się w jakimś ziarnku. Toteż Pan w swoim miłosierdziu zachował coś sobie, aby to uczynić w stosownym czasie poza zwykłym biegiem i porządkiem natury, nie żeby to było większe, lecz jako niezwykłe, aby zdumiewało tych, na których codzienne cuda nie robią wrażenia.  
-  
-
-
-### Responsory7  
-R. Jaśniała twarz Mojżesza, gdy Pan spoglądał na niego.  
-* Starsi ludu, widząc blask jego oblicza, zlękli się bardzo z podziwu.  
-V. Gdy zstępował z góry Synaj, niósł dwie tablice Świadectwa, nie wiedząc, że twarz jego promieniała od uczestnictwa w rozmowie z Panem.  
-R. Starsi ludu, widząc blask jego oblicza, zlękli się bardzo z podziwu.  
-  
-
-
-### Responsory8  
-R. Oto Ja posyłam Anioła mego, aby cię poprzedzał i strzegł zawsze.  
-* Bądź uważny i słuchaj mego głosu, a będę nieprzyjacielem twoich nieprzyjaciół i będę prześladować twoich prześladowców. Mój Anioł pójdzie przed tobą.  
-V. Jeśli mnie posłuchasz, Izraelu, nie będziesz miał u siebie nowego boga, cudzemu bogu nie będziesz się kłaniał.  
-R. Bądź uważny i słuchaj mego głosu, a będę nieprzyjacielem twoich nieprzyjaciół i będę prześladować twoich prześladowców. Mój Anioł pójdzie przed tobą.  
   
 
 
@@ -6165,42 +3195,6 @@ Wszedł tedy * Jezus na górę, i siedział tam z uczniami swymi.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Wy, którzy przejdziecie Jordan, zbudujcie ołtarz ku czci Pana  
-* Z kamieni, których nie obrabiało żelazo. Złożycie na nim ofiary całopalne i ofiary pokojowe ku czci Boga waszego.  
-V. Kiedy wkroczycie do ziemi, którą Pan wam da, zbudujcie tam ołtarz ku czci Pana.  
-R. Z kamieni, których nie obrabiało żelazo. Złożycie na nim ofiary całopalne i ofiary pokojowe ku czci Boga waszego.  
-  
-
-
-### Lectio2  
-Nie było to więc wielkim grzechem, że sprzedawano w świątyni to, co kupowano na ofiarę w świątyni; a jednak ich stamtąd wyrzucił. A co by Pan uczynił, gdyby w niej znalazł pijaków, jeśli sprzedających, co było dozwolone, a nie było przeciwne sprawiedliwości (co bowiem uczciwie się kupuje, tego niesłusznie się nie sprzedaje), jednak wypędził i nie ścierpiał, aby dom modlitwy stał się domem handlowym?  
-  
-
-
-### Responsory2  
-R. Słuchaj, Izraelu, przykazań Pana i zapisz je w sercu twoim jakby w księdze.  
-* A dam ci ziemię mlekiem i miodem płynącą.  
-V. Bądź więc uważny i słuchaj głosu mego, Ja zaś będę nieprzyjacielem twoich nieprzyjaciół.  
-R. A dam ci ziemię mlekiem i miodem płynącą.  
-  
-
-
-### Lectio3  
-A skoro dom Boga nie ma być domem handlu, to czyż ma być domem pijatyki? Gdy to mówimy, ci, którzy czują się winni, przeciw nam zgrzytają zębami, lecz pociesza nas psalm, który słyszeliście: Zgrzytają przeciw mnie zębami swymi. Wiemy, iż to, co słyszymy, nas uzdrowi, chociaż dla Chrystusa podwojone są bicze, ponieważ biczowane jest Jego słowo. Zgromadzono – mówi – na mnie bicze, a nie wiedzieli. Biczowany jest Chrystus biczami Żydów, biczowany jest bluźnierstwami fałszywych chrześcijan; pomnażają bicze na Pana i Boga swego, a o tym nie wiedzą. My zaś, o ile sam Pan pomoże, czyńmy to, o czym mówi Psalmista: A ja, gdy mnie dręczyli, wkładałem wór pokutny i umartwiałem moją duszę postem.  
-  
-
-
-### Responsory3  
-R. Jak byłem z Mojżeszem, tak będę z tobą, mówi Pan.  
-* Bądź mężny i mocny, bo ty wprowadzisz lud mój do ziemi mlekiem i miodem płynącej.  
-V. Nie lękaj się, ponieważ z tobą jestem wszędzie, gdziekolwiek pójdziesz. Nie opuszczę cię ani porzucę.  
-R. Bądź mężny i mocny, bo ty wprowadzisz lud mój do ziemi mlekiem i miodem płynącej.  
-Chwała Ojcu.  
-R. Bądź mężny i mocny, bo ty wprowadzisz lud mój do ziemi mlekiem i miodem płynącej.  
-  
-
-
 ### Ant 2  
 Wynieście to stąd, * rzekł Pan: a nie czyńcie domu Ojca Mego domem kupiectwa.  
   
@@ -6221,32 +3215,6 @@ Rozwalcie ten kościół, * rzekł Pan, a w trzech dniach odbuduję go, lecz On 
 Racz, Panie, wysłuchać łaskawie błagania naszego, a tym, których natchnąłeś do modlitwy, udziel pomocy i obrony swojej.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Czemu pragniecie Mnie zabić, człowieka, który wam prawdę mówił?  
-* Jeśli źle powiedziałem, daj świadectwo o złem, a jeżeli dobrze, czemu Mnie bijesz?  
-V. Wiele dobrych uczynków zdziałałem dla was; za który z tych uczynków chcecie Mnie zabić?  
-R. Jeśli źle powiedziałem, daj świadectwo o złem, a jeżeli dobrze, czemu Mnie bijesz?  
-  
-
-
-### Lectio2  
-Korzystając z ich podziwu i słów, Pan wypowiedział coś głębokiego, co zasługuje, aby się temu pilniej przyjrzeć i rozważyć to. Co więc Pan odpowiedział tym, którzy się dziwili, jak może znać Pisma, których się nie uczył? Moja nauka – mówi – nie jest moją, ale Tego, który Mię posłał. To jest pierwsza głębia; zdaje się bowiem, iż w niewielu słowach wypowiedział jakąś sprzeczność. Nie powiedział bowiem: „Ta nauka nie jest moja”, lecz: „Moja nauka nie jest moją”. Jeśli nie Twoja, to jak może być Twoja? Jeśli Twoja, to jak ma nie być Twoją? Mówisz przecież jedno i drugie: i moja nauka, i nie moja.  
-  
-
-
-### Responsory2  
-R. Ja, Pan, prowadziłem was przez czterdzieści lat po pustyni, a nie zniszczyły się wasze szaty;  
-* Jak deszcz spuściłem wam mannę z nieba, a zapomnieliście Mnie, mówi Pan.  
-V. Ja was wywiodłem z ziemi egipskiej i wyzwoliłem was z domu niewoli.  
-R. Jak deszcz spuściłem wam mannę z nieba, a zapomnieliście Mnie, mówi Pan.  
-  
-
-
-### Lectio3  
-Jeśli pilnie rozważymy, co w prologu mówi sam święty Ewangelista: Na początku było Słowo, a Słowo było u Boga i Bogiem było Słowo, to zagadnienie jest rozwiązane. Która jest więc nauka Ojca, jeśli nie Słowo Ojca? Sam tedy Chrystus jest nauką Ojca, skoro jest Słowem Ojca. Ponieważ jednak Słowo nie może być niczyje, lecz jest czyjeś, to swoją naukę nazwał swoją, ale równocześnie nie swoją, bo jest Słowem Ojca. Co bowiem bardziej jest twoim, niż ty sam? A co nie jest bardziej twoim, jak ty, jeśli to, czym jesteś, do kogoś innego należy.  
-  
 
 
 ### Ant 2  
@@ -6271,16 +3239,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Przybył Pan. Co uczynił? Na wielką tajemnicę zwrócił naszą uwagę. Splunął na ziemię, ze śliny błoto uczynił, bo Słowo stało się Ciałem. Namaścił oczy niewidomego. Ślepiec został namaszczony, ale jeszcze nie widział. Posłał go Pan do sadzawki, zwanej Siloe. Zależało zaś Ewangeliście na podaniu nam nazwy tej sadzawki i powiedział: Co znaczy: ‘Posłany’. Już wiecie, kto był posłany, gdyby bowiem On nie był posłany, nikt z nas nie byłby od winy odesłany. Obmył więc oczy w owej sadzawce, oznaczającej ‘Posłany’; został ochrzczony w Chrystusie. Gdy go przeto niejako w sobie samym ochrzcił, wtedy go oświecił; gdy go namaścił, można powiedzieć, że uczynił go katechumenem.  
-  
-
-
-### Lectio3  
-Słyszeliście wielką tajemnicę. Zapytaj człowieka: „Czy jesteś chrześcijaninem?” Odpowiada ci: „Nie jestem”. „A czy jesteś poganinem lub Żydem?” Jeśli ci odpowie: „Nie jestem”, to dalej go pytasz, czy jest katechumenem, czy wierzącym? Jeżeli odpowie: „Katechumenem”, to znaczy, że jest namaszczony, ale jeszcze nieobmyty. Dlaczego namaszczony? Zapytaj i odpowie. Zapytaj go, w Kogo wierzy; już przez to, iż jest katechumenem, mówi, że w Chrystusa. Oto teraz mówię do wiernych i do katechumenów. Co powiedziałem o splunięciu i błocie? Że Słowo stało się Ciałem. To i katechumeni słyszą, lecz to im nie wystarcza do tego, do czego zostali namaszczeni; niech śpieszą do Chrztu, jeśli światła szukają.  
-  
-
-
 ### Ant 2  
 Rabbi, kto zgrzeszył, * ten, czy rodzice jego, iż się ślepy narodził? Odpowiedział Jezus: Ani ten zgrzeszył, ani rodzice jego, ale żeby się sprawy Boże w nim okazały.  
   
@@ -6301,16 +3259,6 @@ Człowiek on, * którego zowią Jezusem, uczynił błoto ze śliny i pomazał oc
 Nakłoń ucha miłosierdzia Twego, Panie, na prośbę błagających Ciebie i abyś proszącym mógł udzielić tego, czego pragną, daj nam prosić o to, co Tobie, się podoba.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Ów zmarły był wprawdzie niesiony do grobu na marach, jakby na czterech żywiołach, z których się składa materia; miał jednak nadzieję, iż będzie wskrzeszony, bo na drzewie go niesiono. Choć to bowiem przedtem pomocne nam nie było, skoro jednak Jezus się go dotknął, zaczęło nam pomagać do odzyskania życia. Było to figurą, iż lud musi życie z powrotem otrzymać przez drzewo krzyża. Na głos Boga zatrzymali się owi posępni grabarze, którzy nieśli ciało ludzkie, podległe zgubnym skutkom jego materialnej natury. Na czym bowiem, jeśli nie na jakimś katafalku, to jest na podwyższonych marach, leżymy pozbawieni duchowego życia, gdy ogień nieposkromionej namiętności nas trawi, lub zimny potok religijnego zobojętnienia nas zalewa albo jeśli rozleniwione ciało odbiera siły duszy lub gdy nasz duch, w braku prawdziwego światła, żywi się gęstą mgłą? Ci są grabarze niosący nas do grobu.  
-  
-
-
-### Lectio3  
-Choćby jednak potęga śmierci odebrała wszelką nadzieję zachowania życia i zwłoki zmarłych już leżały na skraju grobów, jednakże na głos Boga trupy zostają wskrzeszone, odzyskują głos; syna zwracają matce, odwołany jest z grobu, wyniesiony z mogiły. A cóż jest twoim grobem, jeśli nie złe obyczaje? Twoim grobem przewrotność, gardło twoim grobem. Albowiem to gardło jest grobem otwartym, z którego wychodzą martwe słowa. Z tego grobu Chrystus cię uwalnia; powstaniesz z tej mogiły, jeśli będziesz słuchać głosu Boga. A choć grzech jest ciężki i sam łzami swej pokuty obmyć go nie możesz, to niech za ciebie płacze Matka Kościół, który, jak matka wdowa, za każdym swym dzieckiem wstawia się jakby za swym jedynakiem. Lituje się nad nimi, doznając niejako duchowego naturalnego bólu, widząc, jak jej dzieciom z powodu ich ciężkich występków śmierć grozi.  
-  
 
 
 ### Ant 2  
@@ -6335,16 +3283,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Co więc doniosły siostry chorego? Panie, oto choruje ten, którego miłujesz. Nie powiedziały: „Przyjdź”. Kochającego trzeba było tylko zawiadomić. Nie odważyły się powiedzieć: „Przyjdź i uzdrów”, nie ośmieliły się powiedzieć: „Tu rozkaż, a tam się stanie”. Dlaczego nie odważyły się tak powiedzieć, skoro wiara owego celnika otrzymała za to pochwałę? Powiedział przecież: Panie, nie jestem godzien, aby wszedł pod dach mój, ale powiedz tylko słowo, a będzie uzdrowiony sługa mój. Nie powiedziały tego, lecz tylko: „Panie, oto choruje ten, którego miłujesz”. Wystarczy, abyś o tym wiedział; kochasz go bowiem tak, iż go nie opuścisz.  
-  
-
-
-### Lectio3  
-Ktoś powie: „Dlaczego Łazarz oznacza grzesznika, a Pan go tak miłuje?” Niechaj posłucha, co Pan mówi: Nie przyszedłem wzywać sprawiedliwych, ale grzeszników. Gdyby bowiem Bóg grzeszników nie miłował, to z nieba nie zstąpiłby na ziemię. A usłyszawszy to Jezus rzekł: „Choroba ta nie jest na śmierć, ale na chwałę Bożą, aby przez nią uwielbiony był Syn Boży”. Takie uwielbienie Go nie wywyższyło, lecz nam pomogło. Powiedział więc: Nie jest na śmierć, bo i śmierć nie była dla samej śmierci, lecz raczej miała posłużyć do cudu, aby przezeń ludzie uwierzyli w Chrystusa i unikali prawdziwej śmierci. Owszem, widzicie, iż Pan jakby ubocznie Bogiem się nazwał z powodu tych, którzy zaprzeczają, iż Syn Boży jest Bogiem.  
-  
-
-
 ### Ant 2  
 Łazarz, przyjaciel nasz, * śpi, chodźmy obudzić go ze snu.  
   
@@ -6365,16 +3303,6 @@ Panie, * byś tu był, nie umarłby był Łazarz: oto już cuchnie czwarty dzie�
 Daj nam, prosimy Cię, wszechmogący Boże, abyśmy, którzy znając niemoc naszą Twojej potędze zawierzamy, ze skutków Twojej dobroci zawsze się radowali.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Jednakże prawdziwa wiara Kościoła katolickiego odrzuca takie zmyślenie i poznaje w nim diabelską naukę; i nie tylko bez wątpliwości poznaje istotę tej nauki, lecz także stara się ją pokonać na drodze logicznego rozumowania. Odrzucamy więc ten błąd, który święty Kościół od początku potępiał. Nie uważamy Pana naszego Jezusa Chrystusa za to słońce, które widzimy jak wschodzi na wschodzie, a zachodzi na zachodzie; po którego biegu noc następuje, którego promienie chmura zaciemnia, które idzie jakimś ruchem z miejsca na miejsce. Nie jest nim Chrystus Pan. Chrystus Pan nie stał się słońcem, ale On, jako Słowo Boże, słońce uczynił. Wszystko się przez Nie stało, a bez Niego nic się nie stało.  
-  
-
-
-### Lectio3  
-Jest więc Światło, które to światło uczyniło; kochajmy Je, chciejmy Je posiadać, Jego pragnijmy, abyśmy do Niego za Jego wodzą kiedyś doszli i w Nim tak żyli, abyśmy już nigdy nie umarli. To jest właśnie owo światło, które proroctwo zapowiedziało niegdyś w psalmie: Albowiem w Tobie jest źródło życia i w Twojej światłości oglądamy światło. Zważcie, co ongi święci mężowie o tym Świetle przepowiadali, głosząc słowo Boże. Mówi więc psalm: Ocalasz, Panie, ludzi i zwierzęta, jakże hojnie udzielasz Twojego miłosierdzia, Boże.  
-  
 
 
 ### Ant 2  
@@ -6410,73 +3338,6 @@ Przez Pana.
   
 
 
-### Lectio2  
-*Jr 1:7-13*  
-7 I rzekł Pan do mnie: Nie mów: Jestem dziecina; bo na wszystko, na co cię poślę, pójdziesz, i wszystko, cokolwiek ci rozkażę, mówić będziesz.  
-8 Nie bój się oblicza ich; bom Ja z tobą jest, abym cię wybawił, mówi Pan.  
-9 I wyciągnął Pan ręką swą i dotknął się ust moich, i rzekł Pan do mnie: Otom dał słowa moje w usta twoje.  
-10 Otom cię dziś postanowił nad narodami i nad królestwy, abyś wyrywał i kaził i wytracał i rozwalał i budował i sadził.  
-11 I stało się słowo Pańskie do mnie, mówiąc: Co ty widzisz, Jeremiaszu? i rzekłem: Laskę czującą ja widzę.  
-12 I rzekł Pan do mnie: Dobrześ widział; bo Ja czuć będę nad słowem mojem, abym je wypełnił.  
-13 I stało się słowo Pańskie powtóre do mnie, mówiąc: Co ty widzisz? i rzekłem: Garniec podpalony ja widzę, a oblicze jego od północy.  
-  
-
-
-### Responsory2  
-R. Liczni są moi prześladowcy i mówią: Nie znajdzie on w Bogu zbawienia.  
-* Powstań, Panie, wybaw mnie, mój Boże!  
-V. By nieprzyjaciel mój nie mówił: Ja go zwyciężyłem.  
-R. Powstań, Panie, wybaw mnie, mój Boże!  
-  
-
-
-### Lectio3  
-*Jr 1:14-19*  
-14 I rzekł Pan do mnie: Od północy otworzy się złe na wszystkie obywatele ziemie.  
-15 Bo oto Ja zwołam wszystkie rodzaje królestw północnych, mówi Pan, i przyjdą i postawią każdy stolicę swą w wejściu bram Jerozolimskich i na wszystkich murach jego wokoło i na wszystkich miastach Judzkich.  
-16 I będę mówić sądy moje z nimi o wszelaką złość ich, którzy mię opuścili a ofiarowali bogom obcym, i kłaniali się robocie rąk swoich.  
-17 A tak ty przepasz biodra twoje, a wstań i mów do nich wszystko, co Ja każę tobie: nie bój się oblicza ich; bo Ja uczynię, że się nie zlękniesz twarzy ich.  
-18 Albowiem Ja uczyniłem cię dziś miastem obronnem i słupem żelaznym i murem miedzianym na wszystkiéj ziemi, królom Juda, książętom jego i kapłanom i ludowi ziemie.  
-19 I będą walczyć na cię, a nie przemogą; bom Ja z tobą jest, mówi Pan, abych cię wybawił.  
-  
-
-
-### Responsory3  
-R. Jak długo mój nieprzyjaciel będzie się wynosił nade mnie?  
-* Spojrzyj i wysłuchaj mnie, Panie, mój Boże.  
-V. Jeśli upadnę, radować się będą prześladowcy moi. Ja zaś będę ufał Twemu miłosierdziu.  
-R. Spojrzyj i wysłuchaj mnie, Panie, mój Boże.  
-Chwała Ojcu.  
-R. Jak długo mój nieprzyjaciel będzie się wynosił nade mnie? * Spojrzyj i wysłuchaj mnie, Panie, mój Boże.  
-  
-
-
-### Responsory4  
-R. Ty jesteś moim Bogiem. Nie stój z dala ode mnie,  
-* Bo utrapienie jest blisko i nie ma nikogo, kto by mi dopomógł.  
-V. Ty zaś, Panie, nie oddalaj ode mnie swego wspomożenia, wejrzyj ku mej obronie.  
-R. Bo utrapienie jest blisko i nie ma nikogo, kto by mi dopomógł.  
-  
-
-
-### Responsory5  
-R. Tobie od urodzenia zostałem oddany, od wyjścia z łona matki jesteś moim Bogiem. Nie stój z dala ode mnie,  
-* Bo utrapienie jest blisko i nie ma nikogo, kto by mi dopomógł.  
-V. Wybaw mnie z lwiej paszczęki, a moje poniżenie od rogów jednorożców.  
-R. Bo utrapienie jest blisko i nie ma nikogo, kto by mi dopomógł.  
-  
-
-
-### Responsory6  
-R. Utrapienie moje jest blisko, o Panie, i nie ma nikogo, kto by mi dopomógł. Chociażby przebili moje ręce i nogi, wybaw mnie z lwiej paszczęki,  
-* Abym głosił swym braciom Twoje imię.  
-V. Ocal od miecza moją duszę, duszę moją jedyną wyrwij z psich pazurów.  
-R. Abym głosił swym braciom Twoje imię.  
-Chwała Ojcu.  
-R. Utrapienie moje jest blisko, o Panie, i nie ma nikogo, kto by mi dopomógł. Chociażby przebili moje ręce i nogi, wybaw mnie z lwiej paszczęki, * Abym głosił swym braciom Twoje imię.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Jana  
 *J 8:46-59*  
@@ -6485,22 +3346,6 @@ Onego czasu: Mówił Jezus rzeszom żydowskim: „Kto z was dowiedzie Mi grzechu
 Homilia świętego Grzegorza, Papieża  
 *Homilia 18. na Ewangelię*  
 Zastanówcie się, najdrożsi bracia, nad łaskawością Boga. Przybył odpuścić grzechy, a mówił: Kto z was dowiedzie Mi grzechu? Nie uważa za ujmę dla siebie wykazać dowodami rozumowymi, iż nie jest grzesznikiem, choć mocą swego Bóstwa mógł usprawiedliwiać grzeszników. Straszliwe jest bardzo i to, co dodał: Kto z Boga jest, słów Bożych słucha, wy dlatego nie słuchacie, że z Boga nie jesteście. Jeśli bowiem ten, kto jest z Boga, słów Bożych słucha, a jeśli nie jest z Niego, słów Jego słuchać nie może, to każdy winien siebie zapytać, czy słowa Boga słyszy uszami serca. Wtedy bowiem zrozumie, z kogo jest. Odwieczna Prawda nakazuje pragnąć niebiańskiej ojczyzny, tłumić żądze ciała, unikać światowej chwały, nie pożądać cudzego, ze swego udzielać.  
-  
-
-
-### Responsory7  
-R. Przez cały dzień chodzę smutny, o Panie, albowiem dusza moja pełna jest szyderstwa.  
-* Przemocy użyli ci, którzy czyhają na mą duszę.  
-V. Przyjaciele moi i bliscy moi naprzeciw mnie podchodzą i przystają; ci, którzy byli blisko przy mnie, trzymają się z daleka.  
-R. Przemocy użyli ci, którzy czyhają na mą duszę.  
-  
-
-
-### Responsory8  
-R. Nie odwracaj swego oblicza od Twego sługi, Panie,  
-* Wysłuchaj mnie prędko, bo jestem w ucisku.  
-V. Zbliż się do mej duszy i ją wybaw, uwolnij mnie przez wzgląd na moich nieprzyjaciół.  
-R. Wysłuchaj mnie prędko, bo jestem w ucisku.  
   
 
 
@@ -6590,42 +3435,6 @@ Abraham, ojciec wasz, * z radością żądał, aby oglądał dzień Mój: i ogl�
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Boże mój, wyrwij mnie z rąk grzesznika, z rąk występującego przeciw prawu i niegodziwego.  
-* Albowiem w Tobie, Panie, pokładam moją ufność.  
-V. Boże mój, nie stój z daleka ode mnie, Boże mój, wejrzyj ku wspomożeniu memu.  
-R. Albowiem w Tobie, Panie, pokładam moją ufność.  
-  
-
-
-### Lectio2  
-Będziecie Mnie szukać, a nie znajdziecie, i gdzie Ja będę, wy przyjść nie możecie. Tu już zapowiedział swe zmartwychwstanie. Nie chcieli Go poznać, gdy był pośród nich obecny, ale będą Go szukać, gdy zobaczą, iż wielu z pospólstwa już w Niego uwierzyło. Wielkie bowiem stały się znaki i wtedy, gdy Pan zmartwychwstał, i gdy wstąpił do nieba. Później uczniowie wielkie rzeczy czynili, ale działał przez nich Ten, który sam dokonywał cudów. On przecież im powiedział: Beze Mnie nic uczynić nie możecie. Kiedy ów chromy, siedzący przy bramie, na głos Piotra wstał i szedł, posługując się swymi nogami, tak iż ludzie się dziwili, wówczas Piotr powiedział im, że nie swą władzą to uczynił, lecz mocą Tego, którego zabili. Wielu skruszonych powiedziało: Cóż mamy czynić?  
-  
-
-
-### Responsory2  
-R. Ci, co czyhają na mą duszę, odbywają wspólnie narady. Mówią: Bóg Go opuścił,  
-* Gońcie Go i chwytajcie, bo nikt Go nie uratuje. Boże, nie stój z daleka ode mnie, Boże mój, wejrzyj ku wspomożeniu memu!  
-V. Wszyscy nieprzyjaciele moi przeciwko Mnie zło zamyślali: słowo złośliwe przeciwko Mnie wymierzyli, mówiąc:  
-R. Gońcie Go i chwytajcie, bo nikt Go nie uratuje. Boże, nie stój z daleka ode mnie, Boże mój, wejrzyj ku wspomożeniu memu!  
-  
-
-
-### Lectio3  
-Widzieli bowiem, iż dopuścili się strasznego występku bezbożności, gdy zabili Tego, którego powinni byli czcić i wielbić, i uważali to za czyn nie do przebaczenia. Wielka to wprawdzie była zbrodnia, a rozważanie jej doprowadziło ich do rozpaczy, lecz nie powinni byli ci rozpaczać, za których Pan, wisząc na krzyżu, raczył się modlić. Tak powiedział: Ojcze, zapomnij im, bo nie wiedzą, co czynią. Widział niektórych ze swoich wśród obcych; dla tych już prosił o przebaczenie, od których jeszcze otrzymywał zniewagi. Nie zważał na to, iż przez nich umiera, lecz iż za nich umiera.  
-  
-
-
-### Responsory3  
-R. W spokoju rozmawiali ze Mną nieprzyjaciele moi, ale w gniewie Mnie dręczyli.  
-* Widziałeś, Panie, więc nie milcz dłużej, nie bądź ode Mnie daleko!  
-V. A ja, gdy mnie dręczyli, wkładałem wór pokutny i umartwiałem moją duszę postem.  
-R. Widziałeś, Panie, więc nie milcz dłużej, nie bądź ode Mnie daleko!  
-Chwała Ojcu.  
-R. W spokoju rozmawiali ze Mną nieprzyjaciele moi, ale w gniewie Mnie dręczyli. * Widziałeś, Panie, więc nie milcz dłużej, nie bądź ode Mnie daleko!  
-  
-
-
 ### Ant 2  
 W dzień wielki * święta stał Jezus i wołał, mówiąc: Jeźli kto pragnie, niech do mnie przyjdzie, a pije.  
   
@@ -6646,42 +3455,6 @@ Jeźli kto pragnie, * niech do mnie przyjdzie, a pije, a rzeki wody żywej popł
 Daj, Panie, ludowi Twojemu zdrowie duszy i ciała: aby oddając się dobrym uczynkom, zasłużył sobie na Twoją potężną opiekę.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Panie, Ty jesteś moją pomocą i obroną, wyczekuję Twojego słowa.  
-* Odstąpcie ode mnie, złoczyńcy: zgłębiać będę przykazania mego Boga.  
-V. Nienawidzę przewrotnych, a Prawo Twoje miłuję.  
-R. Odstąpcie ode mnie, złoczyńcy: zgłębiać będę przykazania mego Boga.  
-  
-
-
-### Lectio2  
-Gdy jako człowiek ukrył się, nie należy sądzić, iż stracił swą potęgę, ale że dał On przykład naszej słabości. Przecież kiedy zechciał, został uwięziony i zabito Go, kiedy zechciał. Jednak w przyszłości będą Jego członki, to jest Jego wierni, którzy nie będą mieli tej potęgi, jaką miał Bóg nasz. A zatem przez to, że krył się, i to niejako dlatego, by Go nie zabito, przez to więc wskazał, co mają później czynić Jego członki, pośród których oczywiście i sam pozostał.  
-  
-
-
-### Responsory2  
-R. Będę nieprawych nauczał dróg Twoich i wrócą do Ciebie bezbożni.  
-* Uwolnij mnie, Boże, od krwi, Boże zbawienia mego.  
-V. Panie, otwórz wargi moje, a usta moje będą głosić Twoją chwałę.  
-R. Uwolnij mnie, Boże, od krwi, Boże zbawienia mego.  
-  
-
-
-### Lectio3  
-Nie jest więc Chrystus Głową Kościoła w ten sposób, iżby nie był w jego Ciele, lecz cały jest Chrystus i w Głowie i w Ciele. Czym więc są Jego członki, tym jest On; ale tym, czym On jest, nie są Jego członki. Gdyby bowiem członkiem nie był On sam, nie powiedziałby do Szawła: Czemu Mnie prześladujesz? Albowiem nie Jego samego, ale Jego członki, to jest Jego wiernych na ziemi Szaweł prześladował. Nie chciał jednak powiedzieć: „świętych moich”, „sługi moje” ani wreszcie zaszczytniej: „braci moich”, lecz „Mnie”, czyli moje członki, których jestem Głową.  
-  
-
-
-### Responsory3  
-R. Nie zabieraj z grzesznymi mej duszy, Boże, a życia mojego z mężami krwawymi.  
-* Odkup mnie, Panie.  
-V. Wybaw mnie, Panie, od złego człowieka, wyzwól mnie od niegodziwego.  
-R. Odkup mnie, Panie.  
-Chwała Ojcu.  
-R. Nie zabieraj z grzesznymi mej duszy, Boże, a życia mojego z mężami krwawymi. * Odkup mnie, Panie.  
-  
 
 
 ### Ant 2  
@@ -6706,16 +3479,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Była zima i przechadzał się Jezus w świątyni, w krużganku Salomona. Obstąpili go tedy Żydzi i rzekli Mu: „Dokądże nas trzymać będziesz w niepewności? Jeśli Ty jesteś Chrystusem, powiedz nam jawnie”. Nie pragnęli prawdy, lecz przygotowywali oszczerstwo. Była zima i byli zimni, byli zbyt odrętwiali, aby przystąpić do tego Boskiego ognia. Lecz przystąpieniem jest wierzyć; kto wierzy – przystępuje, a kto zaprzecza – odchodzi. Dusza nie przemieszcza się za pomocą nóg, lecz uczuć.  
-  
-
-
-### Lectio3  
-Byli zbyt zimni, aby móc zapłonąć miłością, a gorzeli żądzą szkodzenia. Daleko odeszli, a jednak się tam znaleźli; nie przystępowali jako wierzący, ale cisnęli się, aby prześladować. Starali się usłyszeć od Pana: „Jestem Chrystusem”, a być może o Chrystusie myśleli tylko na sposób ludzki. Prorocy zapowiadali bowiem Chrystusa, ale Bóstwa Chrystusa ani w pismach Proroków, ani w samej Ewangelii nawet i heretycy nie pojmują; o ileż mniej Żydzi, póki zasłona okrywa ich serca.  
-  
-
-
 ### Ant 2  
 Owce Moje * słuchają głosu Mego, a Ja Pan, poznaję je.  
   
@@ -6736,16 +3499,6 @@ Wiele dobrych uczynków * uczyniłem wam: dla którego uczynku chcecie mię zabi
 Wysłuchaj błagań naszych, wszechmogący Boże, a w dobroci Swojej udziel skutków miłosierdzia Twego tym, którym dałeś łaskę nadziei.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Sądzimy, iż ta, którą Łukasz nazywa jawnogrzesznicą, a Jan Marią, jest ową Marią, z której, jak świadczy Marek, siedmiu szatanów wypędzono. A czyż siedmiu szatanów nie wyraża wszystkich występków? Ponieważ siedem dni cały czas określa, słusznie liczba siedem wyraża całość. Siedmiu więc szatanów Maria miała w sobie, bo wszelkich występków była pełna.  
-  
-
-
-### Lectio3  
-Skoro jednak zobaczyła szpetność swego gorszącego życia, pospieszyła do źródła miłosierdzia, aby się obmyć, i nie wstydziła się wejść do biesiadujących. Ponieważ bardzo się wewnętrznie wstydziła samej siebie, wstyd zewnętrznie doznany za nic sobie miała. Komu, bracia, dziwić się mamy: czy Marii, która przybyła, czy Panu, który przyjął? Jak mam powiedzieć: czy że ją przyjął, czy że ją przyciągnął? Powiem lepiej, iż ją przyciągnął i przyjął; miłosierdziem bowiem przyciągnął ją wewnętrznie, a łagodnością przyjął ją zewnętrznie.  
-  
 
 
 ### Ant 2  
@@ -6770,16 +3523,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-Albowiem i Rzymianie po umęczeniu i uwielbieniu Pana zabrali im kraj i naród; kraj zabrali, a naród gdzie indziej przenieśli i to ich następnie spotkało, co było powiedziane: Synowie zaś królestwa wyrzuceni będą do ciemności zewnętrznych. Tego zaś się lękali, iż jeśliby wszyscy uwierzyli w Chrystusa, nikt by nie pozostał, aby przeciw Rzymianom bronić miasta Boga i świątyni, bo naukę Chrystusa uważali za sprzeciwiającą się świątyni i prawom ojczystym.  
-  
-
-
-### Lectio3  
-A jeden z nich, imieniem Kajfasz, który był w owym roku najwyższym kapłanem, rzekł do nich: „Wy ani nie wiecie, ani nie myślicie, że lepiej jest, aby jeden człowiek umarł za naród, niż żeby cały naród miał zginąć”. A nie mówił tego sam z siebie, ale będąc najwyższym kapłanem w roku owym, prorokował. Dowiadujemy się stąd, iż przez złych ludzi to, co się ma dokonać w przyszłości, w duchu proroczym bywa zapowiadane. Ten jednak dar Ewangelista Boskiemu przypisał ustanowieniu, bo Kajfasz był arcykapłanem, czyli najwyższym kapłanem.  
-  
-
-
 ### Ant 2  
 Przybliżał się * dzień święty Żydów: a szukali przedniejsi kapłani, jakoby Jezusa zabili; ale się bali ludu.  
   
@@ -6800,16 +3543,6 @@ Najwyżsi kapłani * uczynili radę by zabić Jezusa: mówili tedy: Nie w świę
 Spraw, prosimy, Cię, wszechmogący Boże, abyśmy, którzy o łaskę opieki Twojej błagamy, wyzwoleni od wszelkiego złego, spokojnym umysłem Ci służyli.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-Albowiem i Rzymianie po umęczeniu i uwielbieniu Pana zabrali im kraj i naród; kraj zabrali, a naród gdzie indziej przenieśli i to ich następnie spotkało, co było powiedziane: Synowie zaś królestwa wyrzuceni będą do ciemności zewnętrznych. Tego zaś się lękali, iż jeśliby wszyscy uwierzyli w Chrystusa, nikt by nie pozostał, aby przeciw Rzymianom bronić miasta Boga i świątyni, bo naukę Chrystusa uważali za sprzeciwiającą się świątyni i prawom ojczystym.  
-  
-
-
-### Lectio3  
-A jeden z nich, imieniem Kajfasz, który był w owym roku najwyższym kapłanem, rzekł do nich: „Wy ani nie wiecie, ani nie myślicie, że lepiej jest, aby jeden człowiek umarł za naród, niż żeby cały naród miał zginąć”. A nie mówił tego sam z siebie, ale będąc najwyższym kapłanem w roku owym, prorokował. Dowiadujemy się stąd, iż przez złych ludzi to, co się ma dokonać w przyszłości, w duchu proroczym bywa zapowiadane. Ten jednak dar Ewangelista Boskiemu przypisał ustanowieniu, bo Kajfasz był arcykapłanem, czyli najwyższym kapłanem.  
-  
 
 
 ### Ant 2  
@@ -6989,23 +3722,6 @@ R. Położyłeś łzy moje przed oblicznością twoją.
   
 
 
-### Lectio2  
-*Iz 53:6-9*  
-6 Wszyscy my jako owce pobłądziliśmy, każdy na swą drogę ustąpił: a Pan włożył nań nieprawość wszystkich nas.  
-7 Ofiarowali jest, iż sam chciał, a nie otworzył ust swoich: jako owca na zabicie wiedzion będzie, a jako baranek przed strzygącym go zamilknie, a nie otworzy ust swoich.  
-8 Z ucisku i z sądu wzięty jest: rodzaj jego kto wypowie? bo wycięt jest z ziemie żywiących, dla złości ludu mego ubiłem go.  
-9 I da niezbożne za pogrzeb, a bogatego za śmierć swoje, przeto iż nieprawości nie uczynił, ani zdrady było w uściech jego.  
-  
-
-
-### Lectio3  
-*Iz 53:10-12*  
-10 A Pan chciał go zetrzeć w niemocy: jeźli położy za grzech duszę swoje, ujrzy nasienie długo wieczne: a wola Pańska w ręce jego powiedzie się.  
-11 Za to, że pracowała dusza jego, ujrzy i nasyci się. Umiejętnością swoją usprawiedliwi on sprawiedliwy sługa mój wielu, a nieprawości ich on poniesie.  
-12 Przetóż oddzielę mu bardzo wielu, a korzyści mocarzów dzielić będzie, ponieważ wydał na śmierć duszę swoje, a z złośnikami jest policzon: a on grzechy mnogich odniósł, a za przestępcę się modlił.  
-  
-
-
 ### Ant Laudes  
 Pójdę do góry * mirrhy i do pagórku kadzidła.  
 Miły mój * jest biały i rumiany: a warkocze głowy jego jako szarłat królewski zwiniony na cewki.  
@@ -7168,16 +3884,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-A nazajutrz wielka rzesza, która była przyszła na święta, gdy usłyszała, że Jezus zdąża do Jerozolimy, nabrała gałązek palmowych i wyszła na Jego spotkanie, wołając: „Hosanna! Błogosławiony, który przybywa w imię Pańskie, Król izraelski”. Gałązki palmowe są pochwałami, oznaczają zwycięstwo, bo Pan śmierć śmiercią swoją miał pokonać i zwycięskim znakiem krzyża zatriumfować nad diabłem, księciem śmierci. „Hosanna” zaś jest to zwrot błagalny; jak to niektórzy mówią, którzy znają język hebrajski, wyrażający raczej uczucie, niż coś ściśle określonego – jak to jest w języku łacińskim z tak zwanymi wykrzyknikami; gdy cierpimy, mówimy: „Heu”, gdy się cieszymy: „Vah” mówimy.  
-  
-
-
-### Lectio3  
-Te pochwały rzesza Mu głosiła: Hosanna! Błogosławiony, który przybywa w imię Pańskie, Król izraelski. Czyż dla zazdrosnego ducha książąt żydowskich nie było to wielkim krzyżem słyszeć, jak takie mnóstwo ludu wołało, że Chrystus jest ich Królem? Lecz czymże było dla Pana być Królem Izraela? Czyż dla Króla wieków było czymś wielkim stać się Królem ludzi? Nie jest Chrystus Królem Izraela dla nakładania podatków lub żeby mieć wojsko żelazem uzbrojone i fizycznie pokonywać wrogów, lecz jest On Izraela Królem, który duszami rządzi, o wieczność się troszczy; wierzących, ufających, kochających do Królestwa Niebiańskiego prowadzi.  
-  
-
-
 ### Ant 2  
 Wsław mię Ojcze * sam u siebie chwałą, którąm miał u ciebie, pierwéj niźli świat był stworzony.  
   
@@ -7207,6 +3913,8 @@ Przez tegoż Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
+KeyError, 
+(None,)
 
 
 ### Ant 1  
@@ -7217,43 +3925,6 @@ Ojcze sprawiedliwy, * świat cię nie poznał, a Jam ciebie poznał, żeś ty mi
 ### Kolekta  
 Wszechmocny, wieczny Boże, który chcąc, aby ród ludzki miał przykład pokory do naśladowania, postanowiłeś, aby Zbawiciel nasz przyjął na siebie naturę ludzką i poniósł śmierć na Krzyżu: spraw, prosimy, abyśmy mając wzór Jego cierpliwości, mogli zasłużyć na współuczestnictwo w Jego zmartwychwstaniu.  
 Przez tegoż Pana.  
-  
-
-
-### Lectio2  
-*Jr 2:18-22*  
-18 A teraz, czego chcesz na drodze Egipskiéj, żebyś piła wodę mętną? a co masz z drogą Assyryjczyków, abyś piła wodę rzeki?  
-19 Skarze cię złość twoja, a odwrócenie twoje zfuka cię. Wiedz a obacz, że zła a gorzka jest rzecz, żeś ty opuściła Pana, Boga twego, a iż niemasz bojaźni mojéj u ciebie, mówi Pan, Bóg zastępów.  
-20 Od wieku złamałaś jarzmo moje, rozerwałaś związki moje i mówiłaś: Nie będę służyła. Albowiem na każdym pagórku wysokim i pod każdem drzewem gałęzistem pokładałaś się, ty nierządnico!  
-21 A Jam cię nasadził winnicą wyborną, wszystko nasienie prawe: jakóżeś mi się tedy odmieniła w nieprawe, winnico obca?  
-22 Choćbyś się wymyła saletrą, i namnożyłabyś sobie ziela boryth, splugawionaś jest w nieprawości twéj przedemną, mówi Pan Bóg.  
-  
-
-
-### Responsory2  
-R. Bracią moją oddalił odemnie, a znajomi moi,  
-* Jako obcy odeszli odemnie.  
-V. Opuścili mię bliscy moi: i ci którzy mię znali.  
-R. Jako obcy odeszli odemnie.  
-  
-
-
-### Lectio3  
-*Jr 2:29-32*  
-29 Co się zemną prawem spierać chcecie? wszyscyście mię opuścili, mówi Pan.  
-30 Próżnom karał syny wasze, karania nie przyjęli: pożarł miecz wasz proroki wasze, jako lew pustoszący  
-31 Naród wasz. Patrzcie słowa Pańskiego! Izali puszczą stałem się Izraelowi, albo ziemią zamierzkłą? Czemuż tedy mówił lud mój: Odeszliśmy, nie przyjdziem więcéj do ciebie?  
-32 Izali zapomni panna ubioru swego, albo oblubienica koszulki swojéj? a lud mój zapomniał mię przez dni niezliczone.  
-  
-
-
-### Responsory3  
-R. Pilnuj mię, Panie, a posłuchaj głosu przeciwników moich:  
-* Izali oddawają złe za dobre, że wykopali dół duszy mojéj?  
-R. Wspomnij, żem stał przed oczyma twemi, żebych mówił za nimi dobrze, i odwrócił od nich rozgniewanie twoje.  
-R. Izali oddawają złe za dobre, że wykopali dół duszy mojéj?  
-Chwała Ojcu.  
-R. Pilnuj mię, Panie, a posłuchaj głosu przeciwników moich: * Izali oddawają złe za dobre, że wykopali dół duszy mojéj?  
   
 
 
@@ -7354,42 +4025,6 @@ Albowiem jest napisano: * Uderzę pasterza, i rozproszą się owce trzody, lecz 
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Bezbożnicy rzekli: Udręczmy bez powodu Sprawiedliwego i pochłońmy Go żywcem jak Otchłań; usuńmy pamięć o Nim z ziemi, a o Jego szaty rzućmy los między sobą. Owi zabójcy zgromadzili sobie niegodziwości;  
-* Nierozumni i źli znienawidzili mądrość i zawinili swymi knowaniami.  
-V. Tak pomyśleli i pobłądzili, bo własna złość ich zaślepiła.  
-R. Nierozumni i źli znienawidzili mądrość i zawinili swymi knowaniami.  
-  
-
-
-### Lectio2  
-Duszo wszelaka! Jeśli chcesz być wierną, namaszczaj z Marią stopy Pana drogim olejkiem. Owym olejkiem była sprawiedliwość, dlatego ważył on funt (gdyż po łacinie „libra” oznacza zarówno ‘funt’, jak i ‘wagę’, symbol sprawiedliwości). Był on zaś cennym olejkiem spikanardowym. Co do owego spikanardu (określonego po łacinie jako „nardus písticus”) to należy przez to rozumieć pochodzenie owego cennego olejku; jednakże owo słowo nie jest bez znaczenia i zawiera głębszą tajemnicę. Wiara po grecku „pistis” się nazywa. Chciałeś wypełnić sprawiedliwość: Sprawiedliwy z wiary żyje. Namaszczaj stopy Jezusa, żyjąc dobrze: idź śladami Pana. Ocieraj włosami: jeśli masz coś zbędnego, daj ubogim, a otarłeś stopy Pana; włosy bowiem zdają się czymś niepotrzebnym dla ciała. Masz sposobność uczynić coś z tym, czego masz w nadmiarze; dla ciebie jest to zbędne, lecz dla stóp Pana konieczne. Może na ziemi nogi Pana są w potrzebie.  
-  
-
-
-### Responsory2  
-R. Dla moich nieprzyjaciół stałem się wielkim urągowiskiem: widząc Mnie, potrząsają głowami.  
-* Dopomóż Mi, Panie, mój Boże.  
-V. Mówili przeciwko Mnie językiem zdradliwym i osaczyli Mnie mowami pełnymi nienawiści.  
-R. Dopomóż Mi, Panie, mój Boże.  
-  
-
-
-### Lectio3  
-O czym bowiem, jeśli nie o swoich członkach Pan przy końcu powie: Coście uczynili jednemu z moich najmniejszych, Mnieście uczynili? Użyliście na coś tego, co wam zbywało, ale stopom moim wyświadczyliście przysługę. A dom napełnił się wonnością. Dobra sława świat przepełniła, dobrą bowiem wonią jest sława dobra. Ci, którzy źle żyją i chrześcijanami się nazywają, zniewagę Chrystusowi wyrządzają. O takich jest powiedziane, iż bluźnią imieniowi Pańskiemu. Gdy oni bluźnią imieniowi Pańskiemu, sprawiedliwi sławią imię Jego. Posłuchaj Apostoła: Jesteśmy – mówi – miłą wonią Chrystusową na każdym miejscu.  
-  
-
-
-### Responsory3  
-R. Powstali przeciw Mnie niegodziwcy bez miłosierdzia, pragnęli Mnie zgładzić i nie zawahali się opluwać mojej twarzy. Zranili Mnie swymi włóczniami i zadrżały wszystkie moje kości,  
-* A Ja uznałem siebie za martwego na ziemi.  
-V. Wylali gniew swój na Mnie, zgrzytali przeciw Mnie zębami swymi.  
-R. A Ja uznałem siebie za martwego na ziemi.  
-Chwała Ojcu.  
-R. Powstali przeciw Mnie niegodziwcy bez miłosierdzia, pragnęli Mnie zgładzić i nie zawahali się opluwać mojej twarzy. Zranili Mnie swymi włóczniami i zadrżały wszystkie moje kości, * A Ja uznałem siebie za martwego na ziemi.  
-  
-
-
 ### Ant Laudes  
 Twarzy mojej * nie odwróciłem od łających i plujących na mię.  
 Mieczu ocknij się * przeciwko nim, którzy gubią trzodę moją.  
@@ -7421,25 +4056,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Jr 12:1-4*  
-1 Sprawiedliwyś ty w prawdzie, Panie! gdybych się z tobą spierał: a wszakóż sprawiedliwości będę do ciebie mówił. Czemu się szczęści droga niezbożnych? dobrze się mają wszyscy, którzy przestępują i nieprawość czynią?   
-2 Wsadziłeś je, i rozkorzenili się: rosną i owoc wydają, bliskoś ty jest ust ich, a daleko od nerek ich.  
-3 A ty, Panie! znasz mię, widziałeś mię i doświadczyłeś serca mego u siebie: zgromadź je jako trzodę na rzeź i poświęć je w dzień zabijania.  
-4 Dokądże płakać będzie ziemia, a ziele wszego pola schnąć będzie? dla złości mieszkających na niéj zstrawione jest bydło i ptastwo; bo mówili: Nie ujrzy ostatków naszych.  
-  
-
-
-### Lectio3  
-*Jr 12:7-11*  
-7 Opuściłem dom mój, ostawiłem dziedzictwo moje: dałem miłą duszę swoję w ręce nieprzyjaciół jéj.  
-8 Stało mi się dziedzictwo moje jako lew w lesie: puściło przeciwko mnie głos, dlatego je mam w nienawiści.  
-9 Izali dziedzictwo moje jest mi ptakiem pstrym? Izali ptakiem zewsząd farbowanym? Przyjdźcie, zbierzcie się wszyscy zwierzowie ziemscy, śpieszcie się na pożarcie.  
-10 Pasterze mnodzy skazili winnicę moję, podeptali dział mój, obrócili część móję rozkoszną w pustynią pustą.  
-11 Obrócili ją w rozszarpanie, i płakała nademną: spustoszeniem spustoszona jest wszystka ziemia; bo niemasz, ktoby uważał w sercu.  
-  
-
-
 ### Ant Laudes  
 Wejrzyj, Panie, * a obacz, bom jest w utrapieniu: prędko wysłuchaj mię  
 Rozeznaj sprawę moję * Panie, od człowieka niesprawiedliwego i zdradliwego wyrwij mię.  
@@ -7469,35 +4085,6 @@ Mam moc * położyć duszę moją, a mam moc zasię wziąć ją.
 Niechaj miłosierdzie Twoje, Panie, oczyści nas ze wszystkich pozostałości starego człowieka i przygotuje w nas święte odnowienie.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Mówili przeciwko mnie językiem zdradliwym, i ogarnęli mię mowami nienawistnemi: miasto tego, co mię miłować mieli, uwłaczali mi.  
-* A jam się modlił, i wysłuchał mię, Pan, Bóg mój.  
-V. I oddawali mi złem za dobre: a nienawiścią za miłość moję.  
-R. A jam się modlił, i wysłuchał mię, Pan, Bóg mój.  
-  
-
-
-### Lectio2  
-*Jr 18:13-18*  
-13 Przetóż to mówi Pan: Pytajcie narodów, kto słychał takie straszne rzeczy, które czyniła nazbyt panna Izraelska?  
-14 Izali ustaje z skały polnéj śnieg Libanu? albo mogąli być wytracone wody wynikające zimne i ściekające?  
-15 Iż mię lud mój zapomniał, próżno ofiarując, i potykając się po drogach swych, po ścieżkach wieku, aby chodzili po nich gościńcem nie utartym:  
-16 Aby była ziemia ich spustoszeniem i świstaniem wiecznem: każdy, kto pójdzie przez nię, zdumieje się i będzie chwiał głową swoją.  
-17 Jako wiatr palący rozmiecę je przed nieprzyjacielem: tył a nie twarz ukażę im w dzień ich zatracenia.  
-18 I rzekli: Pójdźcie, a wymyślmy na Jeremiasza myśli; bo nie zginie zakon od kapłana, ani rada od mądrego, ani słowo od proroka: pójdźcie, a ubijem go językiem, a nie dbajmy na wszystkie mowy jego.  
-  
-
-
-### Lectio3  
-*Jr 18:19-23*  
-19 Pilnuj mię, Panie, a posłuchaj głosu przeciwników moich.  
-20 Izali oddawają złe za dobre, że wykopali dół duszy mojéj? wspomnij, żem stał przed oczyma twemi, żebych mówił za nimi dobrze, i odwrócił od nich rozgniewanie twoje.  
-21 Przetóż podaj syny ich do głodu, a wwiedź je w ręce miecza: niech będą żony ich bez dzieci i wdowy, a mężowie ich niech zabici będą śmiercią, młodzieńcy ich niech będą przebici mieczem w bitwie.  
-22 Niech będzie słyszan wrzask z domów ich; przywiedziesz bowiem na nie zbójcę nagle; bo wykapali dół, aby mię ułowili i sidła skryli na nogi moje.  
-23 Ale ty, Panie! wiesz wszelką radę ich przeciwko mnie na śmierć: nie bądź miłościw nieprawości ich, a grzech ich obliczem twojem niech wymazan nie będzie: niech będą upadający przed oczyma twemi, czasu gniewu twego pastw się nad nimi.  
-  
 
 
 ### Ant Laudes  
@@ -7857,65 +4444,10 @@ R. Rozsądź sprawę moją.
   
 
 
-### Responsory1  
-R. Na górze Oliwnej modlił się do Ojca: Ojcze, jeśli można, niechaj odejdzie ten kielich odemnie.  
-* Duch wprawdzie jest ochotny, ale ciało mdłe.  
-V. Czuwajcie, a módlcie się, byście nie weszli w pokuszenie.  
-R. Duch wprawdzie jest ochotny, ale ciało mdłe.  
-  
-
-
-### Lectio2  
-*Lm 1:6-9*  
-6 Vau. I odstąpiła od córki Syońskiéj wszystka ozdoba jéj, stały się książęta jéj jako barani nie najdujący paszy, i poszli bez siły przed obliczem goniącego.  
-7 Zajin. Wspomniało Jeruzalem na dni utrapienia swego i na przestępstwa wszego kochania swego, które miało odedni dawnych, gdy upadł lud jego od ręki nieprzyjacielskiéj, a nie było pomocnika: widzieli je nieprzyjaciele, a naśmiewali się z szabatów jego.  
-8 Cheth. Grzech zgrzeszyło Jeruzalem, dlatego się niestateczne stało: wszyscy, którzy je czcili, wzgardzili je; bo widzieli zelżywość jego, samo téż wzdychając obróciło się nazad.  
-9 Teth. Plugastwa jego na nogach jego, a nie pomniało na swój koniec: złożone jest bardzo, nie mając pocieszyciela. Obacz, Panie! utrapienie moje; bo się podniósł nieprzyjaciel.  
-Jeruzalem, Jeruzalem, nawróć się do Pana Boga Twego.  
-  
-
-
-### Responsory2  
-R. Smutna jest dusza moja, aż do śmierci: czekajcie tu, a czuwajcie ze mną. Oto ujrzycie rzeszę, która otoczy mnie:  
-* Wy ujdziecie, a ja będę ofiarowan za was.  
-V. Oto przybliża się godzina, a Syn Człowieczy będzie wydany w ręce grzeszników.  
-R. Wy ujdziecie, a ja będę ofiarowan za was.  
-  
-
-
-### Lectio3  
-*Lm 1:10-14*  
-10 Jod. Rękę swoje ściągnął nieprzyjaciel na wszystkie kochania jego; bo widziało pogany, że weszli do świątnice jego, którym zakazałeś był, żeby nie wchodzili do kościoła twego.  
-11 Kaph. Wszystek lud jego wzdychający i szukający chleba, wydali wszystkie drogie rzeczy za jadło, na posilenie dusze. Wejrzyj, Panie! a obacz, żem się stało podłem.  
-12 Lamed. O wy wszyscy, którzy idziecie przez drogę, obaczcie a przypatrzcie się, jeźli jest boleść jako boleść moja; bo mię jako winnicę zebrał, jako mówił Pan, w dzień gniewu zapalczywości swojéj.  
-13 Mem. Z wysoka puścił ogień na kości moje i wyćwiczył mię: zastawił sieć na nogi moje, obrócił mię nawstecz, położył mię spustoszoną przez wszystek dzień żałością utrapioną.  
-14 Nun. Ocknęło się jarzmo nieprawości moich w ręce jego, splotły się i włożone są na szyję moje, zemdlała siła moja. Podał mię Pan w rękę, z któréj nie będę mogło powstać.  
-Jeruzalem, Jeruzalem, nawróć się do Pana Boga Twego.  
-  
-
-
-### Responsory3  
-R. Oto widzieliśmy go, nie ma krasy ani piękności: a nie było nacz pojrzeć: Ten grzechy nasze nosił, i za nas cierpiał. Sam zaś zranion jest za nieprawości nasze:  
-* Którego sinością uzdrowieni jesteśmy.  
-V. Prawdziwie choroby nasze On nosił, a boleści nasze On odnosił.  
-R. Którego sinością uzdrowieni jesteśmy.  
-Chwała Ojcu.  
-R. Oto widzieliśmy go, nie ma krasy ani piękności: a nie było nacz pojrzeć: Ten grzechy nasze nosił, i za nas cierpiał. Sam zaś zranion jest za nieprawości nasze: * Którego sinością uzdrowieni jesteśmy.  
-  
-
-
 ### Lectio4  
 Z traktatu św. Augustyna Biskupa o Psalmach  
 *Psalm 54 od 1 wiersza*  
 Wysłuchaj, Boże, modlitwę moją, a nie wzgardzaj błaganiem mojem: nakłoń się ku mnie, a wysłuchaj mnie. Są to słowa człowieka strapionego, pełnego niepokoju, pogrążonego w ucisku. W cierpieniu swem modli się, pragnąc wyzwolenia od złego. Zobaczmy, jaka jest przyczyna złego; gdy nam ją wyłoży, ujrzymy, że w podobnem położeniu jesteśmy i połączymy się z nim w modlitwie, tak jak w cierpieniach jego uczestniczymy. Przygniata mnie troska moja; i pełen niepokoju jestem — mówi. Co go przygniata? Dlaczego jest pełen niepokoju? — Troska go przygniata, gdy myśli o ludziach złych, którzy są przyczyną cierpień jego. Ćwiczy się w cierpliwości, znosząc ich prześladowania. — Nie myślcie, że źli nie przynoszą żadnego pożytku w świecie i że Bóg nie czyni przez nich nic dobrego. Każdy ze złych żyje na świecie, aby mógł się poprawić, albo żeby przezeń sprawiedliwi ćwiczyli się w cnocie.  
-  
-
-
-### Responsory4  
-R. Przyjaciel mój wydał mnie pocałunkiem. Któregokolwiek pocałuję, tenci jest, imajcie go. Oto zbrodniczy znak, który dał ten przez pocałunek, przez którego dokonało się zabójstwo człowieka.  
-* Nieszczęśliwy odmówił zapłaty krwi i w końcu obwiesił się.  
-V. Lepiej mu było, aby się był nie narodził on człowiek.  
-R. Nieszczęśliwy odmówił zapłaty krwi i w końcu obwiesił się.  
   
 
 
@@ -7924,26 +4456,8 @@ Oby ci, przez których teraz się ćwiczymy, nawrócili się i wraz z nami ćwic
   
 
 
-### Responsory5  
-R. Judasz kupczący nieprawością, prosił Pana o pocałowanie: On jako jagnię niewinne nie odmówił Judaszowi pocałowania.  
-* Za kilka denarów, Judasz wydał Żydom Chrystusa,  
-V. Lepiejby mu było, gdyby się był nie narodził.  
-R. Za kilka denarów, Judasz wydał Żydom Chrystusa,  
-  
-
-
 ### Lectio6  
 Albowiem widziałem nieprawość i rozdwojenie w mieście. Rozważ chwałę krzyża tego. Znieważali go nieprzyjaciele, a teraz spoczywa on na skroniach królów. Skutki zaświadczyły o potędze jego: zwyciężył świat nie żelazem, lecz drzewem. Drzewo krzyża zdawało się nieprzyjaciołom być godnem pośmiewiska; tak że stojąc przed tem drzewem, chwiali głowami mówiąc: Jeśli jest Synem Bożym, niech zstąpi z krzyża On zaś wyciągał ręce swoje do tego ludu niewiernego i sprzeciwiającego się jemu. Jeżeli sprawiedliwym jest ten, który z wiary żyje: niesprawiedliwym jest ten, który nie ma wiary. Nieprawość, o której tu mowa, należy rozumieć jako niewierność. Widział tedy Pan w mieście nieprawość i sprzeciwianie się woli swojej i wyciągał ręce do ludu niewiernego i sprzeciwiającego się jemu: i mimo wszystko, oczekując ich nawrócenia, modlił się: Ojcze, odpuść im, bo nie wiedzą co czynią.  
-  
-
-
-### Responsory6  
-R. Jeden z uczniów moich wyda mnie dziś: biada temu, przez którego będę wydany:  
-* Lepiejby mu było, gdyby się był nie narodził.  
-V. Który macza ze mną rękę w misie, ten mię wyda w ręce grzeszników.  
-R. Lepiejby mu było, gdyby się był nie narodził.  
-Chwała Ojcu.  
-R. Jeden z uczniów moich wyda mnie dziś: biada temu, przez którego będę wydany: * Lepiejby mu było, gdyby się był nie narodził.  
   
 
 
@@ -7959,28 +4473,12 @@ Z Pierwszego listu św. Pawła Apostoła do Koryntian
   
 
 
-### Responsory7  
-R. Byłem jako baranek niewinny, nieśli mię na rzeź, a nie poznałem: myślili na mię rady nieprzyjaciele moi, mówiąc:  
-* Pójdźcie, włóżmy drewno w chleb jego, a wygładźmy go z ziemi żywiących,  
-V. Wszyscy nieprzyjaciele moi myślili złe przeciwko mnie. Słowo złośliwe powiedzieli przeciwko mnie, mówiąc.  
-R. Pójdźcie, włóżmy drewno w chleb jego, a wygładźmy go z ziemi żywiących,  
-  
-
-
 ### Lectio8  
 *1 Kor 11:23-26*  
 23 Albowiem ja wziąłem od Pana, com téż wam podał: Iż Pan Jezus nocy, której był wydan, wziął chleb,  
 24 A dzięki uczyniwszy, łamał i rzekł: Bierzcie a jedzcie; to jest ciało moje, które za was będzie wydane: to czyńcie na moje pamiątkę.  
 25 Także i kielich po wieczerzy, mówiąc: Ten kielich nowy Testament jest we krwi mojéj. To czyńcie, ilekroć pić będziecie, na pamiątkę moję.  
 26 Albowiem ilekroć będziecie ten chleb jedli i kielich pili, śmierć Pańską będziecie opowiadać, aż przyjdzie.  
-  
-
-
-### Responsory8  
-R. Nie mogliście jednej godziny czuwać ze mną, wy, którzyście przyrzekali umrzeć za mnie?  
-* Co, nie widzicie iż Judasz nie śpi, lecz spieszno mu wydać mnie Żydom?  
-V. Czemu śpicie? wstańcie i módlcie się, byście nie weszli w pokuszenie.  
-R. Co, nie widzicie iż Judasz nie śpi, lecz spieszno mu wydać mnie Żydom?  
   
 
 
@@ -8541,6 +5039,8 @@ R. Amen.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
+IOError, 
+(2, 'No such file or directory')
 
 
 ## Niedziela Zmartwychwstania Pańskiego  
@@ -9160,6 +5660,8 @@ R. Bogu dzięki, alleluja, alleluja.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
+IOError, 
+(2, 'No such file or directory')
 
 # Okres Wielkanocny
 
@@ -9189,37 +5691,6 @@ Prosiłem Ojca mego, * alleluja: dał mi Narody, alleluja, w dziedzictwo, allelu
 Jam spał, * i twardom zasnął: i wstałem, bo Pan obronił mię, alleluja, alleluja.;;3  
 V. Wstał Pan z grobu. Alleluja.  
 R. Który za nas zawisł na drzewie. Alleluja.  
-  
-
-
-### Responsory1  
-R. Anioł Pański zstąpił z nieba i przystąpiwszy, odsunął kamień i usiadł na nim , i rzekł niewiastom:  
-* Nie bójcie się. Wiem bowiem, że szukacie Ukrzyżowanego: już zmartwychwstał. Pójdźcie, a oglądajcie miejsce, gdzie Pan był złożony. Alleluja.  
-V. A wszedłszy do grobowca, ujrzały młodzieńca siedzącego po prawej stronie, ubranego w szatę białą, i zdumiały się.  
-R. Nie bójcie się. Wiem bowiem, że szukacie Ukrzyżowanego: już zmartwychwstał. Pójdźcie, a oglądajcie miejsce, gdzie Pan był złożony. Alleluja.  
-Chwała Ojcu.  
-R. Anioł Pański zstąpił z nieba i przystąpiwszy, odsunął kamień i usiadł na nim , i rzekł niewiastom: * Nie bójcie się. Wiem bowiem, że szukacie Ukrzyżowanego: już zmartwychwstał. Pójdźcie, a oglądajcie miejsce, gdzie Pan był złożony. Alleluja.  
-  
-
-
-### Lectio2  
-Należy też zwrócić uwagę na znaczenie faktu, iż Anioł siedzi po prawej stronie. Co bowiem oznacza lewa strona, jeśli nie teraźniejsze życie, a prawa – życie wieczne? Toteż w Pieśni nad pieśniami jest napisane: Lewa jego ręka pod głową moją, a prawica jego obejmuje mnie. Ponieważ Odkupiciel już opuścił nasze skażone życie, Anioł, który przybył zwiastować Jego życie wiekuiste, słusznie zasiadł po prawej stronie. Ukazał się odziany w białą szatę, gdyż zwiastował radość naszej uroczystości. Blask bowiem ubrania wskazuje na dostojność naszego święta. Czy lepiej powiedzieć „naszego”, czy też „jego” święta? Najstosowniej się wyrazimy, mówiąc: „naszego i jego”. Zmartwychwstanie naszego Odkupiciela było naszą uroczystością, ponieważ przywróciło nas do nieśmiertelności; było też jednak uroczystością dla Aniołów, ponieważ przez przywołanie nas z powrotem do nieba dopełniła się ich liczba.  
-  
-
-
-### Responsory2  
-R. Gdy minął szabat, Maria Magdalena i Maria Jakubowa, i Salome nakupiły wonności,  
-* Aby pójść i namaścić Jezusa. Alleluja, alleluja.  
-V. I bardzo rano w pierwszy dzień tygodnia przyszły do grobu, gdy już wzeszło słońce.  
-R. Aby pójść i namaścić Jezusa. Alleluja, alleluja.  
-Chwała Ojcu.  
-R. Aby pójść i namaścić Jezusa. Alleluja, alleluja.  
-  
-
-
-### Lectio3  
-A więc podczas swojej i naszej uroczystości Anioł ukazał się w białych szatach, dzięki temu bowiem, iż przez zmartwychwstanie Pana jesteśmy przywróceni niebu, naprawione są straty, jakie poniosła niebiańska ojczyzna. Posłuchajmy teraz, co Anioł powiedział do przybyłych niewiast: Nie lękajcie się. Jakby chciał wprost powiedzieć: Ci winni się obawiać, którzy nie pragną przybycia mieszkańców nieba; ci niech się boją, którzy pozostając w jarzmie cielesnych żądz, stracili nadzieję, by mogli się dostać do towarzystwa Aniołów. Dlaczego wy się boicie, widząc swych współobywateli? Toteż Mateusz, pisząc o ukazaniu się Anioła, mówi: Wejrzenie jego jako błyskawica, a szaty jego jako śnieg. Błyskawica wyraża grozę i bojaźń, śnieg zaś powab niewinności.  
-&teDeum  
   
 
 
@@ -9294,35 +5765,6 @@ Ant. Tenci jest dzień, * który uczynił Pan, radujmy się i weselmy się weń.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Maria Magdalena i druga Maria wczesnym rankiem poszły do grobu.  
-* Jezusa, którego szukacie, nie ma tu, zmartwychwstał, jako zapowiedział, podąży przed wami do Galilei, tam go ujrzycie. Alleluja, alleluja.  
-V. I bardzo rano w pierwszy dzień tygodnia przyszły do grobu, gdy już wzeszło słońce: A wszedłszy, ujrzały młodzieńca siedzącego po prawej stronie.  
-R. Jezusa, którego szukacie, nie ma tu, zmartwychwstał, jako zapowiedział, podąży przed wami do Galilei, tam go ujrzycie. Alleluja, alleluja.  
-  
-
-
-### Lectio2  
-Wprawdzie do nich mówił, karcił zatwardziałość ich serca, wyjaśniał im teksty Pisma Świętego, które o Nim mówiły, ponieważ jednak dla ich serc był jeszcze obcym, udawał, jakby chciał jeszcze iść dalej. Po łacinie „udawać”, czyli „fíngere”, znaczy również „kształtować”. Dlatego tych, co zajmują się kształtowaniem gliny, czyli garncarzy, zwie się w tym języku „fíguli”. (Pan, udając przed uczniami, jednocześnie kształtował ich ducha). Nic więc sama Prawda dwuznacznie nie uczyniła, lecz Jezus ukazał się im zewnętrznie takim, jakim był w ich sercach. Mieli być wewnętrznie wypróbowani, czy, nie kochając Go jeszcze jako Boga, mogą Go przynajmniej miłować jako obcego.  
-  
-
-
-### Responsory2  
-R. Zmartwychwstał Dobry Pasterz, który swoje życie oddał za owce swoje i raczył śmierć ponieść za swoją owczarnię.  
-* Alleluja, alleluja, alleluja.  
-V. Albowiem na Paschę naszą został ofiarowany Chrystus.  
-R. Alleluja, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Alleluja, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-Ponieważ jednak miłość nie mogła być obcą dla tych, z którymi szła Prawda, zapraszają Jezusa w gościnę, jakby wędrowca. Dlaczego jednak mówimy „zapraszają”, skoro jest napisane: I przymusili Go. Z tego przykładu widać, iż obcych należy nie tylko zapraszać w gościnę, lecz nalegać do korzystania z niej. Zastawiają stół, podają chleb i potrawy. I Boga, którego nie poznali przy wykładzie Pisma Świętego, poznają przy łamaniu chleba. Przy słuchaniu więc przykazań Boga nie zostali oświeceni, otrzymali światło przy ich spełnianiu; napisane jest bowiem: Nie ci, którzy słuchają Zakonu, sprawiedliwymi są przed Bogiem, ale ci, którzy Zakon pełnią, będą usprawiedliwieni. Kto więc to, co usłyszał, chce zrozumieć, niech się śpieszy to, co już zdołał zrozumieć, w czyn wprowadzić. Oto Pan nie był poznany, gdy mówił, ale dał się poznać, gdy posiłek Mu podano.  
-&teDeum  
-  
-
-
 ### Ant 2  
 Jezus przybliżył się * do uczniów swoich w drodze i szedł z nimi: a oczy ich były zatrzymane, aby Go nie poznali: i zganił ich, mówiąc: O głupi, a leniwego sdrca ku wierzeniu temu wszystkiemu, co powiedzieli Prorocy, alleluja.  
   
@@ -9339,37 +5781,12 @@ Cóż to są za rozmowy, * które idąc macie między sobą, a jesteście smutni
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
+IOError, 
+(2, 'No such file or directory')
 
  Błąd importu.
-
-
-### Responsory1  
-R. Wzięto Pana mego, a nie wiem, gdzie Go położono. Mówią jej Aniołowie: Niewiasto, czemu płaczesz? Zmartwychwstał, jako zapowiedział:  
-* Podąży przed wami do Galilei, tam go ujrzycie. Alleluja, alleluja.  
-V. Maria, płacząc, nachyliła się, i zajrzała do grobu. I spostrzegła dwóch Aniołów w bieli siedzących, którzy jej mówią:  
-R. Podąży przed wami do Galilei, tam go ujrzycie. Alleluja, alleluja.  
-  
-
-
-### Lectio2  
-Należy tu rozważyć, jaką miłością płonęło serce tej niewiasty, iż nie odstąpiła od grobu Pana, nawet gdy uczniowie odeszli. Szukała Tego, kogo nie znalazła. Szukała z płaczem, płonąc ogniem swej miłości. Gorzała pragnieniem zobaczenia Tego, o którym sądziła, iż Go wzięto. Toteż stało się, iż tylko ona Go wtedy zobaczyła, bo tylko ona została, aby Go szukać. Ponieważ mocą dobrego czynu jest wytrwałość i Prawda swym głosem oświadcza: Kto wytrwa aż do końca, ten zbawiony będzie.  
-  
-
-
-### Responsory2  
-R. Radujcie się ze mną, wszyscy, którzy miłujecie Pana, bo ukazał mi się Ten, którego szukałam,  
-* A gdy płakałam u grobu, ujrzałam Pana. Alleluja, alleluja.  
-V. Gdy uczniowie odeszli, ja od grobu nie odstąpiłam i płonąc ogniem Jego miłości, gorzałam pragnieniem Jego zobaczenia.  
-R. A gdy płakałam u grobu, ujrzałam Pana. Alleluja, alleluja.  
-Chwała Ojcu.  
-R. A gdy płakałam u grobu, ujrzałam Pana. Alleluja, alleluja.  
-  
-
-
-### Lectio3  
-Jednakże Maria, płacząc, nachyliła się i zajrzała do grobu. Przecież już z całą pewnością wiedziała, iż grób jest pusty, i o tym doniosła, że Pana zabrano; dlaczego ponownie się schyla i znowu chce Go zobaczyć? Kochającej duszy jedno spojrzenie nie wystarcza, gdyż moc miłości skłania ją do licznych poszukiwań. Chociaż więc szukała już i nie znalazła, trwa w poszukiwaniu i dlatego znajduje. Zwłoka w spełnieniu się jej pragnienia jeszcze je powiększała, a zwiększone pragnienie sprawiło, iż znalazła Tego, kogo szukała.  
-&teDeum  
-  
+IOError, 
+(2, 'No such file or directory')
 
 
 ### Ant 2  
@@ -9388,35 +5805,6 @@ Wzięto Pana mego * i nie wiem, gdzie Go położono. jeśliś ty Go wziął, pow
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Po zmartwychwstaniu Pan nasz Jezus, stojąc w pośrodku uczniów swoich, powiedział:  
-* Pokój wam. Alleluja. Uradowali się uczniowie, ujrzawszy Pana. Alleluja.  
-V. Dnia pierwszego po szabacie, gdy drzwi były zamknięte tam, gdzie zgromadzili się uczniowie, przyszedł Jezus, stanął między nimi i rzekł im:  
-R. Pokój wam. Alleluja. Uradowali się uczniowie, ujrzawszy Pana. Alleluja.  
-  
-
-
-### Lectio2  
-Idąc tedy, nauczajcie wszystkie narody, chrzcząc je w imię Ojca i Syna, i Ducha Świętego. Najpierw nauczają wszystkie narody, następnie pouczone zanurzają w wodzie. Nie może bowiem się stać, aby ciało przyjmowało sakrament Chrztu, jeśli dusza wcześniej nie przyjęła prawdy wiary. Są zaś chrzczeni w imię Ojca i Syna, i Ducha Świętego, aby Tych, których jest jedno Bóstwo, była też jedna hojność; a jeden Bóg jest imieniem Trójcy.  
-  
-
-
-### Responsory2  
-R. Uprzątnijcie stary kwas, abyście się stali nowym zaczynem. Albowiem na Paschę naszą został ofiarowany Chrystus.  
-* Świętujmy tedy w Panu. Alleluja.  
-V. Umarł za grzechy nasze i zmartwychwstał dla usprawiedliwienia naszego.  
-R. Świętujmy tedy w Panu. Alleluja.  
-Chwała Ojcu.  
-R. Świętujmy tedy w Panu. Alleluja.  
-  
-
-
-### Lectio3  
-Nauczając je zachowywać wszystko, cokolwiek wam przykazałem. Szczególna kolejność: Rozkazał Apostołom, aby najpierw nauczali wszystkie narody, następnie by zanurzyli je w sakramencie wiary, a po wierze i po chrzcie aby uczyli tego, co należy zachowywać. Abyśmy nie sądzili, że czymś błahym i małym jest to, co nakazano, dodaje jeszcze: wszystko, cokolwiek wam przykazałem, aby ci, którzy uwierzą, którzy w imię Trójcy zostaną ochrzczeni, jeszcze czynili wszystko, co zostało przykazane. A oto Ja jestem z wami po wszystkie dni, aż do skończenia świata. Obiecuje, że będzie z uczniami aż do skończenia świata i pokazuje, że oni zawsze będą zwyciężać, a On sam nigdy nie odstąpi od wierzących.  
-&teDeum  
-  
-
-
 ### Ant 2  
 Jedenastu uczniów * w Galilei ujrzawszy Pana, pokłonili się mu, alleluja.  
   
@@ -9431,35 +5819,6 @@ Przez Pana.
 ### Ant 3  
 Dana mi jest * wszelka władza na niebie i na ziemi, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Chrystus, powstawszy z martwych, więcej nie umiera i śmierć więcej już nad Nim nie zapanuje. Bo że umarł dla grzechu, raz umarł,  
-* A że żyje, żyje w Bogu. Alleluja, alleluja.  
-V. Raz umarł za grzechy nasze i zmartwychwstał dla usprawiedliwienia naszego.  
-R. A że żyje, żyje w Bogu. Alleluja, alleluja.  
-  
-
-
-### Lectio2  
-Biegli obaj razem, lecz Jan wyprzedził Piotra i pierwszy przybył do grobu, ale nie śmiał wejść do niego. Później zaś przybył Piotr i wszedł. Co, bracia, co ten bieg oznacza? Czy można sądzić, iż ten tak dokładny opis ewangeliczny nie ma znaczenia mistycznego? Bynajmniej. Jan nie powiedziałby, iż przyszedł, a nie wszedł, gdyby w swym lęku nie widział tajemnicy. Co bowiem Jan oznacza, jeśli nie Synagogę, a co Piotr, jeśli nie Kościół?  
-  
-
-
-### Responsory2  
-R. Oto są baranki młode, oto ci zawołali: Alleluja! Dopiero co przyszli do zdrojów,  
-* Światłością się napełnili. Alleluja, alleluja, alleluja.  
-V. Przed obliczem Baranka przyodziali się w szaty białe, a palmy w ich ręku.  
-R. Światłością się napełnili. Alleluja, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Światłością się napełnili. Alleluja, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-Nic dziwnego, iż młodszy wyraża Synagogę, a starszy Kościół. Choć bowiem Synagoga w oddawaniu czci Boga jest co do czasu starsza niż Kościół powstały z pogan, to, o ile idzie o używanie świata, mnóstwo pogan poprzedza Synagogę, jak o tym świadczy Paweł, mówiąc: Nie pierwsze jest duchowe, lecz wprzód zmysłowe. Przez starszego więc Piotra wyrażony jest Kościół z gmin pogańskich powstały, młodszy zaś Jan wyraża Synagogę. Obaj biegli razem, albowiem od czasu swego powstania aż do końca pogaństwo i Synagoga biegły tąż samą, wspólną drogą, chociaż nie z tym samym usposobieniem. Synagoga pierwsza przyszła do grobu, ale do niego nie weszła, choć bowiem otrzymała przykazania Prawa i słyszała proroctwa o wcieleniu i męce Pana, jednak nie chciała wierzyć w umarłego.  
-&teDeum  
-  
 
 
 ### Ant 2  
@@ -9494,34 +5853,6 @@ Gdy był wieczór * dnia onego, pierwszego sabbatu, a drzwi były zamknięte, gd
 ### Kolekta  
 Spraw, prosimy Cię, wszechmogący Boże, aby, którzyśmy uroczystość Wielkanocną obchodzili, ducha jej w czynach i postępowaniu przez całe życie zachowali.  
 Przez Pana.  
-  
-
-
-### Lectio2  
-*Kol 3:8-13*  
-8 Lecz teraz złóżcie i wy wszystko: gniew, rozgniewanie, złość, bluźnierstwo, szkaradną mowę z ust waszych.   
-9 Nie kłamajcie jedni drugim: zwlókłszy z siebie starego człowieka z uczynkami jego,  
-10 A oblókłszy nowego tego, który się odnawia w poznanie podług wyobrażenia tego, który go stworzył.  
-11 Gdzie niemasz poganina i Żyda, obrzezania i odrzezku, barbarzyna i Tatarzyna, niewolnika i wolnego; ale wszystko i we wszech Chrystus.  
-12 Przyobleczcież się tedy (jako wybrani Boży, święci i umiłowani) we wnętrzności miłosierdzia, w dobrotliwość, w pokorę, w cichość, w cierpliwość.   
-13 Jedni drugich znosząc i odpuszczając sobie, jeźli kto ma skargę przeciw komu: jako i Pan odpuścił wam, tak i wy.  
-  
-
-
-### Responsory2  
-R. Anioł Pański mówił z niewiastami, rzekąc: Kogo szukacie? Jezusa szukacie? Zmartwychwstał:  
-*. Pójdźcie a oglądajcie, alleluja, alleluja.  
-V. Jezusa szukacie Nazareńskiego, ukrzyżowanego? Wstał, niemasz go tu.  
-R. Pójdźcie a oglądajcie, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-*Kol 3:14-17*  
-14 A nad to wszystko miejcie miłość, która jest związką doskonałości.  
-15 A pokój Chrystusów niech przewyższa w sercach waszych, ku któremu téż wezwani jesteście w jednem ciele, a wdzięczni bądźcie.  
-16 Słowo Chrystusowe niechaj mieszka w was obficie z wszelaką mądrością, nauczając i sami siebie napominając przez Psalmy i pieśni i śpiewania duchowne, w łasce śpiewając w sercach waszych Bogu.  
-17 Wszystko, cokolwiek czynicie w słowie albo w uczynku, wszystko w imię Pana Jezusa Chrystusa, dziękując Bogu i Ojcu przezeń.   
   
 
 
@@ -9561,34 +5892,6 @@ Po ośmiu dniach, * drzwiami zamkniętemi, wszedł Pan i rzekł im: Pokój wam, 
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Dz 1:9-14*  
-9 A to rzekłszy, gdy oni patrzali, podniesion jest, a obłok wziął go od oczu ich.  
-10 A gdy pilnie patrzali za nim do nieba idącym, oto dwaj mężowie stanęli przy nich w białem odzieniu,  
-11 Którzy téż rzekli: Mężowie Galilejscy! czemu stoicie patrząc w niebo? ten Jezus, który wzięt jest od was do nieba, tak przyjdzie, jakoście go widzieli idącego do nieba.  
-12 Tedy się wrócili do Jeruzalem od góry, którą zowią Oliwną, która jest blizko Jeruzalem, mając drogę szabbatu.  
-13 A gdy weszli, wstąpili do wieczernika, gdzie przebywali Piotr i Jan, Jakób i Andrzéj, Filip i Thomasz, Bartłomiéj i Mattheusz, Jakób  Alpheuszów i Szymon Zelotes i Judas Jakóbów.  
-14 Ci wszyscy trwali jednomyślnie na modlitwie z niewiastami i z Maryą, matką Jezusową, i z bracią jego.  
-  
-
-
-### Lectio3  
-*Dz 1:15-26*  
-15 W one dni powstawszy Piotr w pośród braciéj, rzekł: (a był poczet osób wespółek jakoby sto dwadzieścia),  
-16 Mężowie bracia, musiałoć się wypełnić Pismo, które opowiedział Duch Święty przez usta Dawidowe, o Judaszu, (który był wodzem tych, co poimali Jezusa,)  
-17 Który był policzony z nami, i dostała mu się cząstka tego usługowania.  
-18 A onci otrzymał rolą z zapłaty niesprawiedliwości, a obiesiwszy się, rozpukł się na poły, i wypłynęły wszystkie wnętrzności jego.  
-19 I stało się jawno wszystkim mieszkającym w Jeruzalem, tak iż nazwano onę rolą ich językiem Haceldama, to jest, rola krwie.  
-20 Albowiem napisano w księgach Psalmów: Niechaj będzie ich mieszkanie puste, a niech nie będzie, ktoby w niem mieszkał, a biskupstwo jego niech weźmie drugi.  
-21 Potrzeba tedy z tych mężów którzy się z nami schodzili przez wszystek czas, którego Pan Jezus wchodził i wychodził między nami,  
-22 Począwszy ode chrztu Janowego aż do tego dnia, w który jest wzięt od nas, aby jeden z nich był z nami świadkiem zmartwychwstania jego.  
-23 I postanowili dwu. Józepha, którego zwano Barsabas, którego zwano Justem, i Macieja.  
-24 A modląc się, mówili: Ty, Panie! który znasz serca wszystkich, okaż któregoś obrał z tych dwu jednego.  
-25 Aby wziął miejsce usługowania tego i Apostolstwa, z którego wypadł Judasz, aby odszedł na miejsce swe.  
-26 I dali im losy, i padł los na Macieja, i policzon jest z jedenaścią Apostołów.  
-  
-
-
 ### Ant 2  
 Jezus wstawszy * raniuczko pierwszego dnia szabbatu, ukazał się najprzód Maryi Magdalenie, z któréj był wyrzucił siedmi czartów, alleluja.  
   
@@ -9597,30 +5900,6 @@ Jezus wstawszy * raniuczko pierwszego dnia szabbatu, ukazał się najprzód Mary
 ### Ant 3  
 Pokój wam, * jam jest, alleluja: nie bójcie się, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Dz 2:14-21*  
-14 A stanąwszy Piotr z jedenaścią, podniósł głos swój i mówił im: Mężowie Żydowscy i wszyscy, którzy mieszkacie w Jeruzalem, niech wam to jawno będzie, a przyjmijcie do uszu słowa moje.  
-15 Albowiem nie są pijani ci, jako wy mniemacie, gdyż jest trzecia godzina na dzień.  
-16 Ale to jest, co rzeczono jest przez proroka Joela:  
-17 I będzie w ostateczne dni, (mówi Pan): Wyleję z Ducha mego na wszelkie ciało, a prorokować będą synowie wasi i córki wasze, a młodzieńcy wasi widzenia będą widzieć, a starcom waszym sny się śnić będą.  
-18 A iście w one dni na sługi me i na służebnice moje wyleję z Ducha mego, i będą prorokować.  
-19 I dam cuda na niebie wzgórę i znaki na ziemi nizko, krew i ogień i kurzawę dymu.  
-20 Słońce się obróci w ciemności, a księżyc w krew, przedtem niż przyjdzie dzień Pański wielki i jawny.  
-21 I będzie wszelki, którybykolwiek wzywał imienia Pańskiego, zbawion będzie.  
-  
-
-
-### Lectio3  
-*Dz 2:22-27*  
-22 Mężowie Izraelscy! Słuchajcie słów tych: Jezusa Nazareńskiego, męża od Boga pochwalonego u was mocami i cudami i znakami, które czynił Bóg przezeń między wami, jako i wy wiecie:  
-23 Tego naznaczoną radą i przejrzeniem Bożem wydanego, przez ręce bezbożników umęczywszy, zatraciliście.  
-24 Którego Bóg wzbudził rozwiązawszy boleści piekła, jakóż była rzecz niepodobna, aby od niego miał być on zatrzyman.  
-25 Albowiem Dawid o nim mówi: Upatrowałem zawżdy Pana przed sobą; bo mi jest po prawicy, abych nie był wzruszon.  
-26 Dlategóż się rozweseliło serce moje, a rozradował się język mój: nadto i ciało moje odpocznie w nadziei.  
-27 Albowiem nie zostawisz dusze mojéj w piekle, ani dasz świętemu twemu oglądać skażenia.  
-  
 
 
 ### Ant 2  
@@ -9633,26 +5912,6 @@ Włóż rękę twoją, * i dotknij miejsca gwoźdźi, alleluja: a nie bądź nie
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Dz 3:7-11*  
-7 A ująwszy prawą rękę jego, podniósł go, i wnet były utwierdzone golenie jego i stopy.  
-8 A wyskoczywszy, stanął i chodził i wszedł z nimi do kościoła, chodząc i wyskakując i chwaląc Boga.  
-9 I widział go wszystek lud chodzącego i Boga chwalącego.  
-10 A znali go, iż on był, który dla jałmużny siadał u drzwi ozdobnych kościelnych, i napełnieni byli zdumienia i zapamiętania z tego, co się mu wydarzyło.  
-11 A gdy się trzymał się Piotra i Jana, przybiegł wszystek lud do nich do krużganku, który zowią Salomonowym, zdumiawszy się.  
-  
-
-
-### Lectio3  
-*Dz 3:12-16*  
-12 A ujrzawszy Piotr, odpowiedział do ludu: Mężowie Izraelscy! co się temu dziwujecie? albo przecz się nam przypatrujecie, jakobychmy naszą mocą albo władzą uczynili, że ten chodzi?  
-13 Bóg Abrahamów i Bóg Izaaków i Bóg Jakubów, Bóg ojców naszych, uwielbił Jezusa, Syna swego, któregoście wy wydali i zaprzaliście się przed Piłatem, gdyż jego zdanie było, aby był wypuszczon.  
-14 A wyście się zaprzali Świętego i sprawiedliwego i prosiliście, aby wam darował męża mężobójcę.  
-15 A zabiliście sprawcę żywota, którego Bóg wzbudził od umarłych, czego my świadkami jesteśmy.  
-16 A w wierze imienia jego tego, którego wy widzicie i znacie, umocniło imię jego, i wiara, która przezeń jest, dała to zupełne zdrowie przed oczyma was wszystkich.  
-  
-
-
 ### Ant 2  
 Jam jest winna macica prawdziwa, * alleluja: a wyście latorośli prawdziwe, alleluja.  
   
@@ -9663,26 +5922,6 @@ Iżeś mię ujrzał, * Thomaszu, uwierzyłeś: błogosławieni, którzy nie widz
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Dz 5:7-11*  
-7 I stało się, jakoby we trzy godziny, żona téż jego, nie wiedząc, co się było stało, weszła.  
-8 I rzekł jéj Piotr: Powiedz mi, niewiasto! jeźliście za to przedali rolą? A ona rzekła: Iście, za to.  
-9 A Piotr do niéj; Cóż to żeście się zmówili, abyście kusili Ducha Pańskiego? Oto nogi tych, którzy pogrzebli męża twego, u drzwi, i wyniosą cię.  
-10 Natychmiast padła u nóg jego i skonała. A wszedłszy młodzieńcy, naleźli ją umarłą i wynieśli i pogrzebli podle męża jéj.  
-11 I padł wielki strach na wszystek kościół, i na wszystkie, którzy to słyszeli.  
-  
-
-
-### Lectio3  
-*Dz 5:12-16*  
-12 A przez ręce Apostolskie działo się wiele znaków i cudów między ludem. A byli wszyscy jednomyślnie w krużganku Salomonowym.  
-13 A z innych żaden nie śmiał się do nich przyłączyć; ale je lud ich wysławiał.  
-14 I więcéj przybywało mnóstwa wierzących w Panu, mężów i niewiast,  
-15 Tak iż na ulicę wynaszali niemocne i kładli je na łożach i łóżkach, aby, gdy Piotr chodził, przynajmniéj cień jego zaćmił którego z nich: a byli uzdrowieni od niemocy swoich.  
-16 Zbiegało się téż mnóstwo z blizkich miast do Jeruzalem, nosząc niemocne i nagabane od duchów nieczystych, którzy wszyscy byli uzdrowieni.  
-  
-
-
 ### Ant 2  
 Płonie serce moje, * żądam widzieć Pana mego: szukam, a nie znajduję, kędy go położono, alleluja, alleluja.  
   
@@ -9691,28 +5930,6 @@ Płonie serce moje, * żądam widzieć Pana mego: szukam, a nie znajduję, kędy
 ### Ant 3  
 Włożyłem palec mój * w miejsce gwoździ, rękę moją w bok jego, i rzekłem: Pan mój, i Bóg mój, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Dz 8:14-19*  
-14 A usłyszawszy Apostołowie, którzy byli w Jeruzalem, iż Samarya przyjęła słowo Boże, posłali do nich Piotra i Jana.  
-15 Którzy gdy przyszli, modlili  się za nimi, aby wzięli Ducha Świętego.  
-16 Albowiem jeszcze nie przyszedł był na żadnego z nich; ale tylko ochrzczeni byli w imię Pana Jezusowe.  
-17 Tedy na nie wkładali ręce, i brali Ducha Świętego.  
-18 A ujrzawszy Symon, że przez wkładanie rąk Apostolskich był dawan Duch Święty, ofiarował im pieniądze,  
-19 Mówiąc: Dajcie i mnie tę moc, aby na któregobychkolwiek ręce włożył, wziął Ducha Świętego.  
-  
-
-
-### Lectio3  
-*Dz 8:19-24*  
-19 A Piotr rzekł do niego:  
-20 Pieniądze twe niech z tobą będą na zginienie, żeś mniemał, iżby dar Boży miał być za pieniądze nabywany.  
-21 Nie masz cząstki ani działu w téj mowie; bowiem serce twe nie jest proste przed Bogiem.  
-22 Pokutujże tedy za tę złość twoję, a proś Boga, jeźlić snadź odpuszczona będzie ta myśl serca twego.  
-23 Albowiem cię widzę być w żółci gorzkości i związaniu nieprawości.  
-24 A odpowiedziawszy Symon, rzekł: Módlcie się wy za mną do Pana, aby na mię nic z tego nie przyszło, coście powiedzieli.  
-  
 
 
 ### Ant 2  
@@ -9728,43 +5945,6 @@ Gdy był wieczór * dnia onego, pierwszego sabbatu, a drzwi były zamknięte, gd
 ### Ant 3 (rubrica 1960)  
 Po ośmiu dniach, * drzwiami zamkniętemi, wszedł Pan i rzekł im: Pokój wam, alleluja, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Dz 10:9-17*  
-9 A nazajutrz, gdy oni byłi w drodze i przybliżali się do miasta, wszedł Piotr na górę, aby się modlił o godzinie szóstéj.  
-10 A gdy łaknął, chciał jeść. A gdy oni gotowali, przyszło nań zachwycenie,  
-11 I ujrzał niebo otworzone, a zstępujące naczynie jakieś, jakoby prześcieradło wielkie za cztery końce spuszczone z nieba ku ziemi,  
-12 W którem były wszystkie czworonogie i ziemiopłazy i ptastwa niebieskie.  
-13 I stał się głos do niego: Wstań Pietrze! zabijaj a jedz.  
-14 A Piotr rzekł: Nie daj tego, Panie! gdyżem nigdy nie jadł nic pospolitego i nieczystego.  
-15 A głos zasię powtóre do niego: Co Bóg oczyścił, ty nie zów pospolitem.  
-16 A to się po trzykroć stało; i wnet naczynie wzięte jest do nieba.  
-17 A gdy Piotr sam w sobie wątpił, coby za widzenie było, które widział: alić mężowie, którzy od Korneliusza byli posłani, pytający się o domu Symonowym, stanęli u drzwi.  
-  
-
-
-### Lectio3  
-*Dz 10:34-41*  
-34 A Piotr otworzywszy usta swe, rzekł: Prawdziwiem doznał, Bóg na osoby nie ogląda.   
-35 Ale w każdym narodzie, kto się go boi a czyni sprawiedliwość, jest jemu przyjemnym.   
-36 Słowo posłał Bóg synom Izraelskim, opowiadając pokój przez Jezusa Chrystusa, (ten jest Panem wszystkich).  
-37 Wy wiecie, które się stało słowo po wszystkiem Żydowstwie; bo począwszy od Galilei po chrzcie, który Jan opowiadał:   
-38 Jezusa z Nazareth, jako go pomazał Bóg Duchem Świętym i mocą, który przyszedł, czyniąc dobrze i uzdrawiając wszystkie opętane od djabła; albowiem z nim był Bóg.  
-39 A my jesteśmy świadkami wszystkiego, co czynił w krainie Żydowskiéj i w Jeruzalem, którego zabili, zawiesiwszy na drzewie.  
-40 Tego Bóg wzbudził dnia trzeciego i dał go, żeby był objawiony,  
-41 Nie wszystkiemu ludowi, ale świadkom przedtem zgotowanym od Boga, nam, którzyśmy z nim jedli i pili potem, gdy wstał od umarłych.  
-  
-
-
-### Responsory3  
-R. Oto zwyciężył lew z pokolenia Judowego, korzeń Dawidów, aby otworzył księgi i rozwiązał siedm ich pieczęci:  
-* Alleluja, alleluja, alleluja.  
-V. Godzien jest Baranek, który jest zabity, wziąć moc i bóstwo i mądrość i siłę i cześć i chwałę i błogosławieństwo.  
-R. Alleluja, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Alleluja, alleluja, alleluja.  
-  
 
 
 ### Ant 2  
@@ -9787,29 +5967,6 @@ Jam jest pasterz owiec: * jam jest droga i prawda i żywot: jam jest pasterz dob
 ### Kolekta  
 Boże, któryś przez uniżenie się Syna swego świat upadły podźwignął, napełnij wiernych Twoich nieustannem weselem, aby ci, których od wiecznej śmierci wyrwałeś, wiekuistego szczęścia dostąpili.  
 Przez tegoż Pana.  
-  
-
-
-### Lectio2  
-*Dz 13:21-25*  
-21 A od onego czasu prosili o króla. I dał im Saula, syna Cysa, męża z pokolenia Benjamin, lat czterdzieści.&nbsp  
-22 I odjąwszy go, wzbudził im Dawida króla, któremu świadectwo wydawając, powiedział: Nalazłem Dawida, syna Jesse, męża wedle serca mego, który czynić będzie wszystkie woli moje.   
-23 Z tegoż nasienia Bóg według obietnice wywiódł Izraelowi Zbawiciela Jezusa:   
-24 Gdy przed oblicznością przyjścia jego Jan opowiadał chrzest pokuty  wszystkiemu ludowi Izraelskiemu.   
-25 A gdy Jan wypełnił bieg swój, mówił: Kim mię być mniemacie? nie jestem ja, ale oto idzie za mną, którego obuwia nóg nie jestem godzien rozwiązać.   
-  
-
-
-### Lectio3  
-*Dz 13:26-33*  
-26 Mężowie bracia, synowie narodu Abrahamowego, i którzy między wami boją się Boga, wam jest posłane słowo zbawienia tego.  
-27 Albowiem którzy mieszkali w Jeruzalem, i książęta jego, nie znając tego i głosów prorockich, które przez każdy szabbat czytane bywają, osądziwszy, wypełnili.  
-28 A nie znalazłszy w nim przyczyny żadnéj śmierci, prosili Piłata, aby go zabili.   
-29 A gdy wykonali wszystko, co o nim napisano było, zjąwszy go z drzewa, włożyli go do grobu.  
-30 Lecz Bóg wzbudził go od umarłych dnia trzeciego.   
-31 Który widziany był przez wiele dni od tych, którzy z nim społu przyszli byli z Galilei do Jeruzalem, którzy aż dotąd są świadkami jego do ludu.   
-32 I my opowiadamy wam tę obietnicę, która się ojcom stała:  
-33 Że ją Bóg wypełnił dziatkom naszym, wzbudziwszy Jezusa. Jako téż jest napisano w Psalmie wtórym: Syn mój jesteś ty. Jam cię dziś porodził.   
   
 
 
@@ -9872,33 +6029,6 @@ Jam jest pastetrz dobry, * który strzegę owiec moich, i duszę mą kładę za 
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Dz 15:13-21*  
-13 A gdy umilknęli, odpowiedział Jakób, mówiąc: Mężowie bracia! słuchajcie mię.  
-14 Symon powiedział, jako pierwéj nawiedził Bóg, aby z poganów wziął lud imieniowi swemu.  
-15 A z tem się zgadzają słowa proroków, jako jest napisano:  
-16 Potem się wrócę i znowu zbuduję przybytek Dawidów, który upadł, a rozwaliny jego znowu pobuduję i naprawię je,   
-17 Aby drudzy ludzie szukali Pana i wszyscy narodowie, nad którymi wzywane jest imię moje, mówi Pan, czyniący to.  
-18 Znajoma jest od wieku Panu sprawa jego.  
-19 Przetóż mnie się zda, nie przykrzyć się tym, którzy się z poganów nawracają do Boga.  
-20 Ale pisać do nich, aby się wstrzymywali od splugawienia bałwanów i porubstwa i od rzeczy dławionych i od krwie.  
-21 Albowiem Mojżesz od dawnych czasów ma w każdem mieście te, którzy go opowiadają w bóżnicach, gdzie na każdy szabbat czytają.  
-  
-
-
-### Lectio3  
-*Dz 15:22-29*  
-22 Tedy się podobało Apostołom i starszym, ze wszystkim kościołem wybrać męże z siebie i posłać do Antyochii z Pawłem i Barnabaszem: Judę, którego zwano Barsabaszem, i Sylę, męże przedniejsze między bracią.  
-23 Napisawszy przez ręce ich: Apostołowie i starsi bracia tym, którzy są w Antyochii i w Syryi i w Cylicyi, braci, którzy są z poganów, zdrowia.  
-24 Gdyżeśmy słyszeli, iż niektórzy z nas wyszedłszy, zatrwożyli was słowy, przewracając dusze wasze, którymeśmy nie rozkazali:  
-25 Zdało się nam wespołek zebranym, wybrać męże i posłać do was z najmilejszymi naszymi, Barnabaszem i Pawłem,  
-26 Ludźmi, którzy wydali dusze swe dla imienia Pana naszego, Jezusa Chrystusa.  
-27 A przetóżeśmy posłali Judasa i Sylę, którzy téż sami ustnie tóż powiedzą.  
-28 Albowiem zdało się Duchowi Świętemu i nam, abyśmy więcej nie kładli na was ciężaru, oprócz tych potrzebnych,  
-29 Abyście się wstrzymywali od rzeczy bałwanom ofiarowanych i od krwie i od rzeczy dławionéj i od porubstwa, których rzeczy strzegąc się, dobrze uczynicie. Miejcie się dobrze.  
-  
-
-
 ### Ant 2  
 Idźcie w świat, * alleluja: nauczajcie wszystkie narody, alleluja.  
   
@@ -9909,27 +6039,6 @@ Dobry pasterz * duszę swą kładzie za owce swoje, alleluja.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Dz 17:28-33*  
-28 Albowiem w nim żywiemy, i ruszamy się i jesteśmy, jako i niektórzy z waszych Poetów powiedzieli: Jego bowiem i rodzajem jesteśmy.  
-29 Będąc tedy rodzajem Bożym, nie mamy rozumieć, aby złotu, albo srebru, albo kamieniowi, rycinie rzemiosła i wymysłu człowieczego bóstwo miało być podobne.   
-30 A czasyć téj niewiadomości przeglądając Bóg, teraz oznajmuje ludziom, aby wszyscy wszędy  pokutowali:  
-31 Dlatego, iż postanowił dzień, w który ma sądzić świat w sprawiedliwości przez męża, przez którego postanowił, wiarę podając wszystkim, wskrzesiwszy go od umarłych.  
-32 A usłyszawszy o zmartwychwstaniu, jedni się naśmiewali, a drudzy rzekli: Będziem cię drugi raz o tem słuchać.  
-33 Tak Paweł wyszedł z pośrodku ich.  
-  
-
-
-### Lectio3  
-*Dz 17:34; 18:1-4*  
-34 A mężowie niektórzy przystawszy do niego, uwierzyli: między którymi i Dyonizyusz Areopagita i niewiasta, imieniem Damarys, i drudzy z nimi.  
-1 Potem odszedłszy z Athen, przyszedł do Koryntu.  
-2 A nalazłszy niektórego Żyda, imieniem Akwilę, rodem z Pontu, który był nie dawno z Włoch przyszedł, i Pryscyllę, żonę jego, (dlatego iż był przykazał Klaudyusz, aby Żydowie wszyscy poszli precz z Rzymu) przyszedł do nich.  
-3 A iż był tegoż rzemiosła, mieszkał u nich i robił, (a byli namietniczego rzemiosła).  
-4 I rozmawiał w bóżnicy na każdy szabbat, przypominając imię Pana Jezusowe, i namawiał Żydy i Greki.  
-  
-
-
 ### Ant 2  
 Idźcie w świat, * nauczajcie wszystkie narody, chrzcząc je w imię Ojca i Syna i Ducha Świętego, alleluja.  
   
@@ -9938,30 +6047,6 @@ Idźcie w świat, * nauczajcie wszystkie narody, chrzcząc je w imię Ojca i Syn
 ### Ant 3  
 Lecz najemnik, * którego nie są owce własne, widzi wilka przychodzącego i opuszcza owce i ucieka; a wilk porywa i rozpłasza owce, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Dz 20:25-31*  
-25 A teraz oto ja wiem, że nie oglądacie więcéj oblicza mego wy wszyscy, przez którem przeszedł, przepowiadając królestwo Boże.  
-26 Przetóż oświadczam się wam dnia dzisiejszego, żem czysty jest ode krwie wszystkich.  
-27 Albowiemem się nie chronił, żebych wam nie miał oznajmiać wszelkiéj rady Bożéj.  
-28 Pilnujcie sami siebie i wszystkiéj trzody, nad którą was Duch Ś. postanowił biskupami, abyście rządzili kościół Boży, którego nabył krwią swoją.  
-29 Jać wiem, że po odejściu mojem wnidą między was wilcy drapieżni, nie folgując trzodzie.  
-30 I z was samych powstaną mężowie mówiący przewrotności, aby odwiedli ucznie za sobą.  
-31 Dlategóż czujcie, pomniąc, żem przez trzy lata w nocy i we dnie nie przestawał napominać z was każdego ze łzami.  
-  
-
-
-### Lectio3  
-*Dz 20:32-38*  
-32 A teraz poruczam was Bogu i słowu łaski jego, który mocen jest zbudować i dać dziedzictwo między wszystkimi poświęconymi.  
-33 Srebra i złota, albo szaty żadnegom nie pożądał.  
-34 Jako sami wiecie, iż moim potrzebom i tych, którzy są ze mną, służyły te ręce.   
-35 Wszystkom wam ukazał, iż tak pracując potrzeba podejmować słabe, a pamiętać na słowo Pana Jezusowe, że on mówił: Szczęśliwsza jest dawać, niżeli brać.  
-36 A gdy to rzekł, klęknąwszy na kolana swe, modlił się z nimi wszystkimi.  
-37 I stał się płacz wielki wszystkich, a upadając na szyi Pawłowéj, całowali go.  
-38 Będąc najbardziej żałośni z słowa, które powiedział, że więcéj nie mieli oglądać oblicza jego. I prowadzili go do okrętu.  
-  
 
 
 ### Ant 2  
@@ -10034,81 +6119,6 @@ Wstawszy, Józeph, wziął dziecię i matkę jego i przyszedł do ziemie Izraels
 ;;23  
 V. Wzywałem Pana, Ojca Pana mego., alleluja  
 R. Aby mię nie opuszczał w dzień utrapienia, alleluja.  
-  
-
-
-### Responsory1  
-R. Wołał lud do Pharaona, żywności prosząc:  
-* Który im odpowiedział: Idźcie do Józepha, alleluja.  
-V. Zdrowie nasze w ręce twojéj: niech tylko wejrzy na nas pan nasz, a z weselem będziemy służyć królowi.  
-R. Który im odpowiedział: Idźcie do Józepha, alleluja.  
-  
-
-
-### Lectio2  
-*Rdz 41:37-43*  
-37 Podobała się rada Pharaonowi, i wszystkim sługom jego.  
-38 I mówił do nich: Izali możemy naléść takowego męża, któryby ducha Bożego pełen był?  
-39 I rzekł do Józepha: Ponieważ ci Bóg ukazał to wszystko, coś mówił: izali mędrszego i podobnego tobie naleść będę mógł?  
-40 Ty będziesz nad domem moim, a na rozkazanie ust twoich wszystek lud posłuszen będzie: samą tylko stolicą królewską przodkować ci będę.  
-41 I rzekł jeszcze Pharaon do Józepha: Oto postawiłem cię nade wszystką ziemią Egipską.  
-42 I zdjął pierścień z ręki swéj, i dał go na rękę jego: i ubrał go w szatę bisiorową, i włożył łańcuch złoty na szyję jego.  
-43 I kazał mu wsięść na swój wtóry wóz, a woźny wołał, aby się wszyscy przed nim kłaniali, i wiedzieli, że był przełożonym nade wszystką ziemią Egipską.  
-  
-
-
-### Responsory2  
-R. Uczynił mnie Bóg, jako ojcem królów, i panem wszystkiego domu jego:  
-* Wywyższył mnie, a żeby wiele ludu zachował, alleluja.  
-V. Przyjedźcie do mnie: a ja wam dam wszystkie dobra Egipskie, abyście używali tłustości ziemie.  
-R. Wywyższył mnie, a żeby wiele ludu zachował, alleluja.  
-  
-
-
-### Lectio3  
-*Rdz 41:44-49*  
-44 I rzekł jeszcze król do Józepha: Jam jest Pharaon, bez twego rozkazania nie podniesie żaden ręki albo nogi we wszystkiéj ziemi Egipskiéj.  
-45 I odmienił imię jego, i nazwał go językiem Egipskim, Zbawicielem świata: i dał mu za żonę Aseneth, córkę Putyphara, kapłana Heliopolskiego. Wyjechał tedy Józeph na ziemię Egipską:  
-46 (A trzydzieści mu lat było, gdy stanął przed oblicznością króla Pharaona) i objechał wszystkie krainy Egipskie.  
-47 I przyszedł urodzaj siedmi lat: a zboże w snopy powiązane, zwieziono do gumien Egipskich.  
-48 Wszystka téż obfitość zbóż po wszystkich mieściech sypana była.  
-49 I był taki dostatek pszenice, że się piaskowi morskiemu równała, a obfitość miarę przesiągała.  
-  
-
-
-### Responsory4  
-R. Dałeś mi obronę zbawienia twego: a prawica twoja broniła mię:  
-* Zastępca mój, i róg zbawienia mego, * i obrońca mój, alleluja.  
-V. Jam jest obrońcą twoim, i zapłatą twą zbytnie wielką.  
-R. Zastępca mój, i róg zbawienia mego, * i obrońca mój, alleluja.  
-  
-
-
-### Responsory6  
-R. Choćby stanęły przeciwko mnie wojska, nie będzie się bało serce moje:  
-* Choćby powstała przeciwko mnie bitwa, * w tem ja nadzieję pokładać będę, alleluja.  
-V. Tobie śpiewanie moje zawżdy, boś ty pomocnik mocny.  
-R. Choćby powstała przeciwko mnie bitwa, * w tem ja nadzieję pokładać będę, alleluja.  
-Chwała Ojcu.  
-R. Choćby powstała przeciwko mnie bitwa, * w tem ja nadzieję pokładać będę, alleluja.  
-  
-
-
-### Responsory7  
-R. Józefie, Synu Dawidów, nie bój się przyjąć Marji małżonki twej: albowiem co się w niej narodziło jest z Ducha Świętego: a porodzi syna  
-* I nazwiesz imię Jego Jezus, alleluja.  
-V. Albowiem on zbawi lud swój od grzechów ich.  
-R. I nazwiesz imię Jego Jezus, alleluja.  
-  
-
-
-### Responsory8  
-R. Wstań, a weźmij dziecię i matkę jego, a uciecz do Egiptu:  
-* I bądź tam, aż ci powiem, alleluja.  
-V. Aby się spełniło, co powiedziano jest od Pana przez proroka mówiącego: Z Egiptu wezwałem Syna mojego.  
-R. I bądź tam, aż ci powiem, alleluja.  
-Chwała Ojcu.  
-R. I bądź tam, aż ci powiem, alleluja.  
   
 
 
@@ -10250,27 +6260,6 @@ Synu, * cóżeś to nam uczynił? Oto ojciec Twój i ja, bolejąc, szukaliśmy C
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Dz 24:17-21*  
-17 A po wielu lat przyszedłem, abym uczynił jałmużny narodowi mojemu i ofiary i śluby.  
-18 W czem naleźli mię oczyszczonego w kościele, nie z rzeszą, ani z rozruchem.  
-19 A niektórzy Żydowie z Azyi, którzy tu mieli stanąć przed tobą i skarżyć, jeźliby co mieli przeciwko mnie,  
-20 Albo ciż sami niechaj powiedzą, jeźliż we mnie znaleźli jaką nieprawość, gdyż stoję przed radą.  
-21 Oprócz tego jednego głosu, którymem zawołał, stojąc miedzy nimi: Iż o powstaniu umarłych wy mię dziś sądzicie.   
-  
-
-
-### Lectio3  
-*Dz 24:22-27*  
-22 A Felix odłożył je, gdyż pewnie wiedział o téj drodze, mówiąc: Kiedy Tysiącznik Lizyasz przyjedzie, wysłucham was.  
-23 I rozkazał rotmistrzowi strzedz go, a iżby miał wczas, i aby nie bronił żadnemu z przyjaciół jego służyć mu.  
-24 A po kilku dni przyjechawszy Felix z Drusyllą, żoną swą, która była Żydówka, wezwał Pawła i słuchał od niego wiary, która jest w Chrystusa Jezusa.  
-25 A gdy rzecz czynił o sprawiedliwości i czystości i o sądzie przyszłym, ulękłszy się Felix, odpowiedział: Co się tknie teraz, odejdź, a czas upatrzywszy, wzowę cię.  
-26 Spodziewając się zaraz, żeby mu Paweł miał dać pieniądze, dla czego i często go wzywając, rozmawiał z nim.  
-27 A gdy się spełniły dwie lecie, wziął Felix namiestnika Porcyusza Festa. A chcąc Felix łaskę pokazać Żydom, zostawił Pawła w więzieniu.  
-  
-
-
 ### Ant 2  
 Tyś sam gościem, * i nie słyszałeś o Jezusie, jak wydano go na skazanie śmierci? alleluja.  
   
@@ -10279,73 +6268,7 @@ Tyś sam gościem, * i nie słyszałeś o Jezusie, jak wydano go na skazanie śm
 ### Ant 3  
 I drugie owce mam, * które nie są z téj owczarniéj, i one potrzeba abych przywiódł: i słuchać będą głosu mego, i stanie się jedna owczarnia i jeden pasterz, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Apostołowie z wielką mocą,  
-* Świadczyli o zmartwychwstaniu Pana naszego Jezusa Chrystusa. Alleluja, alleluja, alleluja.  
-V. A napełnieni Duchem Świętym głosili słowo Boże z odwagą.  
-R. Świadczyli o zmartwychwstaniu Pana naszego Jezusa Chrystusa. Alleluja, alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-*Dz 24:17-21*  
-17 A po wielu lat przyszedłem, abym uczynił jałmużny narodowi mojemu i ofiary i śluby.  
-18 W czem naleźli mię oczyszczonego w kościele, nie z rzeszą, ani z rozruchem.  
-19 A niektórzy Żydowie z Azyi, którzy tu mieli stanąć przed tobą i skarżyć, jeźliby co mieli przeciwko mnie,  
-20 Albo ciż sami niechaj powiedzą, jeźliż we mnie znaleźli jaką nieprawość, gdyż stoję przed radą.  
-21 Oprócz tego jednego głosu, którymem zawołał, stojąc miedzy nimi: Iż o powstaniu umarłych wy mię dziś sądzicie.   
-  
-
-
-### Responsory2  
-R. Z ust roztropnego miód wypływa. Alleluja. Słodycz miodu pod jego językiem. Alleluja.  
-* Wargi jego jak plaster ociekający miodem. Alleluja, alleluja.  
-V. Mądrość spoczywa w jego sercu, a roztropność w mowie ust jego.  
-R. Wargi jego jak plaster ociekający miodem. Alleluja, alleluja.  
-Chwała Ojcu.  
-R. Wargi jego jak plaster ociekający miodem. Alleluja, alleluja.  
-  
-  
-
-
-### Lectio3  
-*Dz 24:22-27*  
-22 A Felix odłożył je, gdyż pewnie wiedział o téj drodze, mówiąc: Kiedy Tysiącznik Lizyasz przyjedzie, wysłucham was.  
-23 I rozkazał rotmistrzowi strzedz go, a iżby miał wczas, i aby nie bronił żadnemu z przyjaciół jego służyć mu.  
-24 A po kilku dni przyjechawszy Felix z Drusyllą, żoną swą, która była Żydówka, wezwał Pawła i słuchał od niego wiary, która jest w Chrystusa Jezusa.  
-25 A gdy rzecz czynił o sprawiedliwości i czystości i o sądzie przyszłym, ulękłszy się Felix, odpowiedział: Co się tknie teraz, odejdź, a czas upatrzywszy, wzowę cię.  
-26 Spodziewając się zaraz, żeby mu Paweł miał dać pieniądze, dla czego i często go wzywając, rozmawiał z nim.  
-27 A gdy się spełniły dwie lecie, wziął Felix namiestnika Porcyusza Festa. A chcąc Felix łaskę pokazać Żydom, zostawił Pawła w więzieniu.  
-  
-
-
-### Responsory3  
-R. Oto zwyciężył lew z pokolenia Judy, potomek Dawida, aby otworzyć księgę i rozerwać jej siedem pieczęci.  
-* Alleluja, alleluja, alleluja.  
-V. Godzien jest Baranek, który był zabity, otrzymać władzę i Bóstwo, mądrość i męstwo, cześć, chwałę i błogosławieństwo.  
-R. Alleluja, alleluja, alleluja.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Dz 25:6-8*  
-6 A zmieszkawszy u nich nie więcéj jedno ośm albo dziesięć dni, zjechał do Cezaryi i nazajutrz zasiadł na sądzie i kazał Pawła przywieść.  
-7 Który gdy był przywiedzion, obstąpili go Żydowie, którzy byli przyszli z Jeruzalem, wiele i ciężkich skarg zarzucając, których dowieść nie mogli.  
-8 Bo Paweł sprawę dawał: Żem ani przeciw zakonowi Żydowskiemu, ani przeciw kościołowi, ani przeciw Cesarzowi nic nie wystąpił.  
-  
-
-
-### Lectio3  
-*Dz 25:9-12*  
-9 Lecz Festus chcąc Żydom łaskę pokazać, odpowiedziawszy Pawłowi, rzekł: Chcesz jechać do Jeruzalem i tam o tych rzeczach sądzony być przedemną?  
-10 A Paweł rzekł: Przed stolicą Cesarską stoję, tam mam być sądzon. Żydomem nie zaszkodził, jako ty sam lepiej wiesz.  
-11 Bo jeźlim zaszkodził, albom co godnego śmierci uczynił, nie zbraniam się umrzeć: a jeźli niemasz nic z tego, o co ci na mię skarżą, żaden mię im darować nie może: apelluję do Cesarza.  
-12 Tedy Festus rozmówiwszy się z radą, odpowiedział: Apellowałeś do Cesarza; do Cesarza pójdziesz.  
-  
 
 
 ### Ant 2  
@@ -10361,126 +6284,8 @@ Jam jest pasterz owiec: * ja jestem drogą, prawdą i życiem: jam jest pasterz 
 ### Ant 3 (rubrica 1960)  
 Jam jest pasterz dobry, * który karmi owce swoję, za owce moje, duszę moję kładę, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Jam jest prawdziwym krzewem winnym, a wy latoroślami.  
-* Kto mieszka we Mnie, a Ja w nim, ten wiele owocu przynosi. Alleluja, alleluja.  
-V. Jako Mnie umiłował Ojciec i Ja was umiłowałem.  
-R. Kto mieszka we Mnie, a Ja w nim, ten wiele owocu przynosi. Alleluja, alleluja.  
-Chwała Ojcu.  
-R. Kto mieszka we Mnie, a Ja w nim, ten wiele owocu przynosi. Alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-*Dz 25:6-8*  
-6 A zmieszkawszy u nich nie więcéj jedno ośm albo dziesięć dni, zjechał do Cezaryi i nazajutrz zasiadł na sądzie i kazał Pawła przywieść.  
-7 Który gdy był przywiedzion, obstąpili go Żydowie, którzy byli przyszli z Jeruzalem, wiele i ciężkich skarg zarzucając, których dowieść nie mogli.  
-8 Bo Paweł sprawę dawał: Żem ani przeciw zakonowi Żydowskiemu, ani przeciw kościołowi, ani przeciw Cesarzowi nic nie wystąpił.  
-  
-
-
-### Responsory2  
-R. Po zmartwychwstaniu Pan nasz Jezus, stojąc w pośrodku uczniów swoich, powiedział:  
-* Pokój wam. Alleluja. Uradowali się uczniowie, ujrzawszy Pana. Alleluja.  
-V. Dnia pierwszego po szabacie, gdy drzwi były zamknięte tam, gdzie zgromadzili się uczniowie, przyszedł Jezus, stanął między nimi i rzekł im:  
-R. Pokój wam. Alleluja. Uradowali się uczniowie, ujrzawszy Pana. Alleluja.  
-  
-  
-
-
-### Lectio3  
-*Dz 25:9-12*  
-9 Lecz Festus chcąc Żydom łaskę pokazać, odpowiedziawszy Pawłowi, rzekł: Chcesz jechać do Jeruzalem i tam o tych rzeczach sądzony być przedemną?  
-10 A Paweł rzekł: Przed stolicą Cesarską stoję, tam mam być sądzon. Żydomem nie zaszkodził, jako ty sam lepiej wiesz.  
-11 Bo jeźlim zaszkodził, albom co godnego śmierci uczynił, nie zbraniam się umrzeć: a jeźli niemasz nic z tego, o co ci na mię skarżą, żaden mię im darować nie może: apelluję do Cesarza.  
-12 Tedy Festus rozmówiwszy się z radą, odpowiedział: Apellowałeś do Cesarza; do Cesarza pójdziesz.  
-  
-
-
-### Responsory3  
-R. Uprzątnijcie stary kwas, abyście się stali nowym zaczynem. Albowiem na Paschę naszą został ofiarowany Chrystus.  
-* Świętujmy tedy w Panu. Alleluja.  
-V. Umarł za grzechy nasze i zmartwychwstał dla usprawiedliwienia naszego.  
-R. Świętujmy tedy w Panu. Alleluja.  
-Chwała Ojcu.  
-R. Świętujmy tedy w Panu. Alleluja.  
-  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Dz 28:21-24*  
-21 A oni rzekli do niego: My  aniśmy wzięli listów o tobie z Żydowskiéj ziemi ani nam żaden z braciéj przyszedłszy, oznajmił, ani mówił o tobie co złego.  
-22 A żądamy od ciebie słyszeć, co rozumiesz; albowiem o téj sekcie jawno nam jest, iż się jéj wszędy sprzeciwiają.  
-23 A postanowiwszy mu dzień, przyszło ich bardzo wiele do niego do gospody, który świadectwo wydawając przepowiadał królestwo Boże, i namawiając ich o Jezusie z zakonu Mojżeszowego i z proroków od poranku aż do wieczora.  
-24 A jedni wierzyli temu, co powiadał, a drudzy nie wierzyli.  
-  
-
-
-### Lectio3  
-*Dz 28:25-31*  
-25 A będąc niezgodni między sobą, odchodzili, a Paweł mówił jedno słowo: Iż dobrze Duch Święty mówił przez Izajasza proroka do ojców naszych,  
-26 Mówiąc: Idź do ludu tego, a mów do nich: Uchem usłyszycie, a nie zrozumiecie, a widząc widzieć będziecie, a nie ujrzycie.  
-27 Albowiem zatyło serce ludu tego, a ciężko uszyma słuchali i zamrużali oczy swe, aby snadź oczyma nie widzieli, a uszyma nie słyszeli i sercem nie zrozumieli; i nawrócili się, a uzdrowiłbym je.  
-28 Niechże wam tedy jawno będzie, iż poganom posłane jest to zbawienie Boże, a oni słuchać będą.  
-29 A gdy to on mówił, odeszli Żydowie od niego, mając między sobą wielki spór.  
-30 I mieszkał Paweł przez całe dwie lecie w swym najętym domu, a przyjmował wszystkich, którzy wchodzili do niego,  
-31 Opowiadając królestwo Boże i ucząc, co jest o Panu Jezusie Chrystusie ze wszelkiem bezpieczeństwem bez zakazania.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Chrystus, powstawszy z martwych, więcej nie umiera i śmierć więcej już nad Nim nie zapanuje. Bo że umarł dla grzechu, raz umarł,  
-* A że żyje, żyje w Bogu. Alleluja, alleluja.  
-V. Raz umarł za grzechy nasze i zmartwychwstał dla usprawiedliwienia naszego.  
-R. A że żyje, żyje w Bogu. Alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-*Dz 28:21-24*  
-21 A oni rzekli do niego: My  aniśmy wzięli listów o tobie z Żydowskiéj ziemi ani nam żaden z braciéj przyszedłszy, oznajmił, ani mówił o tobie co złego.  
-22 A żądamy od ciebie słyszeć, co rozumiesz; albowiem o téj sekcie jawno nam jest, iż się jéj wszędy sprzeciwiają.  
-23 A postanowiwszy mu dzień, przyszło ich bardzo wiele do niego do gospody, który świadectwo wydawając przepowiadał królestwo Boże, i namawiając ich o Jezusie z zakonu Mojżeszowego i z proroków od poranku aż do wieczora.  
-24 A jedni wierzyli temu, co powiadał, a drudzy nie wierzyli.  
-  
-
-
-### Responsory2  
-R. Zmartwychwstał Dobry Pasterz, który swoje życie oddał za owce swoje i raczył śmierć ponieść za swoją owczarnię.  
-* Alleluja, alleluja, alleluja.  
-V. Albowiem na Paschę naszą został ofiarowany Chrystus.  
-R. Alleluja, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Alleluja, alleluja, alleluja.  
-  
-  
-
-
-### Lectio3  
-*Dz 28:25-31*  
-25 A będąc niezgodni między sobą, odchodzili, a Paweł mówił jedno słowo: Iż dobrze Duch Święty mówił przez Izajasza proroka do ojców naszych,  
-26 Mówiąc: Idź do ludu tego, a mów do nich: Uchem usłyszycie, a nie zrozumiecie, a widząc widzieć będziecie, a nie ujrzycie.  
-27 Albowiem zatyło serce ludu tego, a ciężko uszyma słuchali i zamrużali oczy swe, aby snadź oczyma nie widzieli, a uszyma nie słyszeli i sercem nie zrozumieli; i nawrócili się, a uzdrowiłbym je.  
-28 Niechże wam tedy jawno będzie, iż poganom posłane jest to zbawienie Boże, a oni słuchać będą.  
-29 A gdy to on mówił, odeszli Żydowie od niego, mając między sobą wielki spór.  
-30 I mieszkał Paweł przez całe dwie lecie w swym najętym domu, a przyjmował wszystkich, którzy wchodzili do niego,  
-31 Opowiadając królestwo Boże i ucząc, co jest o Panu Jezusie Chrystusie ze wszelkiem bezpieczeństwem bez zakazania.  
-  
-
-
-### Responsory3  
-R. Oto zwyciężył lew z pokolenia Judy, potomek Dawida, aby otworzyć księgę i rozerwać jej siedem pieczęci.  
-* Alleluja, alleluja, alleluja.  
-V. Godzien jest Baranek, który był zabity, otrzymać władzę i Bóstwo, mądrość i męstwo, cześć, chwałę i błogosławieństwo.  
-R. Alleluja, alleluja, alleluja.  
-  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
@@ -10509,63 +6314,6 @@ Przez Pana.
   
 
 
-### Responsory1  
-R. Godzieneś jest, Panie wziąć księgi i otworzyć pieczęci ich, alleluja, iżeś jest zabit, i odkupiłeś nas Bogu.  
-* Przez krew twoję, alleluja.  
-V I uczynił nas królestwem i kapłany Bogu naszemu.  
-R. Przez krew twoję, alleluja.  
-  
-
-
-### Lectio2  
-*Ap 1:7-11*  
-7 Oto idzie z obłokami, i ujrzy go wszelkie oko, i którzy go przebili: i bić się będą dla niego wszystkie pokolenia ziemie. Tak, Amen.   
-8 Jam jest Alpha i Omega, początek i koniec, mówi Pan Bóg, który jest, i który był, i który przyjdzie, Wszechmogący.   
-9 Ja, Jan, brat wasz i uczęstnik ucisku i w królestwie i w cierpliwości w Chrystusie Jezusie, byłem na wyspie, którą zowią Patmos, dla słowa Bożego i świadectwa Jezusa.  
-10 Byłem w duchu w dzień Pański i słyszałem głos za sobą wielki jako trąby,  
-11 Mówiący: Co widzisz, napisz w księgi i poślij siedmi kościołom, które są w Azyi: Ephezowi i Smyrnie i Pergamowi i Tyatyrze i Sardowi i Philadelphii i Laodycei.  
-  
-
-
-### Lectio3  
-*Ap 1:12-19*  
-12 I obróciłem się, abym obaczył głos, który mówił zemną. A obróciwszy się, ujrzałem siedm lichtarzów złotych:  
-13 A w pośrodku siedmi lichtarzów złotych podobnego Synowi człowieczemu, obleczonego w długą szatę i przepasanego u piersi pasem złotym.  
-14 A głowa jego i włosy były białe jako wełna biała i jako śnieg, a oczy jego jako płomień ognia.  
-15 A nogi jego podobne mosiądzowi, jakoby w piecu rozpalonemu, a głos jego jako głos wiela wód.  
-16 A miał w swéj prawéj ręce siedm gwiazd, a z ust jego miecz z obu stron ostry wychodził: a oblicze jego, jako słońce świeci w swéj mocy.  
-17 A gdym go ujrzał, upadłem do nóg jego jako martwy. I włożył prawą rękę swoję na mię, mówiąc: Nie bój się! Jam jest pierwszy i ostateczny,   
-18 I żywy, i byłem umarły, a oto jestem żywiący na wieki wieków i mam klucze śmierci i piekła.  
-19 Napisz tedy, coś widział, i co jest, i co się dziać ma napotem:  
-  
-
-
-### Responsory3  
-R. Słyszałem głos z nieba, jakby głos gromu wielkiego, alleluja: Bóg nasz króluje na wieki, alleluja.  
-* Ponieważ teraz stało zbawienie i moc i zwierzchność Chrystusa jego, alleluja, alleluja.  
-V. I wyszedł głos z stolice, mówiący: Dajcie chwałę Bogu naszemu, wszyscy słudzy jego, i którzy się go boicie, mali i wielcy.  
-R. Ponieważ teraz stało zbawienie i moc i zwierzchność Chrystusa jego, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Ponieważ teraz stało zbawienie i moc i zwierzchność Chrystusa jego, alleluja, alleluja.  
-  
-
-
-### Responsory4  
-R. Mówił do mnie jeden z siedmi Aniołów, rzekąc: Chodź, a okażęć oblubienicę, małżonkę Barankową.  
-* I widziałem Jeruzalem, zstępujące z nieba, ubraną klejnotami jej, alleluja, alleluja, alleluja.  
-V. I zaniósł mię w duchu na górę wielką i wysoką.  
-R. I widziałem Jeruzalem, zstępujące z nieba, ubraną klejnotami jej, alleluja, alleluja, alleluja.  
-  
-
-
-### Responsory5  
-R. Słyszałem głos z nieba, wielu Aniołów, mówiących:  
-* Bójcie się Pana i dajcie mu czystość jego, a kłaniajcie się temu, który uczynił niebo i ziemię i morze i źródła wód, alleluja, alleluja.  
-V. Widziałem Anioła Boga zastępów, lecącego przez pośrodek nieba, głosem wielkiem wołającego i mówiącego.  
-R. Bójcie się Pana i dajcie mu czystość jego, a kłaniajcie się temu, który uczynił niebo i ziemię i morze i źródła wód, alleluja, alleluja.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej wedługętego Jana  
 *J 16:16-22*  
@@ -10574,16 +6322,6 @@ Onego czasu: Rzekł Jezus uczniom swoim: „Już niedługo, a nie będziecie Mni
 Homilia świętego Augustyna, Biskupa  
 *Traktat 101. na Ewangelię wg św. Jana, pod koniec*  
 „Niedługo” to cały okres czasu, w którym obecny wiek przelatuje. To także mówi ten sam Ewangelista w swym liście: Nadeszła ostateczna godzina. Dlatego bowiem dodał: „bo idę do Ojca”, że odnosi się to do tego, co poprzednio powiedział: „Już niedługo, a nie będziecie Mnie oglądać”, a nie do następujących słów, w których oświadczył: „I znowu niedługo, a ujrzycie Mnie”. Udając się przecież do Ojca, miał sprawić, żeby Go nie widzieli uczniowie. I nie dlatego to było powiedziane, że miał ponieść śmierć i do swego zmartwychwstania ustąpić z ich oczu, lecz iż miał udać się do Ojca, co uczynił potem, gdy zmartwychwstał i po czterdziestodniowym przebywaniu z nimi wstąpił do nieba.  
-  
-
-
-### Responsory8  
-R. Smutek wasz, alleluja,  
-* W radość się obróci, alleluja, alleluja.  
-V. Świat się będzie weselił: a wy się smęcić będziecie, ale smutek wasz.  
-R. W radość się obróci, alleluja, alleluja.  
-Chwała Ojcu.  
-R. W radość się obróci, alleluja, alleluja.  
   
 
 
@@ -10710,81 +6448,6 @@ Wstawszy, Józeph, wziął dziecię i matkę jego i przyszedł do ziemie Izraels
 ;;23  
 V. Wzywałem Pana, Ojca Pana mego., alleluja  
 R. Aby mię nie opuszczał w dzień utrapienia, alleluja.  
-  
-
-
-### Responsory1  
-R. Wołał lud do Pharaona, żywności prosząc:  
-* Który im odpowiedział: Idźcie do Józepha, alleluja.  
-V. Zdrowie nasze w ręce twojéj: niech tylko wejrzy na nas pan nasz, a z weselem będziemy służyć królowi.  
-R. Który im odpowiedział: Idźcie do Józepha, alleluja.  
-  
-
-
-### Lectio2  
-*Rdz 41:37-43*  
-37 Podobała się rada Pharaonowi, i wszystkim sługom jego.  
-38 I mówił do nich: Izali możemy naléść takowego męża, któryby ducha Bożego pełen był?  
-39 I rzekł do Józepha: Ponieważ ci Bóg ukazał to wszystko, coś mówił: izali mędrszego i podobnego tobie naleść będę mógł?  
-40 Ty będziesz nad domem moim, a na rozkazanie ust twoich wszystek lud posłuszen będzie: samą tylko stolicą królewską przodkować ci będę.  
-41 I rzekł jeszcze Pharaon do Józepha: Oto postawiłem cię nade wszystką ziemią Egipską.  
-42 I zdjął pierścień z ręki swéj, i dał go na rękę jego: i ubrał go w szatę bisiorową, i włożył łańcuch złoty na szyję jego.  
-43 I kazał mu wsięść na swój wtóry wóz, a woźny wołał, aby się wszyscy przed nim kłaniali, i wiedzieli, że był przełożonym nade wszystką ziemią Egipską.  
-  
-
-
-### Responsory2  
-R. Uczynił mnie Bóg, jako ojcem królów, i panem wszystkiego domu jego:  
-* Wywyższył mnie, a żeby wiele ludu zachował, alleluja.  
-V. Przyjedźcie do mnie: a ja wam dam wszystkie dobra Egipskie, abyście używali tłustości ziemie.  
-R. Wywyższył mnie, a żeby wiele ludu zachował, alleluja.  
-  
-
-
-### Lectio3  
-*Rdz 41:44-49*  
-44 I rzekł jeszcze król do Józepha: Jam jest Pharaon, bez twego rozkazania nie podniesie żaden ręki albo nogi we wszystkiéj ziemi Egipskiéj.  
-45 I odmienił imię jego, i nazwał go językiem Egipskim, Zbawicielem świata: i dał mu za żonę Aseneth, córkę Putyphara, kapłana Heliopolskiego. Wyjechał tedy Józeph na ziemię Egipską:  
-46 (A trzydzieści mu lat było, gdy stanął przed oblicznością króla Pharaona) i objechał wszystkie krainy Egipskie.  
-47 I przyszedł urodzaj siedmi lat: a zboże w snopy powiązane, zwieziono do gumien Egipskich.  
-48 Wszystka téż obfitość zbóż po wszystkich mieściech sypana była.  
-49 I był taki dostatek pszenice, że się piaskowi morskiemu równała, a obfitość miarę przesiągała.  
-  
-
-
-### Responsory4  
-R. Dałeś mi obronę zbawienia twego: a prawica twoja broniła mię:  
-* Zastępca mój, i róg zbawienia mego, * i obrońca mój, alleluja.  
-V. Jam jest obrońcą twoim, i zapłatą twą zbytnie wielką.  
-R. Zastępca mój, i róg zbawienia mego, * i obrońca mój, alleluja.  
-  
-
-
-### Responsory6  
-R. Choćby stanęły przeciwko mnie wojska, nie będzie się bało serce moje:  
-* Choćby powstała przeciwko mnie bitwa, * w tem ja nadzieję pokładać będę, alleluja.  
-V. Tobie śpiewanie moje zawżdy, boś ty pomocnik mocny.  
-R. Choćby powstała przeciwko mnie bitwa, * w tem ja nadzieję pokładać będę, alleluja.  
-Chwała Ojcu.  
-R. Choćby powstała przeciwko mnie bitwa, * w tem ja nadzieję pokładać będę, alleluja.  
-  
-
-
-### Responsory7  
-R. Józefie, Synu Dawidów, nie bój się przyjąć Marji małżonki twej: albowiem co się w niej narodziło jest z Ducha Świętego: a porodzi syna  
-* I nazwiesz imię Jego Jezus, alleluja.  
-V. Albowiem on zbawi lud swój od grzechów ich.  
-R. I nazwiesz imię Jego Jezus, alleluja.  
-  
-
-
-### Responsory8  
-R. Wstań, a weźmij dziecię i matkę jego, a uciecz do Egiptu:  
-* I bądź tam, aż ci powiem, alleluja.  
-V. Aby się spełniło, co powiedziano jest od Pana przez proroka mówiącego: Z Egiptu wezwałem Syna mojego.  
-R. I bądź tam, aż ci powiem, alleluja.  
-Chwała Ojcu.  
-R. I bądź tam, aż ci powiem, alleluja.  
   
 
 
@@ -10964,63 +6627,6 @@ Przez Pana.
   
 
 
-### Responsory1  
-R. Godzieneś jest, Panie wziąć księgi i otworzyć pieczęci ich, alleluja, iżeś jest zabit, i odkupiłeś nas Bogu.  
-* Przez krew twoję, alleluja.  
-V I uczynił nas królestwem i kapłany Bogu naszemu.  
-R. Przez krew twoję, alleluja.  
-  
-
-
-### Lectio2  
-*Ap 1:7-11*  
-7 Oto idzie z obłokami, i ujrzy go wszelkie oko, i którzy go przebili: i bić się będą dla niego wszystkie pokolenia ziemie. Tak, Amen.   
-8 Jam jest Alpha i Omega, początek i koniec, mówi Pan Bóg, który jest, i który był, i który przyjdzie, Wszechmogący.   
-9 Ja, Jan, brat wasz i uczęstnik ucisku i w królestwie i w cierpliwości w Chrystusie Jezusie, byłem na wyspie, którą zowią Patmos, dla słowa Bożego i świadectwa Jezusa.  
-10 Byłem w duchu w dzień Pański i słyszałem głos za sobą wielki jako trąby,  
-11 Mówiący: Co widzisz, napisz w księgi i poślij siedmi kościołom, które są w Azyi: Ephezowi i Smyrnie i Pergamowi i Tyatyrze i Sardowi i Philadelphii i Laodycei.  
-  
-
-
-### Lectio3  
-*Ap 1:12-19*  
-12 I obróciłem się, abym obaczył głos, który mówił zemną. A obróciwszy się, ujrzałem siedm lichtarzów złotych:  
-13 A w pośrodku siedmi lichtarzów złotych podobnego Synowi człowieczemu, obleczonego w długą szatę i przepasanego u piersi pasem złotym.  
-14 A głowa jego i włosy były białe jako wełna biała i jako śnieg, a oczy jego jako płomień ognia.  
-15 A nogi jego podobne mosiądzowi, jakoby w piecu rozpalonemu, a głos jego jako głos wiela wód.  
-16 A miał w swéj prawéj ręce siedm gwiazd, a z ust jego miecz z obu stron ostry wychodził: a oblicze jego, jako słońce świeci w swéj mocy.  
-17 A gdym go ujrzał, upadłem do nóg jego jako martwy. I włożył prawą rękę swoję na mię, mówiąc: Nie bój się! Jam jest pierwszy i ostateczny,   
-18 I żywy, i byłem umarły, a oto jestem żywiący na wieki wieków i mam klucze śmierci i piekła.  
-19 Napisz tedy, coś widział, i co jest, i co się dziać ma napotem:  
-  
-
-
-### Responsory3  
-R. Słyszałem głos z nieba, jakby głos gromu wielkiego, alleluja: Bóg nasz króluje na wieki, alleluja.  
-* Ponieważ teraz stało zbawienie i moc i zwierzchność Chrystusa jego, alleluja, alleluja.  
-V. I wyszedł głos z stolice, mówiący: Dajcie chwałę Bogu naszemu, wszyscy słudzy jego, i którzy się go boicie, mali i wielcy.  
-R. Ponieważ teraz stało zbawienie i moc i zwierzchność Chrystusa jego, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Ponieważ teraz stało zbawienie i moc i zwierzchność Chrystusa jego, alleluja, alleluja.  
-  
-
-
-### Responsory4  
-R. Mówił do mnie jeden z siedmi Aniołów, rzekąc: Chodź, a okażęć oblubienicę, małżonkę Barankową.  
-* I widziałem Jeruzalem, zstępujące z nieba, ubraną klejnotami jej, alleluja, alleluja, alleluja.  
-V. I zaniósł mię w duchu na górę wielką i wysoką.  
-R. I widziałem Jeruzalem, zstępujące z nieba, ubraną klejnotami jej, alleluja, alleluja, alleluja.  
-  
-
-
-### Responsory5  
-R. Słyszałem głos z nieba, wielu Aniołów, mówiących:  
-* Bójcie się Pana i dajcie mu czystość jego, a kłaniajcie się temu, który uczynił niebo i ziemię i morze i źródła wód, alleluja, alleluja.  
-V. Widziałem Anioła Boga zastępów, lecącego przez pośrodek nieba, głosem wielkiem wołającego i mówiącego.  
-R. Bójcie się Pana i dajcie mu czystość jego, a kłaniajcie się temu, który uczynił niebo i ziemię i morze i źródła wód, alleluja, alleluja.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej wedługętego Jana  
 *J 16:16-22*  
@@ -11029,16 +6635,6 @@ Onego czasu: Rzekł Jezus uczniom swoim: „Już niedługo, a nie będziecie Mni
 Homilia świętego Augustyna, Biskupa  
 *Traktat 101. na Ewangelię wg św. Jana, pod koniec*  
 „Niedługo” to cały okres czasu, w którym obecny wiek przelatuje. To także mówi ten sam Ewangelista w swym liście: Nadeszła ostateczna godzina. Dlatego bowiem dodał: „bo idę do Ojca”, że odnosi się to do tego, co poprzednio powiedział: „Już niedługo, a nie będziecie Mnie oglądać”, a nie do następujących słów, w których oświadczył: „I znowu niedługo, a ujrzycie Mnie”. Udając się przecież do Ojca, miał sprawić, żeby Go nie widzieli uczniowie. I nie dlatego to było powiedziane, że miał ponieść śmierć i do swego zmartwychwstania ustąpić z ich oczu, lecz iż miał udać się do Ojca, co uczynił potem, gdy zmartwychwstał i po czterdziestodniowym przebywaniu z nimi wstąpił do nieba.  
-  
-
-
-### Responsory8  
-R. Smutek wasz, alleluja,  
-* W radość się obróci, alleluja, alleluja.  
-V. Świat się będzie weselił: a wy się smęcić będziecie, ale smutek wasz.  
-R. W radość się obróci, alleluja, alleluja.  
-Chwała Ojcu.  
-R. W radość się obróci, alleluja, alleluja.  
   
 
 
@@ -11106,34 +6702,6 @@ Który żyjesz.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Vidi portam civitatis ad Orientem positam, et Apostolorum nomina et Agni super eam scripta  
-* Et super muros ejus Angelorum custodiam, alleluja.  
-V. Vidi caelum novum, et terram novam, et civitatem novam descendentem de caelo.  
-R. Et super muros ejus Angelorum custodiam, alleluja.  
-  
-
-
-### Lectio2  
-*Ap 2:8-11*  
-8 A Aniołowi kościoła Smyrneńskiego napisz: Toć mówi pierwszy i ostatni, który był umarł i żywie:  
-9 Znam ucisk twój i ubóstwo twoje, aleś jest bogaty, i bluźnią cię ci, którzy się powiadają być Żydami, a nie są, ale są bóżnicą szatańską.  
-10 Nic się nie bój tego, co masz cierpieć. Oto ma wrzucić djabeł niektóre z was do ciemnice, abyście byli kuszeni; i będziecie mieć ucisk przez dziesięć dni. Bądź wierny aż do śmierci, a dam ci wieniec żywota.  
-11 Kto ma ucho, niech słucha, co Duch mówi kościołom: Kto zwycięży, nie będzie obrażon od wtóréj śmierci.  
-  
-
-
-### Lectio3  
-*Ap 2:12-17*  
-12 A Aniołowi kościoła Pergameńskiego napisz: To mówi ten, który ma miecz z obudwu stron ostry:  
-13 Wiem, gdzie mieszkasz, gdzie jest stolica szatańska, i trzymasz imię moje, i nie zaprzałeś się wiary mojéj i w one dni, kiedy Antypas, świadek mój wierny, zabit jest u was, gdzie szatan mieszka.  
-14 Ale mam przeciwko tobie trochę, iż tam masz trzymającye naukę Balaamowę, który uczył Balaka, aby wrzucał zgorszenie przed syny Izraelskie, żeby jedli i porubstwo płodzili.  
-15 Także masz i ty trzymające naukę Nikolaitów.  
-16 Tymże sposobem pokutę czyń; a jeźli nie, przyjdę tobie rychło i będę walczył z nimi mieczem ust moich.  
-17 Kto ma ucho, niech słucha, co Duch mówi kościołom: Zwyciężcy dam mannę skrytą i dam mu kamyk biały, a na kamyku imię nowe napisane, którego nikt nie zna, jedno który bierze.  
-  
-
-
 ### Ant 2  
 A począwszy * od Mojżesza i wszystkich proroków, wykładał im we wszystkich Piśmiech, co o nim było, alleluja.  
   
@@ -11154,43 +6722,7 @@ Smutek wasz * w radość się obróci, alleluja: a radości waszéj żaden od wa
 Przez Pana.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ap 2:8-11*  
-8 A Aniołowi kościoła Smyrneńskiego napisz: Toć mówi pierwszy i ostatni, który był umarł i żywie:  
-9 Znam ucisk twój i ubóstwo twoje, aleś jest bogaty, i bluźnią cię ci, którzy się powiadają być Żydami, a nie są, ale są bóżnicą szatańską.  
-10 Nic się nie bój tego, co masz cierpieć. Oto ma wrzucić djabeł niektóre z was do ciemnice, abyście byli kuszeni; i będziecie mieć ucisk przez dziesięć dni. Bądź wierny aż do śmierci, a dam ci wieniec żywota.  
-11 Kto ma ucho, niech słucha, co Duch mówi kościołom: Kto zwycięży, nie będzie obrażon od wtóréj śmierci.  
-  
-
-
-### Lectio3  
-*Ap 2:12-17*  
-12 A Aniołowi kościoła Pergameńskiego napisz: To mówi ten, który ma miecz z obudwu stron ostry:  
-13 Wiem, gdzie mieszkasz, gdzie jest stolica szatańska, i trzymasz imię moje, i nie zaprzałeś się wiary mojéj i w one dni, kiedy Antypas, świadek mój wierny, zabit jest u was, gdzie szatan mieszka.  
-14 Ale mam przeciwko tobie trochę, iż tam masz trzymającye naukę Balaamowę, który uczył Balaka, aby wrzucał zgorszenie przed syny Izraelskie, żeby jedli i porubstwo płodzili.  
-15 Także masz i ty trzymające naukę Nikolaitów.  
-16 Tymże sposobem pokutę czyń; a jeźli nie, przyjdę tobie rychło i będę walczył z nimi mieczem ust moich.  
-17 Kto ma ucho, niech słucha, co Duch mówi kościołom: Zwyciężcy dam mannę skrytą i dam mu kamyk biały, a na kamyku imię nowe napisane, którego nikt nie zna, jedno który bierze.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ap 4:6-8*  
-6 A przed stolicą jako morze szklane podobne kryształowi: a w pośrodku stolice i około stolice czworo zwierząt pełnych oczu z przodku i z tyłu.  
-7 A zwierzę pierwsze podobne lwowi, a wtóre zwierzę podobne cielcowi, a trzecie zwierzę, mające oblicze jako człowieka, a czwarte zwierzę podobne orłowi latającemu.  
-8 A czworo zwierząt, każde z nich, miało po sześć skrzydeł w koło, i wewnątrz pełne są oczu a odpoczynku nie miały we dnie i w nocy, mówiąc: Święty, Święty, Święty Pan Bóg Wszechmogący, który był, i który jest, i który ma przyjść.  
-  
-
-
-### Lectio3  
-*Ap 4:9-11*  
-9 A gdy one zwierzęta dawały chwałę i cześć i dziękczynienie siedzącemu na stolicy, żywiącemu na wieki wieków,  
-10 Upadali dwadzieścia i czteréj starszych przed siedzącym na stolicy i kłaniali się żywiącemu na wieki wieków i porzucali korony swe przed stolicą, mówiąc:  
-11 Godzieneś jest, Panie, Boże nasz! wziąć chwałę i cześć i moc; boś ty stworzył wszystkie rzeczy, i dla woli twojéj były i stworzone są.  
-  
 
 
 ### Ant 2  
@@ -11212,49 +6744,7 @@ Smutek napełnił * serce wasze: a radości waszéj żaden od was nie odejmie, a
 @Tempora/Pasc3-0r  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ap 4:6-8*  
-6 A przed stolicą jako morze szklane podobne kryształowi: a w pośrodku stolice i około stolice czworo zwierząt pełnych oczu z przodku i z tyłu.  
-7 A zwierzę pierwsze podobne lwowi, a wtóre zwierzę podobne cielcowi, a trzecie zwierzę, mające oblicze jako człowieka, a czwarte zwierzę podobne orłowi latającemu.  
-8 A czworo zwierząt, każde z nich, miało po sześć skrzydeł w koło, i wewnątrz pełne są oczu a odpoczynku nie miały we dnie i w nocy, mówiąc: Święty, Święty, Święty Pan Bóg Wszechmogący, który był, i który jest, i który ma przyjść.  
-  
-
-
-### Lectio3  
-*Ap 4:9-11*  
-9 A gdy one zwierzęta dawały chwałę i cześć i dziękczynienie siedzącemu na stolicy, żywiącemu na wieki wieków,  
-10 Upadali dwadzieścia i czteréj starszych przed siedzącym na stolicy i kłaniali się żywiącemu na wieki wieków i porzucali korony swe przed stolicą, mówiąc:  
-11 Godzieneś jest, Panie, Boże nasz! wziąć chwałę i cześć i moc; boś ty stworzył wszystkie rzeczy, i dla woli twojéj były i stworzone są.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ap 5:8-10*  
-8 A gdy otworzył księgi, czworo zwierząt i czteréj a dwadzieścia starsi upadli przed Barankiem, mający każdy cytry i czasze złote pełne wonności, które są modlitwy świętych.  
-9 I śpiewali nową pieśń, mówiąc: Godzieneś jest, Panie! wziąć księgi i otworzyć pieczęci ich, iżeś jest zabit, i odkupiłeś nas Bogu przez krew twoję ze wszelakiego pokolenia i języka i ludu i narodu:  
-10 I uczyniłeś nas Bogu naszemu królestwem i kapłanami, i będziemy królować na ziemi.  
-  
-
-
-### Lectio3  
-*Ap 5:11-14*  
-11 I widziałem i słyszałem głos wielu Aniołów około stolice i zwierząt i starszych, a była liczba ich tysiące tysiąców,  
-12 Mówiących głosem wielkim: Godzien jest Baranek, który jest zabity, wziąć moc i bóstwo i mądrość i siłę i cześć i chwałę i błogosławieństwo.  
-13 A wszelkie stworzenie, które jest na niebie i na ziemi i pod ziemią, i co w morzu jest, i co w nich wszystkie słyszałem mówiące: Siedzącemu na stolicy i Barankowi błogosławieństwo i cześć i chwała i moc na wieki wieków.  
-14 A czworo zwierząt mówiło: Amen. A dwadzieścia i czteréj starsi upadli na oblicze swoje i kłaniali się żywiącemu na wieki wieków.  
-  
-
-
-### Responsory3  
-R. Vidi portam civitatis ad Orientem positam, et Apostolorum nomina et Agni super eam scripta  
-* Et super muros ejus Angelorum custodiam, alleluja.  
-V. Vidi caelum novum, et terram novam, et civitatem novam descendentem de caelo.  
-R. Et super muros ejus Angelorum custodiam, alleluja.  
-  
-  
 
 
 ### Ant 2  
@@ -11276,44 +6766,7 @@ Smutek wasz, * alleluja, w radość się obróci, alleluja.
 @Tempora/Pasc3-0r  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ap 5:8-10*  
-8 A gdy otworzył księgi, czworo zwierząt i czteréj a dwadzieścia starsi upadli przed Barankiem, mający każdy cytry i czasze złote pełne wonności, które są modlitwy świętych.  
-9 I śpiewali nową pieśń, mówiąc: Godzieneś jest, Panie! wziąć księgi i otworzyć pieczęci ich, iżeś jest zabit, i odkupiłeś nas Bogu przez krew twoję ze wszelakiego pokolenia i języka i ludu i narodu:  
-10 I uczyniłeś nas Bogu naszemu królestwem i kapłanami, i będziemy królować na ziemi.  
-  
-
-
-### Lectio3  
-*Ap 5:11-14*  
-11 I widziałem i słyszałem głos wielu Aniołów około stolice i zwierząt i starszych, a była liczba ich tysiące tysiąców,  
-12 Mówiących głosem wielkim: Godzien jest Baranek, który jest zabity, wziąć moc i bóstwo i mądrość i siłę i cześć i chwałę i błogosławieństwo.  
-13 A wszelkie stworzenie, które jest na niebie i na ziemi i pod ziemią, i co w morzu jest, i co w nich wszystkie słyszałem mówiące: Siedzącemu na stolicy i Barankowi błogosławieństwo i cześć i chwała i moc na wieki wieków.  
-14 A czworo zwierząt mówiło: Amen. A dwadzieścia i czteréj starsi upadli na oblicze swoje i kłaniali się żywiącemu na wieki wieków.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ap 15:5-8*  
-5 A potemem widział, a oto otworzon jest kościół przybytku świadectwa w niebie.  
-6 I wyszło siedm Aniołów, mających siedm plag, z kościoła, obleczonych płótnem czystem i świetnem, i przepasanych około piersi złotemi pasy.  
-7 A jedno ze czworga zwierząt dało siedmiu Aniołom siedm czasz złotych, pełnych gniewu Boga żywiącego na wieki wieków.  
-8 I napełnił się kościół dymu od majestatu Bożego i od mocy jego, a nie mógł nikt wniść do kościoła, aż się skończyły siedm plag siedmi Aniołów.  
-  
-
-
-### Lectio3  
-*Ap 16:1-6*  
-1 I słyszałem głos wielki z kościoła, mówiący siedmi Aniołom: Idźcie, a wylejcie siedm czasz gniewu Bożego na ziemię.  
-2 I wyszedł pierwszy i wylał czaszę swą na ziemię: i stała się sroga i zła rana w ludziach, którzy mieli cechę bestyi, i w tych, którzy się kłaniali obrazowi jéj.  
-3 I wylał wtóry Aniół czaszę swą na morze, i stała się krew jakoby umarłego: a każda dusza żywa zdechła w morzu.  
-4 I wylał trzeci Aniół czaszę swą na rzeki i źródła wód: i stała się krew.  
-5 I słyszałem Anioła wód mówiącego: Sprawiedliwyś jest, Panie! któryś jest, i któryś był, Święty, któryś to osądził.  
-6 Iż krew świętych i proroków wylali, i dałeś im krew pić; bo godni są.  
-  
 
 
 ### Ant 2  
@@ -11337,27 +6790,6 @@ Zaprawdę, zaprawdę wam, * lecz zasię oglądam was, a będzie się radowało s
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Ap 19:6-10*  
-6 I słyszałem jako głos rzeszy wielkiéj i głos wiela wód i jako głos wielkich gromów, mówiących: Allelu-Ja! iż królował Pan, Bóg nasz wszechmogący.  
-7 Weselmy się i radujmy się i dajmy mu chwałę; iż przyszło wesele Barankowe, a małżonka jego zgotowała się.  
-8 I dano jéj, aby się oblekła w bisiór świetny i czysty; albowiem bisiór są usprawiedliwienia świętych.  
-9 I rzekł mi: Napisz: Błogosławieni, którzy na wieczerzą wesela Barankowego wezwani są. I rzekł mi: Te słowa Boże są prawdziwe.   
-10 I upadłem do nóg jego, abym się mu kłaniał. I rzekł mi: Patrz, żebyś nie czynił; spółsługa twój jestem i braci twojéj, mających świadectwo Jezusowe. Bogu się kłaniaj; albowiem świadectwo Jezusowe jest duch proroctwa.   
-  
-
-
-### Lectio3  
-*Ap 19:11-16*  
-11 I widziałem niebo otworzone, a oto koń biały: a który siedział na nim, zwano go Wiernym i Prawdziwym, a sądzi z sprawiedliwością i walczy.  
-12 A oczy jego jako płomień ogniowy, a na głowie jego wiele koron, mając imię napisane, którego nikt nie wie, jedno sam.  
-13 A obeczony był w szatę krwią pokropioną, a zowią imię jego Słowo Boże.   
-14 I wojska, które są na niebie, jechały za nim na koniach białych, obleczone w bisiór biały i czysty.  
-15 A z ust jego wychodzi miecz z obu stron ostry, aby nim bił narody. A on je rządzić będzie laską żelazną: on téż depce prasę wina zapalczywości gniewu Boga wszechmogącego.   
-16 A ma na szacie i na biedrze swojéj napisano: Król nad królmi i Pan nad pany.  
-  
-
-
 ### Ant 2  
 Poznali * Pana Jezusa, alleluja, w łamaniu chleba, alleluja.  
   
@@ -11379,30 +6811,6 @@ Maluczko, * a już mię nie ujrzycie, mówi Pan, i zasię maluczko, a ujrzycie m
 @Tempora/Pasc3-0  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*Ap 22:8-12*  
-8 A ja Jan, którym słyszał i widział to. A gdym słyszał i widział, upadłem, abym się pokłonił przed nogami Anioła, który mi to pokazował,  
-9 I rzekł mi: Patrz, żebyś nie czynił; bom jest spółsługa twój, i braci twéj proroków i tych, co chowają słowa proroctwa ksiąg tych. Bogu się kłaniaj.  
-10 I rzekł mi: Nie pieczętuj słów proroctwa ksiąg tych; albowiem czas blizko jest.  
-11 Kto szkodzi, niech jeszcze szkodzi, a kto jest w plugastwie, niech jeszcze plugawieje, a kto sprawiedliwy jest, niech jeszcze będzie usprawiedliwion, a święty niech jeszcze będzie poświęcon.  
-12 Oto przychodzę rychło, a zapłata moja zemną jest, abym oddał każdemu według uczynków jego.  
-  
-
-
-### Lectio3  
-*Ap 22:13-21*  
-13 Jam jest Alpha i Omega, pierwszy i ostatni, początek i koniec.  
-14 Błogosławieni, którzy omywają szaty swoje we krwi Barankowéj, aby władza ich była nad drzewem żywota, a żeby weszli przez bramy do miasta.  
-15 Na dworze psi i czarownicy i niewstydliwi i mężobójcy i bałwochwalcy i każdy, który miłuje i który czyni kłamstwo.  
-16 Ja, Jezus, posłałem Anioła mego, aby to wam świadczył w kościelech. Jam jest korzeń i naród Dawidów, gwiazda jasna i zaranna.  
-17 A Duch i oblubienica mówią: Przyjdź! A kto słyszy, niech mówi: Przyjdź! A kto pragnie, niech przyjdzie. A kto chce, niech bierze wodę żywota darmo.  
-18 Albowiem oświadczam się każdemu słuchającemu słów proroctwa ksiąg tych: Jeźliby kto przyłożył do tego, przyłoży Bóg nań plagi opisane w tych księgach.  
-19 A jeźliby kto ujął z słów ksiąg proroctwa tego, odejmie Bóg część jego z ksiąg żywota i z miasta świętego i z tych rzeczy, które są napisane w tych księgach.  
-20 Mówi, który świadectwo daje o tem: Zaiste przyjdę rychło. Amen. Przyjdź, Panie Jezu!  
-21 Łaska Pana naszego Jezusa Chrystusa z wami wszystkimi. Amen.  
-  
 
 
 ### Oratio 2  
@@ -11429,79 +6837,6 @@ Przez Pana.
   
 
 
-### Responsory1  
-R. Jeźli cię zapomnę, alleluja, niech zapomniona będzie prawica moja:  
-* Niechaj przyschnie język mój do podniebienia mego, jeźlibym na cię nie pomniał, alleluja, alleluja.  
-V. Nad rzekami Babilońskiéj ziemie, tameśmy siedzieli i płakali: gdyśmy wspominali na Syon.  
-R. Niechaj przyschnie język mój do podniebienia mego, jeźlibym na cię nie pomniał, alleluja, alleluja.  
-  
-
-
-### Lectio2  
-*Jk 1:6-11*  
-6 Bo kto wątpi, podobny jest wału morskiemu, którego wiatr wzrusza i tam i sam nosi.   
-7 Przetóż niech on człowiek nie mniema, aby co miał wziąć od Pana.  
-8 Mąż umysłu dwoistego niestateczny jest we wszech drogach swoich.  
-9 A niech się brat podły chlubi w podwyższeniu swojem,  
-10 A bogaty w podłości swojéj; boć przeminie jako kwiat trawy.   
-11 Albowiem weszło słońce z upaleniem i ususzyło trawę, i kwiat jéj opadł, i zginęła śliczność oblicza jego, tak i bogaty w drogach swoich uwiędnie.  
-  
-
-
-### Responsory2  
-R. Ujrzały cię wody, Boże, ujrzały cię wody, i ulękły się:  
-* Wielkość szumu wód: obłoki głos wypuściły, alleluja, alleluja, alleluja.  
-V. Oświeciły błyskawice twoje okrąg ziemie: ujrzała i zadrżała ziemia.  
-R. Wielkość szumu wód: obłoki głos wypuściły, alleluja, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-*Jk 1:12-16*  
-12 Błogosławiony mąż, który zdzierża pokusę; bo gdy będzie doświadczony, weźmie koronę żywota, którą obiecał Bóg tym, którzy go miłują.   
-13 Żaden, gdy bywa kuszon, niech nie mówi, że od Boga bywa kuszon; albowiem Bóg nie jest kusiciel złych, a sam nikogo nie kusi.  
-14 Lecz każdy bywa kuszony, od własnéj pożądliwości pociągniony i przynęcony.  
-15 Zatem pożądliwość gdy pocznie, rodzi grzech: a grzech, gdy wykonany będzie, rodzi śmierć.  
-16 Nie mylcie się tedy, bracia moi najmilsi!  
-  
-
-
-### Responsory3  
-R. Będę opowiadał imię twe braciéj mojéj, alleluja:  
-* W pośród kościoła będę cię chwalił, alleluja.  
-V. Będęć wyznawał między ludem, Panie, a będę tobie grał między narody.  
-R. W pośród kościoła będę cię chwalił, alleluja.  
-Chwała Ojcu.  
-R. W pośród kościoła będę cię chwalił, alleluja.  
-  
-
-
-### Responsory4  
-R. W kościele błogosławcie Bogu, alleluja,  
-* Panu, z źródeł Izraelskich, alleluja, alleluja.  
-V. Psalm śpiewajcie imieniowi jego, dajcie cześć chwale jego.  
-R. Panu, z źródeł Izraelskich, alleluja, alleluja.  
-  
-
-
-### Responsory5  
-R. Ze wszystkiego serca mego, alleluja, szukałem ciebie, alleluja:  
-* Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-V. Błogosławionyś jest, Panie: naucz mię sprawiedliwości twoich.  
-R. Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-  
-
-
-### Responsory6  
-R. Śpiewajcie nam pieśń, alleluja:  
-* Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-V. Pytali nas tam, którzy nas w niewolą zagnali, o słowach pieśni.  
-R. Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-Chwała Ojcu.  
-R. Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Jana  
 *J 16:5-14*  
@@ -11510,24 +6845,6 @@ Onego czasu: Rzekł Jezus uczniom swoim: „Teraz idę do Tego, który Mnie pos�
 Homilia świętego Augustyna, Biskupa  
 *Traktat 94. na Ewangelię wg św. Jana, na początku*  
 Skoro tylko Pan Jezus przepowiedział swym uczniom prześladowania, jakie wycierpią po Jego odejściu, rzekł: Nie mówiłem wam tego od początku, bo wśród was przebywałem. A teraz idę do Tego, który Mię posłał. Pierwej należy zobaczyć, czy przed swą męką nie przepowiedział im tego, co ich czeka w przyszłości. Pozostali trzej Ewangeliści wykazują dostatecznie, że im to przepowiedział, zanim na wieczerzę przybyli. Po jej ukończeniu według Jana powiedział, co następuje: Nie mówiłem wam tego od początku, bo wśród was przebywałem.  
-  
-
-
-### Responsory7  
-R. Boże, pieśń nową zaśpiewam tobie, alleluja:  
-* Na arfie o dziesiąci stronach grać tobie będę, alleluja, alleluja.  
-V. Bóg mój jesteś ty, i wyznawać ci będę: Bóg mój jesteś ty, i wywyższać cię będę.  
-R. Na arfie o dziesiąci stronach grać tobie będę, alleluja, alleluja.  
-  
-
-
-### Responsory8  
-R. Dobrze jest wyznawać Panu, alleluja:  
-* I śpiewać, alleluja.  
-V. Na instrumencie o dziesiąci stronach, na arfie, z śpiewaniem, na cytrze.  
-R. I śpiewać, alleluja.  
-Chwała Ojcu.  
-R. I śpiewać, alleluja.  
   
 
 
@@ -11572,46 +6889,6 @@ Idę do Tego, * który mię posłał, ale iżem to wam powiedział, smutek nape�
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Niech teraz powiedzą, którzy są odkupieni, alleluja.  
-* Od Pana, alleluja, alleluja.  
-V. Które wykupił z ręki nieprzyjacielskiéj: i z krajów zgromadził je.  
-R. Od Pana, alleluja, alleluja.  
-  
-
-
-### Lectio2  
-*Jk 1:21-24*  
-21 Przeto odrzuciwszy wszelakie plugastwo i obfitość złości, przyjmijcie w cichości słowo wszczepione, które może zbawić dusze wasze.  
-22 A bądźcie czynicielmi słowa, a nie słuchaczmi tylko, oszukiwającymi samych siebie.   
-23 Bo jeźli kto jest słuchaczem słowa, a nie czynicielem, ten podobny będzie mężowi przypatrującemu się obliczu narodzenia swego we zwierciedle;  
-24 Bo się obejrzał i odszedł i wnet zapomniał, jakowy był.  
-  
-
-
-### Responsory2  
-R. Śpiewajcie Panu, alleluja:  
-* Psalm śpiewajcie jemu, alleluja.  
-V. Przynoście Panu chwałę i część, przynoście Panu chwałę imieniowi jego.  
-R. Psalm śpiewajcie jemu, alleluja.  
-Chwała Ojcu.  
-R. Psalm śpiewajcie jemu, alleluja.  
-  
-
-
-### Lectio3  
-*Jk 1:25-27*  
-25 Lecz ktoby pilniéj wejrzał w zakon doskonałéj wolności i wytrwał w nim, nie stawszy się słuchaczem zapamiętliwym, ale czynicielem uczynku, ten błogosławiony będzie w sprawie swojéj.  
-26 A jeźli kto mniema, że jest nabożnym, powściągając języka swego, ale zawodząc serce swe, tego nabożeństwo próżne jest.  
-27 Nabożeństwo czyste i niepokalane u Boga i Ojca to jest: Nawiedzać sieroty i wdowy w ucisku ich, a siebie zachować niezmazanym od tego świata.  
-  
-
-
-### Responsory3  
-@Tempora/Pasc4-0  
-  
-
-
 ### Ant 2  
 Izali serce nasze * nie pałało w nas, przez Jezusa, gdy mówił w drodze? alleluja.  
   
@@ -11621,56 +6898,6 @@ Izali serce nasze * nie pałało w nas, przez Jezusa, gdy mówił w drodze? alle
 Ja prawdę wam * powiadam: pożyteczno wam, abych Ja odszedł; bo jeźli nie odejdę, Pocieszyciel nie przyjdzie do was, alleluja.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. W kościele błogosławcie Bogu, alleluja,  
-* Panu, z źródeł Izraelskich, alleluja, alleluja.  
-V. Psalm śpiewajcie imieniowi jego, dajcie cześć chwale jego.  
-R. Panu, z źródeł Izraelskich, alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-*Jk 2:5-9*  
-5 Słuchajciez, bracia moi najmilsi! Azaż Bóg nie obrał ubogich na tym świecie bogatymi w wierze, i dziedzicmi królestwa, które Bóg obiecał tym, którzy go miłują?  
-6 A wyście nie uczcili ubogiego. Aza bogacze przez moc was nie uciskają, i ci was do sądów nie pociągają?  
-7 Aza oni nie bluźnią dobrego imienia, które wzywane jest nad wami?  
-8 Jednak jeźli zakon królewski pełnicie według Pisma: Będziesz miłował bliźniego twego jako samego siebie, dobrze czynicie,  
-9 Lecz jeźli osobami brakujecie, grzech czynicie, przekonani od zakonu jako przestępcy.  
-  
-
-
-### Responsory2  
-R. Ze wszystkiego serca mego, alleluja, szukałem ciebie, alleluja:  
-* Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-V. Błogosławionyś jest, Panie: naucz mię sprawiedliwości twoich.  
-R. Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-  
-Chwała Ojcu.  
-R. Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-*Jk 2:10-13*  
-10 A ktobykolwiek zachował, wszystek zakon, a w jednymby upadł, stał się winien wszystkiego.   
-11 Bo który rzekł: Nie cudzołóż, rzekłci téż: Nie zabijaj. A jeźlibyś nie cudzołożył, alebyś zabijał, stałeś się przestępcą zakonu.  
-12 Tak mówcie i tak czyńcie jako ci, którzy mają być sądzeni przez zakon wolności.  
-13 Albowiem sąd bez miłosierdzia temu, który miłosierdzia nie czynił. A miłosierdzie przewyższa sąd.  
-  
-
-
-### Responsory3  
-R. Śpiewajcie nam pieśń, alleluja:  
-* Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-V. Pytali nas tam, którzy nas w niewolą zagnali, o słowach pieśni.  
-R. Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-Chwała Ojcu.  
-R. Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-  
-  
 
 
 ### Ant 2  
@@ -11683,55 +6910,6 @@ Gdy przyjdzie * pocieszyciel Duch prawdy, będzie karał świat z grzechu i z sp
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Boże, pieśń nową zaśpiewam tobie, alleluja:  
-* Na arfie o dziesiąci stronach grać tobie będę, alleluja, alleluja.  
-V. Bóg mój jesteś ty, i wyznawać ci będę: Bóg mój jesteś ty, i wywyższać cię będę.  
-R. Na arfie o dziesiąci stronach grać tobie będę, alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-*Jk 2:18-22*  
-18 Ale rzecze kto: Ty wiarę masz, a ja mam uczynki; okaż mi wiarę twą bez uczynków, a ja tobie okażę wiarę moję z uczynków.  
-19 Ty wierzysz, iż jest jeden Bóg. Dobrze czynisz; i czarcić wierzą i drżą.  
-20 A chcesz wiedzieć, o człowiecze próżny, iż wiara bez uczynków martwa jest?  
-21 Abraham, ojciec nasz, izali nie z uczynków usprawiedliwiony jest, ofiarowawszy Izaaka, syna swego, na ołtarzu?   
-22 Widzisz, iż wiara spólnie robiła z uczynkami jego, a z uczynków wiara się wykonała.  
-  
-
-
-### Responsory2  
-R. Dobrze jest wyznawać Panu, alleluja:  
-* I śpiewać, alleluja.  
-V. Na instrumencie o dziesiąci stronach, na arfie, z śpiewaniem, na cytrze.  
-R. I śpiewać, alleluja.  
-Chwała Ojcu.  
-R. I śpiewać, alleluja.  
-  
-  
-
-
-### Lectio3  
-*Jk 2:23-26*  
-23 I wypełniło się Pismo, które mówi: Uwierzył Abraham Bogu, i poczytano mu jest ku sprawiedliwości, i nazwan jest przyjacielem Bożym.   
-24 Widzicie, iż z uczynków bywa usprawiedliwiony człowiek, a nie z wiary tylko?  
-25 Tak i Rahab nierządnica, izali nie z uczynków jest usprawiedliwiona, przyjąwszy posły i inszą drogą wypuściwszy?   
-26 Albowiem jako ciało bez ducha jest martwe, tak i wiara bez uczynków martwa jest.  
-  
-
-
-### Responsory3  
-R. Niech teraz powiedzą, którzy są odkupieni, alleluja.  
-* Od Pana, alleluja, alleluja.  
-V. Które wykupił z ręki nieprzyjacielskiéj: i z krajów zgromadził je.  
-R. Od Pana, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Od Pana, alleluja, alleluja.  
-  
-
-
 ### Ant 2  
 Duch * nie ma ciała ani kości, jako widzicie, że Ja mam: teraz uwierzcie, alleluja.  
   
@@ -11742,39 +6920,6 @@ Jeszcze wam wiele mam * mówić, ale teraz znieść nie możecie: lecz gdy przyj
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-@Tempora/Pasc4-0  
-  
-
-
-### Lectio2  
-*Jk 3:4-6*  
-4 Oto i okręty wielkie będąc, i gdy je srogie wiatry pędzą, obracane bywają od malutkiego steru, gdzie wola sterującego zechce:  
-5 Tak i język, małyć wprawdzie członek jest, ale wielkie rzeczy podnosi. Oto jako mały ogień, jako wielki las spala!  
-6 I język jest ogień, powszechność nieprawości.  
-  
-
-
-### Responsory2  
-@Tempora/Pasc4-0  
-  
-
-
-### Lectio3  
-*Jk 3:6-10*  
-6 Język postanowiony jest między członkami naszemi, który plugawi wszystko ciało i zapala koło narodzenia naszego, zapalony od piekła.  
-7 Albowiem wszelkie przyrodzenie zwierząt i ptaków i płazów i innych uskromione bywa i okrócone jest od przyrodzenia ludzkiego.  
-8 Lecz języka żaden z ludzi nie może okrócić, złe niespokojne, pełne jadu śmiertelnego.  
-9 Przezeń błogosławimy Boga i Ojca, i przezeń przeklinamy ludzi, którzy na podobieństwo Boże sprawieni są.  
-10 Z tychże ust wychodzi błogosławieństwo i przeklęctwo.  
-  
-
-
-### Responsory3  
-@Tempora/Pasc4-0  
-  
-
-
 ### Ant 2  
 Uczniowie dali * Panu sztukę ryby pieczonéj i plastr miodu, alleluja, alleluja.  
   
@@ -11783,56 +6928,6 @@ Uczniowie dali * Panu sztukę ryby pieczonéj i plastr miodu, alleluja, alleluja
 ### Ant 3  
 Nie sam od siebie * mówić będzie, ale cokolwiek usłyszy, mówić będzie, i co przyjść ma, oznajmi wam, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. W kościele błogosławcie Bogu, alleluja,  
-* Panu, z źródeł Izraelskich, alleluja, alleluja.  
-V. Psalm śpiewajcie imieniowi jego, dajcie cześć chwale jego.  
-R. Panu, z źródeł Izraelskich, alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-*Jk 4:5-10*  
-5 Albo mniemacie, iż próżno Pismo mówi: Ku zazdrości pożąda duch, który w was mieszka?  
-6 Lecz większą łaskę daje; przeto mówi: Bóg pysznym się sprzeciwia, a pokornym łaskę dawa.   
-7 Bądźcie tedy poddani Bogu, a przeciwcie się djabłu, a uciecze od was.   
-8 Przybliżajcie się do Boga, a przybliży się do was. Ochędóżcie ręce, grzesznicy! i oczyśćcie serca umysłu dwoistego.  
-9 Dręczcie się i żałujcie i płaczcie: śmiech wasz niech się obróci w żałość, a wesele w smutek.  
-10 Uniżcie się przed oblicznością Pańską, a podwyższy was.   
-  
-
-
-### Responsory2  
-R. Ze wszystkiego serca mego, alleluja, szukałem ciebie, alleluja:  
-* Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-V. Błogosławionyś jest, Panie: naucz mię sprawiedliwości twoich.  
-R. Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-  
-Chwała Ojcu.  
-R. Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-*Jk 4:11-15*  
-11 Nie uwłóczcie jeden drugiemu, bracia. Kto uwłacza bratu, albo który sądzi brata swego, uwłacza zakonowi i sądzi zakon. A jeźli sądzisz zakon, nie jesteś czynicielem zakonu, ale sędzią.  
-12 Jeden jest zakonodawca i sędzia, który może zagubić i wybawić.  
-13 A ty ktoś jest, co sądzisz bliźniego? Oto teraz co mówicie: Dziś albo jutro pójdziemy do tego miasta i zmieszkamy tam rok i będziem kupczyć, będziem mieć zysk,   
-14 Którzy nie wiecie, co jutro będzie;  
-15 Bo cóż jest żywot wasz? Para jest, okazująca się na mały czas, a potem zniszczona będzie. Miasto tego, cobyście mieli mówić: Będzieli Pan chciał, i: Jeźli będziem żywi, uczyniemy to albo owo.  
-  
-
-
-### Responsory3  
-R. W kościele błogosławcie Bogu, alleluja,  
-* Panu, z źródeł Izraelskich, alleluja, alleluja.  
-V. Psalm śpiewajcie imieniowi jego, dajcie cześć chwale jego.  
-R. Panu, z źródeł Izraelskich, alleluja, alleluja.  
-  
-  
 
 
 ### Ant 2  
@@ -11849,57 +6944,6 @@ Idę do Tego, * który mię posłał, a żaden z was nie pyta mię: Dokąd idzie
 ### Ant 3 (rubrica 1960)  
 Idę do Tego, * który mię posłał, ale iżem to wam powiedział, smutek napełnił serce wasze, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Boże, pieśń nową zaśpiewam tobie, alleluja:  
-* Na arfie o dziesiąci stronach grać tobie będę, alleluja, alleluja.  
-V. Bóg mój jesteś ty, i wyznawać ci będę: Bóg mój jesteś ty, i wywyższać cię będę.  
-R. Na arfie o dziesiąci stronach grać tobie będę, alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-*Jk 5:7-11*  
-7 Przetóż cierpliwymi bądźcie, bracia! aż do przyjścia Pańskiego. Oto, oracz oczekiwa drogiego owocu ziemie, cierpliwie znosząc, ażby wziął zaranny i wieczorny.  
-8 I wy bądźcie cierpliwymi i utwierdzajcie serca wasze; albowiem przybliżyło się przyjście Pańskie.  
-9 Nie wzdychajcie, bracia! jedni przeciw drugim, abyście nie byli sądzeni. Oto sędzia przed drzwiami stoi.  
-10 Bracia! bierzcie na przykład zejścia złego utrapienia i cierpliwości proroki, którzy mówili w imię Pańskie.  
-11 Oto za błogosławione mamy tych, którzy wycierpieli. Jobowę cierpliwość słyszeliście, i koniec Pański widzieliście, iż litościwy jest Pan i miłosierny.  
-  
-
-
-### Responsory2  
-R. Dobrze jest wyznawać Panu, alleluja:  
-* I śpiewać, alleluja.  
-V. Na instrumencie o dziesiąci stronach, na arfie, z śpiewaniem, na cytrze.  
-R. I śpiewać, alleluja.  
-Chwała Ojcu.  
-R. I śpiewać, alleluja.  
-  
-  
-
-
-### Lectio3  
-*Jk 5:12-16*  
-12 A przed wszystkiem, bracia moi! nie przysięgajcie ani na niebo, ani na ziemię, ani żadną inną przysięgą; ale wasza mowa niech będzie: Jest, jest; Nie, nie, abyście w sąd nie wpadli.   
-13 Smuci się kto z was? niech się modli. Wesołego serca jest? niechajże śpiewa.  
-14 Choruje kto między wami? niech wwiedzie  kapłany kościelne, a niech się modlą nad nim, pomazując go olejem w imię Pańskie.   
-15 A modlitwa wiary uzdrowi niemocnego, i ulży mu Pan, a jeźliby w grzechach był, będą mu odpuszczone.  
-16 Spowiadajcie się tedy jedni drugim grzechów waszych, i módlcie się jedni za drugimi, abyście byli zbawieni; albowiem wiele może ustawiczna prośba sprawiedliwego.  
-  
-
-
-### Responsory3  
-R. Śpiewajcie Panu, alleluja:  
-* Psalm śpiewajcie jemu, alleluja.  
-V. Przynoście Panu chwałę i część, przynoście Panu chwałę imieniowi jego.  
-R. Psalm śpiewajcie jemu, alleluja.  
-Chwała Ojcu.  
-R. Psalm śpiewajcie jemu, alleluja.  
-  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
@@ -11928,62 +6972,6 @@ Przez Pana.
   
 
 
-### Responsory1  
-@Tempora/Pasc4-0  
-  
-
-
-### Lectio2  
-*1 P 1:6-12*  
-6 W czem radować się będziecie trochę teraz, jeźli potrzeba zasmucić się w rozmaitych pokusach,  
-7 Aby doświadczenie wiary waszéj, daleko kosztowniejsze nad złoto, (którego przez ogień próbują), było nalezione ku chwale i czci i sławie, w objawienie Jezusa Chrystusa:  
-8 Którego nie widziawszy, miłujecie, w którego téż teraz nie widząc go wierzycie, a wierząc radować się będziecie weselem niewymownem i chwalebnem,  
-9 Odnosząc koniec wiary waszéj, zbawienie dusz.  
-10 O którem zbawieniu wywiadowali się i badali prorocy, którzy o przyszłéj na was łasce prorokowali:  
-11 Badając się, na który albo na jaki czas okazował w nich Duch Chrystusów, opowiadając pierwéj o utrapieniach tych, które są w Chrystusie, i o chwałach za nimi idących:  
-12 Którym objawiono jest, iż nie samym sobie, ale wam tem usługowali, co się teraz wam opowiada przez te, którzy wam Ewangelią przepowiadali, przez Ducha Świętego, z nieba posłanego, na którego pragną patrzyć Aniołowie.  
-  
-
-
-### Responsory2  
-@Tempora/Pasc4-0  
-  
-
-
-### Lectio3  
-*1 P 1:13-21*  
-13 Przetóż przepasawszy biodra umysłu waszego, trzeźwimi będąc, doskonale miejcie nadzieję o łasce, którą wam ofiarują przez objawienie Chrystusa Jezusa,  
-14 Jako synowie posłuszeństwa, nie przypodobając się przeszłym pożądliwościom nieumiejętności waszéj;  
-15 Ale według onego, który was wezwał Świętego, i wy bądźcie świętymi we wszelakiem obcowaniu:  
-16 Ponieważ napisano jest: Będziecie świętymi, iżem Ja jest święty.  
-17 A jeźli wzywacie Ojca tego, który bez względu na osoby sądzi wedle uczynku każdego, w bojaźni obcujcie czasu przemieszkiwania waszego,  
-18 Wiedząc, iż nie skazitelnemi złotem albo śrebrem jesteście wykupieni od próżnego obcowania waszego ojcowskiego podania;  
-19 Ale drogą krwią, jako baranka niezmazanego i niepokalanego, Chrystusa,  
-20 Acz przejrzanego przed założeniem świata, ale czasów ostatecznych okazanego dla was,  
-21 Którzy przezeń wiernymi jesteście Bogu, który go wzbudził z martwych i dał mu chwałę, aby wiara i nadzieja wasza w Bogu była.  
-  
-
-
-### Responsory3  
-@Tempora/Pasc4-0  
-  
-
-
-### Responsory4  
-@Tempora/Pasc4-0  
-  
-
-
-### Responsory5  
-@Tempora/Pasc4-0  
-  
-
-
-### Responsory6  
-@Tempora/Pasc4-0  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Jana  
 *J 16:23-30*  
@@ -11992,16 +6980,6 @@ Onego czasu: Rzekł Jezus uczniom swoim: „Zaprawdę, zaprawdę powiadam wam: J
 Homilia świętego Augustyna, Biskupa  
 *Traktat 102. na Ewangelię wg św. Jana*  
 Teraz mają być omówione te słowa Pana: Zaprawdę, zaprawdę powiadam wam: Jeśli o co prosić będziecie Ojca w imię moje, da wam. Już w poprzednio omówionej części mowy Pana wyjaśniliśmy względem tych, którzy o niejedno proszą Ojca w imię Chrystusa, a nie otrzymują, że nie proszą oni w imię Zbawiciela, gdy zabiegają o to, co sprzeciwia się zbawieniu. A więc nie brzmienie liter i sylab, lecz to, co brzmienie oznacza, i to, co dzięki temu brzmieniu należycie i prawdziwie się pojmuje; w tym znaczeniu należy pojąć słowa Pana, który powiedział: W imię moje .  
-  
-
-
-### Responsory7  
-@Tempora/Pasc4-0  
-  
-
-
-### Responsory8  
-@Tempora/Pasc4-0  
   
 
 
@@ -12053,43 +7031,6 @@ Proście, a weźmiecie, * aby radość wasza była pełna, albowiem sam Ojciec m
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-@Tempora/Pasc5-1  
-  
-
-
-### Lectio2  
-*1 P 2:6-10*  
-6 Dla czego w Piśmie stoi: Oto kładę w Syonie kamień przedniejszy narożny, wybrany, kosztowny; a kto weń uwierzy, nie będzie zawstydzon.  
-7 Wam tedy wierzącym cześć; a niewierzącym kamień, który odrzucili budujący, ten się stał głową węgielną,  
-8 I kamieniem obrażenia i opoką zgorszenia tym, którzy się o słowo obrażają i nie wierzą, na co i postanowieni są.  
-9 A wy, rodzaj wybrany, królewskie kapłaństwo, naród święty, lud nabycia, abyście cnoty opowiadali tego, który was wezwał z ciemności ku swojéj przedziwnéj światłości,  
-10 Którzy niekiedy nie ludem, a teraz ludem Bożym, którzy co niedostąpili miłosierdzia, a teraz co miłosierdzia dostąpili.  
-  
-
-
-### Responsory2  
-@Tempora/Pasc5-1  
-  
-
-
-### Lectio3  
-*1 P 2:11-17*  
-11 Najmilejsi! proszę was, jako przychodniów i gościów, abyście się wstrzymawali od pożądliwości cielesnych, które walczą przeciwko duszy,  
-12 Mając obcowanie wasze dobre między pogany, aby w tem, w czem was pomawiają jako złoczyńce, z dobrych uczynków przypatrzywszy się wam, chwalili Boga w dzień nawiedzenia.  
-13 Bądźcież tedy poddani wszelkie mu ludzkiemu stworzeniu dla Boga, chociaż królowi, jako przewyższającemu,  
-14 Chociaż książętom, jako od niego posłanym ku pomście złoczyńców, a ku chwale dobrych.  
-15 Bo tak jest wola Boża, abyście dobrze czyniąc usta zatkali niemądrych ludzi głupstwu.  
-16 Jako wolni, a nie jakoby mając wolność zasłoną złości; ale jako słudzy Boży.  
-17 Wszystkie czcijcie. Braterstwo miłujcie. Boga się bójcie. Króla czcijcie.  
-  
-
-
-### Responsory3  
-@Tempora/Pasc5-1  
-  
-
-
 ### Ant 2  
 @Tempora/Pasc5-1  
   
@@ -12108,32 +7049,6 @@ Proście, a weźmiecie, * aby radość wasza była pełna, albowiem sam Ojciec m
 ### Oratio 3  
 @Tempora/Pasc5-1  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Niech teraz powiedzą, którzy są odkupieni, alleluja.  
-* Od Pana, alleluja, alleluja.  
-V. Które wykupił z ręki nieprzyjacielskiéj: i z krajów zgromadził je.  
-R. Od Pana, alleluja, alleluja.  
-  
-
-
-### Responsory2  
-R. Śpiewajcie Panu, alleluja:  
-* Psalm śpiewajcie jemu, alleluja.  
-V. Przynoście Panu chwałę i część, przynoście Panu chwałę imieniowi jego.  
-R. Psalm śpiewajcie jemu, alleluja.  
-  
-
-
-### Responsory3  
-R. Będę opowiadał imię twe braciéj mojéj, alleluja:  
-* W pośród kościoła będę cię chwalił, alleluja.  
-V. Będęć wyznawał między ludem, Panie, a będę tobie grał między narody.  
-R. W pośród kościoła będę cię chwalił, alleluja.  
-Chwała Ojcu.  
-R. W pośród kościoła będę cię chwalił, alleluja.  
-  
 
 
 ### Ant 2  
@@ -12159,58 +7074,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. W kościele błogosławcie Bogu, alleluja,  
-* Panu, z źródeł Izraelskich, alleluja, alleluja.  
-V. Psalm śpiewajcie imieniowi jego, dajcie cześć chwale jego.  
-R. Panu, z źródeł Izraelskich, alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-*1 P 4:7-11*  
-7 Przetóż roztropni bądźcie i czujcie w modlitwach.  
-8 A nade wszystko miejcie ustawiczną miłość jedni ku drugim; bo miłość zakrywa wielkość grzechów.  
-9 Goście radzi przyjmujcie, jedni drugie bez szemrania.  
-10 Każdy jako wziął łaskę, usługując nią jeden drugiemu, jako dobrzy szafarze rozlicznéj łaski Bożéj.  
-11 Jeźli który mówi, jako mowy Boże, jeźli który posługuje, jako z siły, której Bóg dodawa, aby we wszem był Bóg pochwalon przez Jezusa Chrystusa, któremu jest chwała i panowanie na wieki wieków. Amen.  
-  
-
-
-### Responsory2  
-R. Ze wszystkiego serca mego, alleluja, szukałem ciebie, alleluja:  
-* Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-V. Błogosławionyś jest, Panie: naucz mię sprawiedliwości twoich.  
-R. Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-  
-Chwała Ojcu.  
-R. Nie odpędzaj mię od mandatów twoich, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-*1 P 4:12-17*  
-12 Najmilejsi, nie bądźcie gośćmi w upaleniu, które was potyka ku doświadczeniu, jakoby co nowego na was przychodziło;  
-13 Ale się weselcie, uczestnikami będąc Chrystusowych ucisków; abyście się i w objawienie chwały jego radując weselili.  
-14 Jeźli was sromocą dla imienia Chrystusowego, błogosławieni będziecie, gdyż, co jest czci i chwały i mocy Bożéj, i który jest Duch jego, na was odpoczywa.  
-15 A żaden z was niechaj nie cierpi jako mężobójca, albo złodziéj, albo złomówca, albo jako cudzego pragnący.  
-16 Lecz jeźli jako Chrześcijanin, niech się nie sroma, a niech chwali Boga w tem imieniu.  
-17 Gdyż czas jest, aby się sąd począł od domu Bożego.  
-  
-
-
-### Responsory3  
-R. Śpiewajcie nam pieśń, alleluja:  
-* Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-V. Pytali nas tam, którzy nas w niewolą zagnali, o słowach pieśni.  
-R. Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-Chwała Ojcu.  
-R. Jakoż mamy śpiewać pieśń Pańską * w cudzéj ziemi? alleluja, alleluja.  
-  
-  
-
-
 ### Ant 2  
 Potrzebnem było * aby Chrystus cierpiał i zmartwychwstał, alleluja.  
   
@@ -12226,47 +7089,6 @@ Przez Pana.
 ### Ant 3  
 Wyszedłem od Ojca, * a przyszedłem na świat: zaś opuszczam świat, a idę do Ojca, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Boże, pieśń nową zaśpiewam tobie, alleluja:  
-* Na arfie o dziesiąci stronach grać tobie będę, alleluja, alleluja.  
-V. Bóg mój jesteś ty, i wyznawać ci będę: Bóg mój jesteś ty, i wywyższać cię będę.  
-R. Na arfie o dziesiąci stronach grać tobie będę, alleluja, alleluja.  
-  
-  
-
-
-### Lectio2  
-Toteż powiedział: Ojcze, nadeszła godzina moja, wsław Syna Twego, wskazując, że wszelki czas i to, co gdziekolwiek On czyni lub zezwala, aby się to stało, Ten sam zarządził, który żadnemu czasowi nie podlega. Albowiem to, co w poszczególnych czasach miało się dokonać, ma przyczyny sprawcze w mądrości Boga, w której nie ma żadnych czasów. Nie należy więc mniemać, iż ta godzina nadeszła pod naciskiem losu, lecz iż raczej Bóg ją zrządził. Żadna bowiem istniejąca w gwiazdach konieczność nie spowodowała męki Chrystusa, nie ma bowiem mowy, aby gwiazdy zmusiły do śmierci Twórcę gwiazd.  
-  
-
-
-### Responsory2  
-R. Dobrze jest wyznawać Panu, alleluja:  
-* I śpiewać, alleluja.  
-V. Na instrumencie o dziesiąci stronach, na arfie, z śpiewaniem, na cytrze.  
-R. I śpiewać, alleluja.  
-Chwała Ojcu.  
-R. I śpiewać, alleluja.  
-  
-  
-
-
-### Lectio3  
-Niektórzy sądzą, iż przez to Ojciec wsławił Syna, iż Go nie oszczędził, ale Go wydał za nas wszystkich. Ale jeśli się mówi, iż męka Go wsławiła, to czyż tym bardziej nie wsławiło Go zmartwychwstanie? Albowiem w męce bardziej była zaznaczona pokora niż wsławienie, jak świadczy Apostoł, który mówi: Uniżył samego siebie, stawszy się posłusznym aż do śmierci, a była to śmierć krzyżowa. Następnie ciągnie dalej i mówi o jego wsławieniu: Dlatego i Bóg wywyższył Go, i nadał Mu imię przewyższające wszelkie imię, aby na imię Jezusa zginało się wszelkie kolano mieszkańców niebios, ziemi i podziemia, i żeby wszelki język wyznawał, że Jezus Chrystus jest Panem w chwale Boga Ojca. To jest wsławienie Pana naszego Jezusa Chrystusa, które rozpoczęło się z Jego zmartwychwstaniem.  
-  
-
-
-### Responsory3  
-R. Niech teraz powiedzą, którzy są odkupieni, alleluja.  
-* Od Pana, alleluja, alleluja.  
-V. Które wykupił z ręki nieprzyjacielskiéj: i z krajów zgromadził je.  
-R. Od Pana, alleluja, alleluja.  
-  
-Chwała Ojcu.  
-R. Od Pana, alleluja, alleluja.  
-  
 
 
 ### Ant 2  
@@ -12411,53 +7233,6 @@ R. Boga mojego i Boga waszego, alleluja.
   
 
 
-### Responsory1  
-R. Po swéj męce, przez czterdzieści dni się im ukazując, i mówiąc o królestwie Bożem, alleluja.  
-* I widzieli, jak podniesion jest, alleluja: a obłok wziął go od oczu ich, alleluja.  
-V. A z nimi jedząc rozkazał im, aby nie odchodzili z Jeruzalem; ale czekali obietnice Ojcowskiéj.  
-R. I widzieli, jak podniesion jest, alleluja: a obłok wziął go od oczu ich, alleluja.  
-  
-
-
-### Lectio2  
-*Dz 1:6-9*  
-6 A tak którzy się byli zeszli, pytali go, mówiąc: Panie! zali w tym czasie przywrócisz królestwo Izraelowi?  
-7 I rzekł do nich: Nie wasza rzecz jest znać czasy i chwile, które Ojciec w swéj władzy położył.  
-8 Ale oweźmiecie moc Ducha Świętego, który przyjdzie na was, i będziecie mi świadkami w Jeruzalem i we wszystkiéj Żydowskiéj ziemi i w Samaryi i aż na kraj ziemie.  
-9 A to rzekłszy, gdy oni patrzali, podniesion jest, a obłok wziął go od oczu ich.  
-  
-
-
-### Lectio3  
-*Dz 1:10-14*  
-10 A gdy pilnie patrzali za nim do nieba idącym, oto dwaj mężowie stanęli przy nich w białem odzieniu,  
-11 Którzy téż rzekli: Mężowie Galilejscy! czemu stoicie patrząc w niebo? ten Jezus, który wzięt jest od was do nieba, tak przyjdzie, jakoście go widzieli idącego do nieba.  
-12 Tedy się wrócili do Jeruzalem od góry, którą zowią Oliwną, która jest blizko Jeruzalem, mając drogę szabbatu.  
-13 A gdy weszli, wstąpili do wieczernika, gdzie przebywali Piotr i Jan, Jakób i Andrzéj, Filip i Thomasz, Bartłomiéj i Mattheusz, Jakób Alpheuszów i Szymon Zelotes i Judas Jakóbów.  
-14 Ci wszyscy trwali jednomyślnie na modlitwie z niewiastami i z Maryą, matką Jezusową, i z bracią jego.  
-  
-
-
-### Responsory3  
-R. Podnieś się, Panie, alleluja,  
-* W mocy twojéj, alleluja.  
-V. Wyniosła się wielmożność twoja, nad niebiosa Boże.  
-R. W mocy twojéj, alleluja.  
-Chwała Ojcu.  
-R. W mocy twojéj, alleluja.  
-  
-
-
-### Responsory6  
-R. Wstąpiwszy Chrystus na wysokość, wiódł więźnie poimane.  
-* I dał dary ludziom, alleluja, alleluja, alleluja.  
-V. Wstąpił Bóg przy okrzykach radosnych, i Pan przy odgłosie trąb.  
-R. I dał dary ludziom, alleluja, alleluja, alleluja.  
-Chwała Ojcu.  
-R. I dał dary ludziom, alleluja, alleluja, alleluja.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Marka  
 *Mk 16:14-20*  
@@ -12467,14 +7242,6 @@ Homilia świętego Grzegorza, Papieża
 *Homilia 29. na Ewangelię*  
 To, że uczniowie w Zmartwychwstanie Pana z ociąganiem uwierzyli, nie tyle ich słabość sprawiła, lecz, że tak powiem, nasza przyszła pewność. Im wątpiącym wielu dowodami Zmartwychwstanie zostało udowodnione, ale gdy o tym czytamy, czy ich wątpienie nas nie umacnia? Mniej mi bowiem dała Maria Magdalena, która wcześniej uwierzyła, niż Tomasz, który długo wątpił. On bowiem, wątpiąc, dotknął blizny ran i z naszego serca usunął ranę wątpliwości. (rubrica 1570)  
 Dla tym większego wykazania, iż Zmartwychwstanie Pana było prawdziwe i rzeczywiste, należy zwrócić uwagę na to, co podaje Łukasz: Gdy zasiadł z nimi do stołu, przykazał im, aby nie odchodzili z Jerozolimy. I nieco dalej: W ich oczach wzniósł się w górę i obłok skrył Go przed oczyma ich.   
-  
-
-
-### Responsory7  
-R. Ja prosić będę Ojca i innego Pocieszyciela da wam,  
-* Aby pozostał z wami na zawsze, Ducha prawdy, alleluja.  
-V. Bo jeżeli nie odejdę, Pocieszyciel nie przyjdzie do was, a jeśli odejdę, poślę Go do was.  
-R. Aby pozostał z wami na zawsze, Ducha prawdy, alleluja.  
   
 
 
@@ -12493,16 +7260,6 @@ Posłuchajmy, co po skarceniu ich zatwardziałości, upominając ich, powiedzia�
 
 ### Increpata  
 Posłuchajmy, co po skarceniu ich zatwardziałości, upominając ich, powiedział: Idąc na cały świat, głoście Ewangelię wszelkiemu stworzeniu. Czy, moi bracia, Ewangelia miała być głoszona czy to rzeczom materialnym, czy też nierozumnym zwierzętom, iż o niej powiedział: głoście wszelkiemu stworzeniu? Jednakże w imieniu wszelkiego stworzenia jest człowiek wyrażony.  
-  
-
-
-### Responsory8  
-R. Chmury czynisz Twoim rydwanem, o Panie,  
-* Przechadzasz się na skrzydłach wiatru, alleluja.  
-V. Odziałeś się w majestat i piękno, światłem okryłeś się jak płaszczem.  
-R. Przechadzasz się na skrzydłach wiatru, alleluja.  
-Chwała Ojcu.  
-R. Przechadzasz się na skrzydłach wiatru, alleluja.  
   
 
 
@@ -12687,10 +7444,8 @@ Daj nam, prosimy Cię, Wszechmogący Boże, abyśmy, którzy w cudowne wniebowst
 Przez tegoż Pana.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
- Błąd importu.
-
- Błąd importu.
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Capitulum Vespera  
@@ -12718,27 +7473,6 @@ Przez Pana.
   
 
 
-### Lectio2  
-*1 J 1:6-10*  
-6 Jeźlibyśmy rzekli, iż towarzystwo mamy z nim, a w ciemności chodzimy, kłamamy, a prawdy nie czynimy.  
-7 Lecz jeźli w światłości chodzimy, jako i on jest w światłości, towarzystwo mamy między sobą, a krew Jezusa Chrystusa, Syna jego, oczyszcza nas od wszelkiego grzechu.  
-8 Jeźlibyśmy rzekli, iż grzechu nie mamy, sami siebie zwodzimy a prawdy w nas niemasz.  
-9 Jeźlibyśmy się spowiadali grzechów naszych, wierny jest i sprawiedliwy, aby nam odpuścił grzechy nasze i oczyścił nas od wszelakiéj nieprawości.  
-10 Jeźlibyśmy rzekłi, żeśmy nie grzeszyli; kłamcą go czynimy i niemasz w nas słowa jego.  
-  
-
-
-### Lectio3  
-*1 J 2:1-6*  
-1 Synaczkowie moi! to wam piszę, abyście nie grzeszyli. Ale jeźliby kto zgrzeszył, rzecznika mamy u Ojca, Jezusa Chrystusa sprawiedliwego;  
-2 A on jest ubłaganiem za grzechy nasze, a nie tylko za nasze, ale i wszego świata.  
-3 A przez to wiemy, iżeśmy go poznali, jeźlibyśmy przykazania jego zachowywali.  
-4 Kto mówi, że go zna, a przykazania jego nie chowa, kłamcą jest, a prawdy w nim niemasz.  
-5 Lecz kto zachowywa słowo jego, prawdziwie się w nim miłość Boża wykonała: i przez to wiemy, iż w nim jesteśmy.  
-6 Kto mówi, iż w nim mieszka, powinien jako on chodził, i sam chodzić.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Jana  
 *J 15:26-27; 16:1-4*  
@@ -12747,16 +7481,6 @@ Onego czasu: Rzekł Jezus uczniom swoim: „Gdy przyjdzie Pocieszyciel, którego
 Homilia świętego Augustyna, Biskupa  
 *Traktat 92. na Ewangelię wg św. Jana*  
 Pan Jezus w mowie, jaką wypowiedział do swych uczniów po wieczerzy, będąc blisko męki, mając odejść i opuścić ich w swej cielesnej postaci, a ze wszystkimi swoimi w przyszłości do końca świata pozostawać obecnością duchową, zachęcił ich do znoszenia prześladowań od bezbożnych, którym nadał imię „świata”. Powiedział jednak, iż z tego świata wybrał uczniów swoich, aby wiedzieli, iż dzięki łasce Boga są tym, czym są, a z powodu swych własnych win byli tym, czym byli.  
-  
-
-
-### Responsory8  
-R. Jeźli nie odejdę, Pocieszyciel nie przyjdzie do was, a jeźli odejdę, poślę go do was.  
-* Lecz gdy przyjdzie, nauczy was wszelkiéj prawdy, alleluja.  
-V. Bo nie sam od siebie mówić będzie, ale cokolwiek usłyszy, mówić będzie, i co przyjść ma, oznajmi wam.  
-R. Lecz gdy przyjdzie, nauczy was wszelkiéj prawdy, alleluja.  
-Chwała Ojcu.  
-R. Lecz gdy przyjdzie, nauczy was wszelkiéj prawdy, alleluja.  
   
 
 
@@ -12813,16 +7537,14 @@ Daj nam, prosimy Cię, Wszechmogący Boże, abyśmy, którzy w cudowne wniebowst
 Przez tegoż Pana.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
+KeyError, 
+(None,)
 
 
 ### Rule (rubrica 1960)  
@@ -12863,19 +7585,6 @@ R. Aby pozostał z wami na zawsze, Ducha prawdy, alleluja.
   
 
 
-### Lectio2  
-*Jd 1:5-8*  
-5 A chcę wam przypomnieć, gdyż raz wszystko wiecie, iż Jezus, wybawiwszy lud z ziemie Egipskiéj, zasię te potracił, którzy nie wierzyli.  
-6 A Anioły, którzy nie zachowali zacności swéj, ale mieszkanie swoje opuścili, na sąd dnia wielkiego związkami wiecznemi pod chmurą zachował.  
-7 Jako Sodoma i Gomorra i pograniczne miasta tymże sposobem zwszeteczniawszy i udawszy się za cudzem ciałem, stały się przykładem ognia wiekuistego, karanie cierpiąc.  
-8 Tak i ci ciało plugawią izwierzchność odrzucają i majestat bluźnią.  
-  
-(sed rubrica 1960)  
-Świat Go zatem nie może przyjąć, bo Go nie widzi ani Go nie zna. Miłość bowiem światowa nie ma duchowych oczu, którymi Duch Święty oglądany być może; nie można Go ujrzeć inaczej, jak tylko w sposób duchowy. Lecz wy Go poznacie – powiada – bo u was pozostanie i w was będzie przebywał. Będzie przeto u nich, aby pozostać; nie pozostanie, aby być; najpierw bowiem należy gdzieś być, aby tam pozostać! Aby zaś nie sądzono, iż powiedziano: „U was pozostanie”, w takim sensie, w jakim się mówi o gościu, który u człowieka zwykł pozostawać, Pan nasz wyjaśnił, co ma na myśli, gdy mówiąc: U was pozostanie, zaraz dodał, że: W was będzie przebywał.  
-  
-  
-
-
 ### Responsory2 (rubrica 1960)  
 R. Bo jeżeli nie odejdę, Pocieszyciel nie przyjdzie do was, a jeśli odejdę, poślę Go do was.  
 * Lecz gdy On przyjdzie, nauczy was wszelkiej prawdy, alleluja.  
@@ -12896,34 +7605,6 @@ R. Lecz gdy On przyjdzie, nauczy was wszelkiej prawdy, alleluja.
   
 
 
-### Lectio3  
-*Jd 1:9-13*  
-9 Gdy Michał Archaniół z djabłem spór wiódł, spierając się o ciało Mojżeszowe, nie śmiał podnieść sądu bluźnierskiego, ale rzekł: Niech ci Pan rozkaże.  
-10 A ci, czegokolwiek nie wiedzą, bluźnią: a cokolwiek z przyrodzenia jako nieme bydło rozumieją, w tem się psują.  
-11 Biada im! iż się drogą Kainową udali, a zwiedzieniem Balaamowem i zapłatą rozpuścili się, a w przeciwieństwie Korego poginęli.  
-12 Cić są plugawcy, na biesiadach swoich spólnie biesiadujący bez bojaźni, samych siebie pasący, obłoki bezwodne, które od wiatrów tam i sam unoszone bywają, drzewa jesienne, nieużyteczne, dwakroć pomarłe, wykorzenione,  
-13 Wały srogie morskie, przez piany zelżywości swoje wyrzucające, gwiazdy błąkające się, którym burza ciemności na wieki jest zachowana.  
-  
-(sed rubrica 1960)  
-A więc duchowo, niewidzialnie jest przez nas widziany. Jeśli w nas nie przebywa, nie może być w nas Jego wiedza. Tak samo widzimy w sobie i nasze sumienie. Widzimy bowiem twarz innego, a swej widzieć nie możemy, sumienie zaś widzimy swoje, cudzego nie widzimy. Jednakże sumienie jest tylko w nas, natomiast Duch Święty może też być bez nas; dany zaś jest, aby i w nas był. Lecz takim, jakim jest, nie może być widziany i znany, jeśli Go w nas nie ma. (deinde dicitur)  
-Po przyobiecaniu Ducha Świętego, aby nikt nie sądził iż Jezus zamiast siebie chciał Go udzielić po to, żeby już z nimi nie pozostawać, powiedział im: Nie pozostawię was sierotami, przyjdę do was. Choć więc Syn Boga uczynił nas przybranymi synami swego Ojca i chciał, abyśmy dzięki łasce mieli za Ojca Tego, kto z natury jest Jego Ojcem, to jednak i On sam swe ojcowskie uczucie niejako okazał, mówiąc: Nie pozostawię was sierotami.  
-(sed rubrica 1570 omittitur)  
-&teDeum  
-  
-  
-
-
-### Responsory3  
-R. Podnieś się, Panie, alleluja,  
-* W mocy twojéj, alleluja.  
-V. Wyniosła się wielmożność twoja, nad niebiosa Boże.  
-R. W mocy twojéj, alleluja.  
-Chwała Ojcu.  
-R. W mocy twojéj, alleluja.  
-  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Jana  
 *J 14:15-21*  
@@ -12937,11 +7618,6 @@ W tym, co powiedział: Prosić będę Ojca, i innego Pocieszyciela da wam, Jezus
 
 ### Lectio8  
 Świat Go zatem nie może przyjąć, bo Go nie widzi ani Go nie zna. Miłość bowiem światowa nie ma duchowych oczu, którymi Duch Święty oglądany być może; nie można Go ujrzeć inaczej, jak tylko w sposób duchowy. Lecz wy Go poznacie – powiada – bo u was pozostanie i w was będzie przebywał. Będzie przeto u nich, aby pozostać; nie pozostanie, aby być; najpierw bowiem należy gdzieś być, aby tam pozostać! Aby zaś nie sądzono, iż powiedziano: „U was pozostanie”, w takim sensie, w jakim się mówi o gościu, który u człowieka zwykł pozostawać, Pan nasz wyjaśnił, co ma na myśli, gdy mówiąc: U was pozostanie, zaraz dodał, że: W was będzie przebywał.  
-  
-
-
-### Responsory8  
-@Tempora/Pasc6-0  
   
 
 
@@ -12969,35 +7645,8 @@ Po przyobiecaniu Ducha Świętego, aby nikt nie sądził iż Jezus zamiast siebi
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
-
-### Responsory1  
-R. Już was nie nazwę sługami, lecz przyjaciółmi moimi, albowiem poznaliście wszystko, co zdziałałem będąc pośród was, alleluja.  
-* Weźmijcie na siebie Ducha Świętego Pocieszyciela; Tego, którego Ojciec wam pośle, alleluja.  
-V. Wy jesteście przyjaciółmi moimi, gdy czynić będziecie, co Ja wam rozkazuję.  
-R. Weźmijcie na siebie Ducha Świętego Pocieszyciela; Tego, którego Ojciec wam pośle, alleluja.  
-  
-
-
-### Lectio2  
-Zna Pan bowiem tych, którzy są Jego, którzy wytrwają dla otrzymania korony, zna też tych, którzy wytrwają dla przeznaczonego im płomienia; zna na swoim klepisku ziarna pszeniczne, zna i plewy; zna zasiew, zna i kąkol. Już jest osądzony ten, kto nie wierzy. Dlaczego osądzony? Bo nie uwierzył w imię Jednorodzonego Syna Bożego. A wyrok na tym polega, że światłość przyszła na świat, ale ludzie umiłowali bardziej ciemności niż światłość, bo były złe ich uczynki. Bracia moi, u kogo Pan znalazł dobre uczynki? U nikogo. U wszystkich złe znalazł. Dlaczego więc niektórzy postępowali według prawdy i doszli do światła? Tak bowiem jest dalej: Kto zaś czyni prawdę, dąży do światła.  
-  
-
-
-### Responsory2  
-R. Duch Święty, wyszedłszy od Bożego tronu, niewidzialnie przeniknął serca Apostołów nowym znakiem uświęcenia,  
-* Aby w ich ustach zagościł wszelki rodzaj mowy, alleluja.  
-V. Przybył Boski ogień, który nie spala, lecz oświeca, i udzielił im darów swojej łaski.  
-R. Aby w ich ustach zagościł wszelki rodzaj mowy, alleluja.  
-Chwała Ojcu.  
-R. Aby w ich ustach zagościł wszelki rodzaj mowy, alleluja.  
-  
-
-
-### Lectio3  
-Ale – powiada – umiłowali bardziej ciemności niż światłość. Na to nacisk położył. Wielu bowiem umiłowało swe grzechy; wielu też swe grzechy wyznało. Kto bowiem wyznaje swe grzechy i swoje grzechy oskarża, ten już trzyma się Boga. Oskarża Bóg twoje grzechy, a jeśli i ty je oskarżasz, łączysz się z Bogiem. Człowiek i grzesznik to niejako dwie rzeczy. To, co słyszysz o człowieku, Bóg uczynił; to, co słyszysz o grzeszniku, sam człowiek to sprawił. Zgładź to, co uczyniłeś, aby Bóg zbawił to, co uczynił. Powinieneś nienawidzić w sobie twoje dzieło, a miłować w sobie dzieło Boga. Skoro zacznie ci się nie podobać to, co uczyniłeś, to już rozpoczną się twoje dobre dzieła, bo oskarżasz złe czyny. Początkiem dobrych czynów jest wyznanie złych czynów.  
-&teDeum  
-  
+IOError, 
+(2, 'No such file or directory')
 
 
 ### Ant 2  
@@ -13016,35 +7665,6 @@ Jeśli mię kto miłuje, * będzie chował mowę moją: a Ojciec mój umiłuje g
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Apostołom ukazały się rozdzielone języki na kształt ognia. Alleluja.  
-* I spoczął na każdym z nich z osobna Duch Święty. Alleluja, alleluja.  
-V. I poczęli mówić różnymi językami, jako im Duch Święty mówić dawał.  
-R. I spoczął na każdym z nich z osobna Duch Święty. Alleluja, alleluja.  
-  
-
-
-### Lectio2  
-Starają się więc częstokroć tacy ludzie nakłaniać też ludzi, aby dobrze żyli, nie zostając chrześcijanami. Chcą wstąpić inną drogą, rabować i zabijać; nie jak dobry pasterz, aby zachowywać i ratować. Byli niektórzy filozofowie, którzy o cnotach i występkach wnikliwie wiele rozprawiali, dzielili, określali, jak najbystrzejsze wnioski wyprowadzali, księgi przepełniali, swą mądrość brzmiącymi usty sławili; którzy też odważali się mówić ludziom: „Idźcie za nami; jeśli chcecie szczęśliwie żyć, trzymajcie się naszej nauki”. Jednakże nie wchodzili przez bramę; chcieli gubić, ranić i zabijać.  
-  
-
-
-### Responsory2  
-R. Apostołowie mówili różnymi językami o wielkich sprawach Bożych,  
-* Jako im Duch Święty mówić dawał. Alleluja.  
-V. Wszyscy napełnieni byli Duchem Świętym i poczęli mówić.  
-R. Jako im Duch Święty mówić dawał. Alleluja.  
-Chwała Ojcu.  
-R. Jako im Duch Święty mówić dawał. Alleluja.  
-  
-
-
-### Lectio3  
-Co o takich powiem? Oto sami faryzeusze czytali o Chrystusie i przez to, co czytali, Chrystusa głosili, spodziewali się, iż przyjdzie, a przybyłego nie uznali. Szczycili się też, iż należą do Widzących, to jest do mądrych, a zaprzeczali Chrystusa, i nie wchodzili przez bramę. A więc i oni, jeśli może kogo zwiedli, to zwiedli, aby go zranić i zabić, a nie uwolnić. I tych pomińmy, a zobaczmy, czy może ci wchodzą przez bramę, którzy się chlubią imieniem samego Chrystusa. Są bowiem niezliczeni, którzy się chlubią nie tylko, iż są Widzącymi, lecz chcą, aby ich uważano za oświeconych przez Chrystusa, a jednak są heretykami.  
-&teDeum  
-  
-
-
 ### Ant 2  
 Jam jest drzwiami * rzekł Pan: przezemnie jeśli kto wnijdzie, zbawion będzie i pastwiska znajdzie, alleluja.  
   
@@ -13059,35 +7679,6 @@ Przez Pana.
 ### Ant 3  
 Pokój * zostawuję wam: pokój mój daję wam: nie jako daje świat, ja wam daję, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Pan ich nauczył wiedzy i mądrości, alleluja. Umocnił w nich łaskę swego Ducha  
-* I roztropnością napełnił ich serca, alleluja.  
-V. Albowiem Duch Święty zstąpił na nich w nagłym szumie.  
-R. I roztropnością napełnił ich serca, alleluja.  
-  
-
-
-### Lectio2  
-Daj mi kochającego, a pojmie, co mówię. Daj mi pragnącego, daj zgłodniałego, daj pielgrzymującego na tym pustkowiu i spragnionego, i wzdychającego za źródłem wiecznej ojczyzny, a wie, co mówię. Jeśli zaś zwracam się do zimnego, to nie wie, co mówię. Takimi byli ci, którzy szemrali między sobą, słysząc: Kogo pociągnie Ojciec, ten przychodzi do Mnie. Co to znaczy: Kogo pociągnie Ojciec, skoro sam Chrystus pociąga? Dlaczego powiedział: Kogo pociągnie Ojciec? Jeśli mamy być pociągani, to niech Ten pociąga, do którego kochająca powiedziała: Pobiegniemy za wonnością olejków twoich. Zwróćmy, bracia, na to uwagę, co Pan chciał powiedzieć, abyśmy przez to zrozumieli; pojmijmy to, o ile zdołamy. Tych Ojciec pociąga do Syna, którzy wierzą w Syna, bo wierzą, iż Jego Ojciec jest Bogiem. Bóg Ojciec bowiem zrodził równego sobie Syna. Kto tak myśli i w swej wierze jest przekonany, i rozważa, iż równy jest Ojcu Ten, w którego wierzy, tego Ojciec pociąga do Syna.  
-  
-
-
-### Responsory2  
-R. Idźcie na cały świat i głoście Ewangelię, alleluja.  
-* Kto uwierzy i ochrzci się, zbawiony będzie, alleluja, alleluja, alleluja.  
-V. W imię moje będą czarty wyrzucać, nowymi językami mówić będą, węże brać będą.  
-R. Kto uwierzy i ochrzci się, zbawiony będzie, alleluja, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Kto uwierzy i ochrzci się, zbawiony będzie, alleluja, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-Ariusz uważał Syna Bożego za stworzenie; Ojciec go nie pociągnął, bo nie poznaje Ojca ten, kto nie wierzy, iż Syn jest Mu równy. Co mówisz, Ariuszu? Co mówisz, heretyku? Kim jest Chrystus? Nie jest Bogiem prawdziwym – mówi Ariusz – lecz uczynił Go Bóg prawdziwy. Ojciec cię nie pociągnął, nie pojąłeś bowiem Ojca, którego Syna zaprzeczasz. Myślisz coś innego, mówisz, iż nie jest On Synem; ani cię Ojciec nie pociąga, ani nie pociąga cię Syn. Co innego bowiem jest Syn, a co innego jest to, co ty mówisz. Fotyn powiedział, iż Chrystus jest tylko człowiekiem, nie jest Bogiem. Kto tak wierzy, tego Ojciec nie pociągnął. Kogo Ojciec pociągnął? Piotra, który powiedział: Tyś jest Chrystus, Syn Boga żywego. Zieloną gałązkę pokazujesz owcy i ją pociągniesz. Orzechy pokazujesz dziecku i jest pociągnięte; gdziekolwiek biegnie jest pociągane, pociągane miłością, pociągane bez cielesnej przemocy, pociągane więzami serca. Jeśli więc te rzeczy wśród uciech i przyjemności ziemskich kochającym są pokazane i pociągają ich – bo prawdą jest, że każdego pociąga to, co przyjemność mu sprawia – to czyż nie miałby pociągać Chrystus, objawiony przez Ojca? Czego bowiem bardziej pożąda dusza, jeśli nie prawdy?  
-&teDeum  
-  
 
 
 ### Ant 2  
@@ -13106,35 +7697,6 @@ Jam jest chleb żywy, * który z nieba zstąpił: jeśliby kto pożywał tego ch
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Przybył Boski ogień, który nie spala, lecz oświeca, który nie niszczy, lecz jaśnieje. Uznał serca uczniów za czyste mieszkanie dla siebie  
-* I udzielił im darów swojej łaski, alleluja, alleluja.  
-V. Zastał ich zjednoczonych w miłości i oświecił, wylewając na nich łaskę od Boga.  
-R. I udzielił im darów swojej łaski, alleluja, alleluja.  
-  
-
-
-### Lectio2  
-Jak jednak jest zaznaczony obowiązek przyjmowania ich gościnnie, tak znowu kazano im, aby, jeśliby ich nie przyjęto, otrząsnęli proch z nóg swoich i opuścili to miasto. Niemała tu jest przedstawiona nagroda za należyte wywiązywanie się z gościnności, abyśmy tym, którzy nas gościnnie przyjęli, nie tylko pokój przynosili, lecz również, jeśli ich zaciemniają jakieś lekkomyślne winy, usuwali je za to, iż apostolską naukę przyjęli. Niedaremnie Mateusz zaznacza, iż należy wybrać dom, do którego Apostołowie wstępują, aby nie było powodu do koniecznej zmiany miejsca. Jednakże ta ostrożność nie jest nakazana temu, kto gościa przyjmuje, aby podczas wybierania gościa sama gościnność nie doznała uszczerbku.  
-  
-
-
-### Responsory2  
-R. Duch Święty napełnił cały dom, gdzie przebywali Apostołowie. I ukazały się im rozdzielone języki na kształt ognia, który spoczął na każdym z nich z osobna.  
-* I wszyscy napełnieni byli Duchem Świętym, i poczęli mówić różnymi językami, jako im Duch Święty mówić dawał, alleluja, alleluja, alleluja.  
-V. A gdy z bojaźni przed Żydami zgromadzili się uczniowie, stał się z nagła szum z nieba ponad nimi.  
-R. I wszyscy napełnieni byli Duchem Świętym, i poczęli mówić różnymi językami, jako im Duch Święty mówić dawał, alleluja, alleluja, alleluja.  
-Chwała Ojcu.  
-R. I wszyscy napełnieni byli Duchem Świętym, i poczęli mówić różnymi językami, jako im Duch Święty mówić dawał, alleluja, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-Jak w literalnym znaczeniu czcigodny jest nakaz co do gościnności, tak też niebiańska wypowiedź zawiera w sobie mistyczne znaczenie. Jeśli się bowiem dom wybiera, to szuka się, aby godnym był ten, kto gościny użycza. Zobaczmy, czy przypadkiem nie oznacza to, że należy wybrać Kościół i Chrystusa. Jakiż bowiem dom byłby godniejszy, aby do niego wstąpiła apostolska nauka, jeśli nie Kościół święty? A kogóż, jak się zdaje, nad wszystkich wybrać należy, jeśli nie Chrystusa, który swym gościom zwykł był nogi umywać i nie dozwalał, aby każdy, który do Jego domu został przyjęty, miał brudne nogi i choć czyjeś życie poprzednio było zbrudzone, On je jednak łaskawie oczyszczał na dalszą drogę. On jest więc jedynym, którego nikt nie powinien opuszczać, nikt zmieniać. Słusznie Mu powiedziano: Panie, do kogóż pójdziemy? Ty masz słowa życia wiecznego, a myśmy uwierzyli.  
-&teDeum  
-  
-
-
 ### Ant 2  
 Jezus, wezwawszy * dwunastu Apostołów, dał im moc i władzę na wszystkie czarty, ażeby uzdrawiali choroby: i posłał ich przepowiadać królestwo Boże i uzdrawiać niemocnych, alleluja.  
   
@@ -13149,35 +7711,6 @@ Przez Pana.
 ### Ant 3  
 Duch, * który od Ojca pochodzi, alleluja: On mię uwielbi, alleluja, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Nie wyście Mnie wybrali, alem Ja was wybrał i ustanowiłem was,  
-* Abyście poszli i owoc przynieśli, i żeby owoc wasz trwał, alleluja, alleluja.  
-V. Jako Mnie posłał Ojciec, i Ja was posyłam.  
-R. Abyście poszli i owoc przynieśli, i żeby owoc wasz trwał, alleluja, alleluja.  
-  
-
-
-### Lectio2  
-Potrzeba więc jakichś doradców, którzy by upomnieli ducha człowieka, unieruchomionego zewnętrzną słabością ciała, i do tego, co wyższe, wznosili. Z ich pomocą łatwo się będzie i wznosić, i zniżać, aby się znaleźć przed Jezusem, stać się godnym Jego spojrzenia. Pan bowiem łaskawie spogląda na pokorę: Bo wejrzał na uniżenie Służebnicy swojej. A On, widząc ich wiarę, rzekł: „Człowiecze, odpuszczają ci się grzechy twoje”. Wielki jest Pan; dla zasług jednych przebacza innym, a gdy jednych doświadcza, innym odpuszcza winy. Dlaczego, człowiecze, twój towarzysz nie zdoła u ciebie tego osiągnąć, skoro i sługa może u Pana sobie wysłużyć, iż wolno mu za kimś orędować i mieć prawo, aby jego prośba była wysłuchana?  
-  
-
-
-### Responsory2  
-R. Duch Pański napełnił okrąg ziemi,  
-* Ten, który ogarnia wszystko, ma znajomość mowy, alleluja, alleluja.  
-V. Sprawcą jest bowiem wszystkiego, mając wszelką moc i wszystko przewidując.  
-R. Ten, który ogarnia wszystko, ma znajomość mowy, alleluja, alleluja.  
-Chwała Ojcu.  
-R. Ten, który ogarnia wszystko, ma znajomość mowy, alleluja, alleluja.  
-  
-
-
-### Lectio3  
-Ucz się, jeśli osądzasz, przebaczać; ucz się, będąc chorym, prosić. Jeśli z powodu swych ciężkich grzechów tracisz nadzieję, iż otrzymasz przebaczenie, staraj się o orędowników, zwróć się do Kościoła, aby modlił się za ciebie. Ze względu na niego Pan daruje ci, choćby mógł odmówić przebaczenia. Temu, co podały dzieje, nie powinniśmy oczywiście odmówić wiary. Wierzymy, że ciało owego paralityka zostało uleczone. Poznaj jednak i wewnętrzne uleczenie człowieka, któremu grzechy są darowane. Sami Żydzi, twierdząc, iż tylko Bóg może to zdziałać, uznają Go przez to za Boga i własnym sądem zdradzają przez to swoją niewiarę. Uznają Jego czyn, zaprzeczają Jego Osobie.  
-&teDeum  
-  
 
 
 ### Ant 2  
@@ -13196,35 +7729,6 @@ Lecz Pocieszyciel, * Duch Święty, którego Ojciec pośle w imię moje, on was 
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Wszyscy napełnieni byli Duchem Świętym i poczęli mówić, jako im Duch Święty mówić dawał.  
-* I zbiegło się mnóstwo ludzi mówiących: Alleluja.  
-V. Apostołowie mówili różnymi językami o wielkich sprawach Bożych.  
-R. I zbiegło się mnóstwo ludzi mówiących: Alleluja.  
-  
-
-
-### Lectio2  
-Pan w szabat rozpoczął swą uzdrawiającą pracę. Chciał przez to wyrazić, że nowe twórcze dzieło tam się rozpoczęło, gdzie dawne ongi ustało. Oznacza to jednocześnie, iż Syn Boga nie podlegał Zakonowi, lecz od początku był ponad Zakonem, i że nie przyszedł rozwiązywać Zakon, ale wypełnić. Nie przez Zakon bowiem został stworzony świat, ale przez Słowo, jak to czytamy: Przez słowo Pana powstały niebiosa. Nie jest więc Zakon rozwiązany, ale wypełniony, aby został odnowiony człowiek, który już upadł. Toteż Apostoł mówi: Zwlekłszy z siebie starego człowieka, obleczcie się w nowego, który według Boga stworzony jest.  
-  
-
-
-### Responsory2  
-R. Już was nie nazwę sługami, lecz przyjaciółmi moimi, albowiem poznaliście wszystko, co zdziałałem będąc pośród was, alleluja.  
-* Weźmijcie na siebie Ducha Świętego Pocieszyciela; Tego, którego Ojciec wam pośle, alleluja.  
-V. Wy jesteście przyjaciółmi moimi, gdy czynić będziecie, co Ja wam rozkazuję.  
-R. Weźmijcie na siebie Ducha Świętego Pocieszyciela; Tego, którego Ojciec wam pośle, alleluja.  
-Chwała Ojcu.  
-R. Weźmijcie na siebie Ducha Świętego Pocieszyciela; Tego, którego Ojciec wam pośle, alleluja.  
-  
-
-
-### Lectio3  
-Et bene sabbato coepit, ut ipsum se ostenderet Creatorem, qui opera operibus intexeret, et prosequeretur opus, quod ipse jam coeperat: ut si domum faber renovare disponat, non a fundamentis, sed a culminibus incipit solvere vetustatem. Itaque ibi prius manum admovet, ubi ante desierat: deinde a minoribus incipit, ut ad majora perveniat. Liberare a daemone et homines, sed in verbo Dei possunt: resurrectionem mortuis imperare, divinae solius est potestatis. Fortassis etiam in typo mulieris illius socrus Simonis et Andreae, variis criminum febribus caro nostra languebat, et diversarum cupiditatum immodicis aestuabat illecebris. Nec minorem febrem amoris esse dixerim, quam caloris. Itaque illa animum, haec corpus inflammat. Febris enim nostra, avaritia est: febris nostra, libido est: febris nostra, luxuria est: febris nostra, ambitio est: febris nostra, iracundia est.  
-&teDeum  
-  
-
-
 ### Ant 2  
 Miłość Boża * rozlana jest w sercach naszych, przez Ducha Świętego mieszkającego w nas, alleluja.  
   
@@ -13238,6 +7742,8 @@ Przez Pana.
 # Okres po Zesłaniu
 
  Błąd importu.
+KeyError, 
+(None,)
 
 
 ### Ant Vespera  
@@ -13349,68 +7855,6 @@ R. A tchnieniem ust jego wszystek zastęp ich.
   
 
 
-### Responsory1  
-R. Widziałem Pana, siedzącego na stolicy wysokiéj i wyniosłéj: i pełna jest wszystka ziemia chwały jego.  
-* A to, co pod nim było, napełniało kościół.  
-V. Seraphini stali nad nim: sześć skrzydeł miał jeden, a sześć skrzydeł drugi.  
-R. A to, co pod nim było, napełniało kościół.  
-  
-
-
-### Lectio2  
-*Iz 6:5-8*  
-5 I rzekłem: Biadaż mnie, iżem milczał; bo mąż mający wargi plugawe, ja jestem, i w pośrodku ludu plugawe wargi mającego ja mieszkam: a Króla, Pana zastępów widziałem oczyma swemi.  
-6 I przyleciał do mnie jeden z Seraphim, a w ręce jego kamyk, który był wziął kleszczami z ołtarza.  
-7 I dotknął się ust moich i rzekł: Oto się to dotknęło warg twoich, i odejdzie nieprawość twoja, a grzech twój będzie oczyszczony.  
-8 I usłyszałem głos Pana mówiącego: Kogo poślę? a kto nam pójdzie? i rzekłem: Owo ja, poślij mię.  
-  
-
-
-### Responsory2  
-R. Błogosławiony Pan, Bóg Izraelski, który sam czyni dziwy.  
-* I błogosławione imię majestatu jego na wieki.  
-V. Będzie napełniona majestatem jego wszystka ziemia: stań się, stań się.  
-R. I błogosławione imię majestatu jego na wieki.  
-  
-
-
-### Lectio3  
-*Iz 6:9-12*  
-9 I rzekł: Idź, a powiesz ludowi temu: Słuchajcie słuchając, a nie rozumiejcie: i oglądajcie widzenie, a nie poznajcie.  
-10 Zaślep serce ludu tego a uszy jego obciąż, i oczy jego zawrzyj, aby snadź nie widział oczyma swemi i uszyma swemi nie słyszał a sercem swem nie rozumiał, a nawróciłby się, i uzdrowiłbym go.  
-11 I rzekłem: Dokądże, Panie? I rzekł: Aż będą spustoszone miasta bez obywatela, a domy bez człowieka, a ziemia zostanie spustoszona.  
-12 I daleko zapędzi pan ludzie, i rozmnoży się ta, która była pusta w pośród ziemie.  
-  
-
-
-### Responsory3  
-R. Niech nas błogosławi Bóg, Bóg nasz, niech nas błogosławi Bóg:  
-* A niech się go boją wszystkie kraje ziemie.  
-V. Niech się nad nami Bóg zmiłuje, i niech nam Bóg błogosławi.  
-R. A niech się go boją wszystkie kraje ziemie.  
-Chwała Ojcu.  
-R. A niech się go boją wszystkie kraje ziemie.  
-  
-
-
-### Responsory4  
-Któryż Bóg wielki, jako Bóg nasz?  
-* Tyś jest Bóg, który dziwy czynisz.  
-V. Oznajmiłeś między narody moc twoję:  odkupiłeś ramieniem twojem lud twój.  
-R. Tyś jest Bóg, który dziwy czynisz.  
-  
-
-
-### Responsory6  
-R. Wielki Pan, i chwalebny bardzo:  
-* A mądrości jego niemasz liczby.  
-V. Wielki Pan nasz, i wielka moc jego: a mądrości jego niemasz liczby.  
-R. A mądrości jego niemasz liczby.  
-Chwała Ojcu.  
-R. A mądrości jego niemasz liczby.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Mateusza  
 *Mt 28:18-20*  
@@ -13422,26 +7866,8 @@ Kto z katolików nie wie, że Ojciec jest prawdziwie Ojcem, Syn naprawdę Synem,
   
 
 
-### Responsory7  
-R. Błogosławmy Ojca i Syna, i Ducha Świętego,  
-* Chwalmy Go i wywyższajmy na wieki.  
-V. Błogosławiony jesteś, Panie, na utwierdzeniu niebieskiem, i sławny, i chwalebny na wieki.  
-R. Chwalmy Go i wywyższajmy na wieki.  
-  
-
-
 ### Lectio8  
 Nie mówimy, że Syn Boży, jak to sobie niektórzy wyobrażali, został zrodzony przez rozwinięcie się jakiejś cząstki pochodzącej od Ojca, ani też nie przyjmujemy, że jest On słowem bez treści, jak gdyby tu chodziło o samo brzmienie wyrazu. Wierzymy jednak, że trzy osoby obdarzone trzema imionami posiadają jedną tylko naturę, jeden majestat i potęgę. Wyznajemy przeto, że Bóg jest jeden, gdyż jedność i niepodzielność majestatu nie pozwala nam mówić o wielu bogach.  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
   
 
 
@@ -13599,50 +8025,6 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
-
-
-### Lectio2  
-*1 Sm 1:4-8*  
-4 Przyszedł tedy dzień, i ofiarował Elkana, i dał Phenennie żonie swéj i wszystkim synom jéj i córkom części:  
-5 A Annie dał część jednę smutny; bo Annę miłował: ale Pan zamknął był żywot jéj.  
-6 Trapiła ją téż przeciwnica jéj i bardzo frasowała, tak bardzo, że urągała, iż Pan zamknął żywot jéj.  
-7 I tak czynił na każdy rok, kiedy, gdy czas nadszedł, chodzili do kościoła Pańskiego: i tak ją draźniła, a ona płakała, i nie jadła.  
-8 Rzekł tedy jéj Elkana, mąż jéj: Anno, czemu płaczesz? a przecz nie jesz? a przez co się frasuje serce twoje? azam ja nie lepszy tobie, niźli dziesięć synów?  
-  
-
-
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
-  
-
-
-### Lectio3  
-*1 Sm 1:9-11*  
-9 I wstała Anna najadłszy się i napiwszy w Sylo. A gdy Heli kapłan siedział na stołku przede drzwiami kościoła Pańskiego,  
-10 Będąc Anna gorzkiego serca, modliła się do Pana, płacząc hojnie:  
-11 I ślubiła ślub mówiąc: Panie zastępów, jeźli wejrzawszy wejrzysz na utrapienie służebnice twojéj, a wspomnisz na mię, a nie zapamiętasz służebnice twojéj, a dasz słudze twojéj płeć męzką, dam go Panu przez wszystkie dni żywota jego, a brzytwa nie postoi na głowie jego.  
-  
-
-
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-  
-
-
 ### Kolekta  
 Boże, mocy ufających w Tobie, wysłuchaj łaskawie błagania nasze, a że ułomność śmiertelnych nic bez Ciebie uczynić nie może, wspomóż nas łaską swoją, abyśmy, pełniąc przykazania Twoje, wolą i uczynkiem podobali się Tobie.  
 Przez Pana.  
@@ -13650,75 +8032,11 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
-
-
-### Lectio2  
-*1 Sm 1:18-22*  
-18 I poszła niewiasta w drogę swoję, i jadła, a twarz jéj już się więcej różno nie odmieniała.  
-19 I wstali rano i pokłonili się przed Panem, i wrócili się, i przyszli do domu swego do Ramatha. I poznał Elkana Annę, żonę swoję, i wspomniał na nię Pan.  
-20 I stało się po obrocie dni, poczęła Anna, i porodziła syna i nazwała imię jego Samuel: przeto, iż go u Pana żądała.  
-21 I szedł mąż jej Elkana i wszystek dom jego, aby ofiarował Panu ofiarę uroczystą, i ślub swój.  
-22 Lecz Anna nie szła; bo mówiła mężowi swemu: Nie pójdę, aż się ostawi dziecię i zawiodę je, że się ukaże przed obliczem Pańskiem, i zostanie tam ustawicznie.  
-  
-
-
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
-  
-
-
-### Lectio3  
-*1 Sm 1:23-28*  
-23 I rzekł jéj Elkana mąż jéj: Czyń, coć się zda dobrego, a zostań, aż je ostawisz: a proszę, aby Pan wypełnił słowo swoje. A tak została niewiasta i karmiła piersiami syna swego, aż go odsadziła od mleka.  
-24 I przywiodła go z sobą, gdy go ostawiła ze trzema cielcami, i ze trzema korcami mąki, i z garncem wina, i przywiodła go do domu Pańskiego do Sylo. A było dziecię jeszcze malutkie.  
-25 I ofiarowali cielca, i przywiedli dziecię do Heli.  
-26 I rzekła Anna: Proszę, mój panie, żywie dusza twoja, panie: jamci to ona niewiasta, któram stała przed tobą tu modląc się Panu.  
-27 O tom dziecię prosiła, i dał mi Pan prośbę moję, któréjem u niego prosiła.  
-28 Przetóż i ja pożyczyłam go Panu na wszystkie dni, których będzie pożyczony Panu. I pokłonili się tam Panu.  
-  
-
-
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-  
-
-
 ### Kolekta  
 Boże, mocy ufających w Tobie, wysłuchaj łaskawie błagania nasze, a że ułomność śmiertelnych nic bez Ciebie uczynić nie może, wspomóż nas łaską swoją, abyśmy, pełniąc przykazania Twoje, wolą i uczynkiem podobali się Tobie.  
 Przez Pana.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Sm 2:15-17*  
-15 Jeszcze niźli łój palono, przychodził sługa kapłański i mawiał ofiarującemu: Daj mi mięsa, że uwarzę kapłanowi; bo nie wezmę od ciebie mięsa warzonego, ale surowe.  
-16 I mówił mu ofiarujący: Niechaj pierwéj spalą łój według obyczaju dzisiaj, a weź sobie, cokolwiek pragnie dusza twoja: który odpowiadając mówił mu: Żadną miarą, teraz bowiem dasz, inaczej gwałtem wezmę.  
-17 I był grzech bardzo wielki onych sług przed Panem: iż odtrącali ludzie od ofiary Pańskiéj.  
-  
-
-
-### Lectio3  
-*1 Sm 2:18-21*  
-18 A Samuel posługował przed obliczem Pana, chłopiątko przepasane Ephod lnianym.  
-19 A matka jego czyniła mu małą sukienkę, którą przynosiła pewnych dni, gdy przychodziła z mężem swoim, aby ofiarowała ofiarę uroczystą.  
-20 I błogosławił Heli Elkanie i żonie jego i rzekł mu: Niech ci odda Pan nasienie z téj niewiasty, za pożyczek, któregoś użyczył Panu. I poszli na miejsce swoje.  
-21 Potem nawiedził Pan Annę, i poczęła i porodziła trzech synów i dwie córki: a Samuel chłopiątko wsławiło się u Pana.  
-  
 
 
 ### Kolekta  
@@ -13870,64 +8188,10 @@ R. Aby wino uweseliło serce człowiecze, alleluja.
   
 
 
-### Responsory1  
-R. Ofiaruje go wszystko zgromadzenie synów Izraelowych ku wieczorowi Paschy:  
-* I będą jeść mięso i przaśne chleby.  
-V. Pascha nasza ofiarowany jest Chrystus: a tak używajmy w przaśnikach szczerości i prawdy.  
-R. I będą jeść mięso i przaśne chleby.  
-  
-
-
-### Lectio2  
-*1 Kor 11:23-26*  
-23 Albowiem ja wziąłem od Pana, com téż wam podał: Iż Pan Jezus nocy, której był wydan, wziął chleb,  
-24 A dzięki uczyniwszy, łamał i rzekł: Bierzcie a jedzcie; to jest ciało moje, które za was będzie wydane: to czyńcie na moje pamiątkę.   
-25 Także i kielich po wieczerzy, mówiąc: Ten kielich nowy Testament jest we krwi mojéj. To czyńcie, ilekroć pić będziecie, na pamiątkę moję.  
-26 Albowiem ilekroć będziecie ten chleb jedli i kielich pili, śmierć Pańską będziecie opowiadać, aż przyjdzie.  
-  
-
-
-### Responsory2  
-R. Będziecie jeść mięso, a nasycicie się chlebem:  
-* To jest chleb, który dał wam Pan do jedzenia.  
-V. Nie Mojżesz wam dał chleb z nieba, ale Ojciec mój daje wam chleb z nieba prawdziwy.  
-R. To jest chleb, który dał wam Pan do jedzenia.  
-  
-
-
-### Lectio3  
-*1 Kor 11:27-32*  
-27 A tak, ktobykolwiek jadł ten chleb, albo pił kielich Pański niegodnie, będzie winien ciała i krwie Pańskiéj.   
-28 Niechaj że doświadczy samego siebie człowiek, a tak niech je z chleba tego i z kielicha pije.   
-29 Albowiem który je i pije niegodnie, sąd sobie je i pije, nie rozsądzając ciała Pańskiego.  
-30 Dlatego między wami wiele chorych i słabych, i wiele ich zasnęło.  
-31 Bo, byśmy się sami sądzili, nie bylibyśmy sądzeni.  
-32 Lecz gdy bywamy sądzeni, od Pana bywamy karani, abyśmy nie byli z tym światem potępieni.  
-  
-
-
-### Responsory3  
-R. Eliasz obejrzał się, a oto u głowy jego podpłomny chleb: który wstawszy jadł i pił:  
-* I chodził mocą onego jadła czterdzieści dni aż do góry Bożéj.  
-V. Jeźliby kto pożywał tego chleba, żyć będzie na wiek.  
-R. I chodził mocą onego jadła czterdzieści dni aż do góry Bożéj.  
-Chwała Ojcu.  
-R. I chodził mocą onego jadła czterdzieści dni aż do góry Bożéj.  
-  
-
-
 ### Lectio4  
 Kazanie świętego Tomasza z Akwinu  
 *Lectio iv. In Opusculo 57.*  
 Niezmierzone korzyści, którymi dobroć Boża obdarzyła lud chrześcijański, obdarzyły ich godnością ponad wszelką cenę. „Który naród ma tak dobrze, że jego bogowie są tak blisko, jak nasz Bóg nam?” Jednorodzony Syn Boży, chcąc nas uczynić uczestnikami swojego bóstwa, przyjął naszą naturę, aby stawszy się człowiekiem, ludzi uczynić bogami. Co więcej, to co od nas przyjął, w całości przeznaczył dla naszego zbawienia. Albowiem ciało swoje ofiarował Bogu Ojcu na ołtarzu krzyża, jako przebłaganie za nas. Krew swoją wylał jako cenę i jako obmycie, abyśmy wykupieni z nieszczęsnej niewoli, zostali oczyszczeni ze wszystkich grzechów. Aby zaś na zawsze trwała wśród nas pamięć o tak wielkim dobrodziejstwie, ciało swe jako posiłek, krew swoją jako napój, pod postacią chleba i wina nam zostawił.  
-  
-
-
-### Responsory4  
-R. Gdy oni wieczerzali, wziął Jezus chleb i błogosławił i łamał i dawał uczniom swoim i rzekł:  
-* Bierzcie i jedzcie, to jest ciało moje.   
-V. Mówili mężowie przybytku mego: Ktoby dał z mięsa jego, abyśmy się nasycili?  
-R. Bierzcie i jedzcie, to jest ciało moje.   
   
 
 
@@ -13936,26 +8200,8 @@ O cenna i wspaniała Uczto, zbawienna i pełna wszelkiej słodyczy! Cóż może 
   
 
 
-### Responsory5  
-R. Jezus wziął kielich po wieczerzy, mówiąc: Ten kielich nowy Testament jest we krwi mojéj:  
-* To czyńcie, na pamiątkę moję.  
-V. Pamięcią pomnieć będę, i uschnie we mnie dusza moja.  
-R. To czyńcie, na pamiątkę moję.  
-  
-
-
 ### Lectio6  
 Żaden inny sakrament nie jest tak zbawienny; on oczyszcza z grzechów, pomnaża cnoty, duszę nasyca obfitością duchowych darów. Ofiarowany w Kościele tak za żywych, jak i za zmarłych, aby był pożytkiem dla wszystkich, bo dla dobra wszystkich został ustanowiony. Słodyczy tego Sakramentu nie sposób wypowiedzieć. Słodyczy Sakramentu, w którym duchowa pociecha jest zasysana z samego źródła, i który jest przypomnieniem niezmierzonej miłości, jaką Chrystus pokazał w swojej męce. By głębiej wzruszyć serca wiernych, na ostatniej wieczerzy, gdy świętował Paschę z uczniami, gdy miał odejść do Ojca, ustanowił ten sakrament, jako wieczystą pamiątkę swej męki, wypełnienie dawnych figur, najcudowniejsze ze swoich dzieł, i jako szczególną pociechę dla smucących się z powodu Jego odejścia.  
-  
-
-
-### Responsory6  
-R. Jam jest chleb żywota: ojcowie wasi jedli mannę na puszczy, a pomarli:  
-* Ten jest chleb z nieba zstępujący, aby jeśliby go kto pożywał, nie umarł.  
-V. Jam jest chleb żywy, który z nieba zstąpił: jeśliby kto pożywał tego chleba, żyć będzie na wieki.  
-R. Ten jest chleb z nieba zstępujący, aby jeśliby go kto pożywał, nie umarł.  
-Chwała Ojcu.  
-R. Ten jest chleb z nieba zstępujący, aby jeśliby go kto pożywał, nie umarł.  
   
 
 
@@ -13970,26 +8216,8 @@ Jak ludzie przez pokarm i napój osiągają to, iż nie łakną ani pragną, tak
   
 
 
-### Responsory7  
-R. Kto pożywa moje Ciało i pije moją Krew,  
-* We Mnie mieszka, a Ja w nim.  
-V. Nie ma innego, równie wielkiego narodu, który by miał bogów tak bliskich sobie, jak bliski jest Bóg nasz.  
-R. We Mnie mieszka, a Ja w nim.  
-  
-
-
 ### Lectio8  
 Kto pożywa moje Ciało i pije moją Krew, we Mnie mieszka, a Ja w nim. Przeto spożywanie pokarmu i picie napoju oznacza pozostawać w Chrystusie i Tego, który pozostaje, mieć w sobie. Toteż kto nie pozostaje w Chrystusie i w którym Chrystus nie pozostaje, niewątpliwie nie pożywa duchowo Ciała Jego i nie pije Krwi Jego chociaż cieleśnie i widzialnie dotyka zębami Sakramentu Ciała i Krwi Chrystusa, lecz raczej tak doniosły Sakrament na potępienie sobie spożywa i pije bo odważa się, będąc nieczystym, przystąpić do Sakramentów Chrystusa, które niegodnie przyjmuje, jeśli nie jest czysty. O takich powiedziano: Błogosławieni czystego serca, albowiem oni Boga oglądać będą.  
-  
-
-
-### Responsory8  
-R. Posłał Mię żyjący Ojciec i Ja żyję dla Ojca,  
-* A kto pożywa Mnie, i on żyć będzie dla Mnie.  
-V. Pan go nakarmił chlebem życia i mądrości.  
-R. A kto pożywa Mnie, i on żyć będzie dla Mnie.  
-Chwała Ojcu.  
-R. A kto pożywa Mnie, i on żyć będzie dla Mnie.  
   
 
 
@@ -14151,29 +8379,12 @@ R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z I
   
 
 
-### Lectio2  
-*1 Sm 2:30-33*  
-30 Przetóż mówi Pan, Bóg Izraelów: Mówiąc rzekłem, żeby dom twój i dom ojca twego służył przed oczyma mojemi aż na wieki. Ale teraz mówi Pan: Niech to daleko będzie odemnie, ale ktokolwiek mię wielbić będzie, wielbić go będę: a którzy mną gardzą, bezecni będą.  
-31 Oto dni przychodzą, i odetnę ramię twoje, i ramię domu ojca twego, iż nie będzie starca w domu twoim.  
-32 A będziesz patrzyć na przeciwnika twego w kościele, we wszem szczęściu Izraelowem: i nie będzie starca w domu twoim po wszystkie dni.  
-33 Wszakże nie wykorzenię do końca męża z ciebie od ołtarza mego: ale aby ustały oczy twoje, i schła dusza twoja: a wielka część domu twego zemrze, gdy do lat męzkich przyjdzie.  
-  
-
-
 ### Responsory2 1960  
 R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
 * Gdzie polegli mocarze Izraela.  
 V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
 R. Gdzie polegli mocarze Izraela.  
   
-  
-
-
-### Lectio3  
-*1 Sm 2:34-36*  
-34 A toć będzie na znak, co przyjdzie na dwu synów twoich, Ophni i Phinees: dnia jednego obadwaj umrą.  
-35 I wzbudzę sobie kapłana wiernego, który według serca mego i wedle dusze mojéj czynić będzie: i zbuduję mu dom wierny, i będzie chodził przed pomazańcem moim po wszystkie dni.  
-36 A przyjdzie do tego, że, ktokolwiek pozostanie w domu twym, przyjdzie, aby się zań modlono, a żeby ofiarował pieniądz śrebrny i bochenek chleba, i rzekł: Przypuść mię, proszę, do jednéj części kapłańskiéj, abych jadł sztukę chleba.  
   
 
 
@@ -14195,6 +8406,8 @@ Przez Pana.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
+KeyError, 
+('Responsory1',)
 
 
 ### Capitulum Vespera  
@@ -14281,24 +8494,6 @@ Który żyjesz.
   
 
 
-### Lectio2  
-*1 Sm 4:4-6*  
-4 Posłał tedy lud do Sylo, i wzięli ztamtąd skrzynię przymierza Pana zastępów, siedzącego na Cherubiniech: a byli dwaj synowie Heli z skrzynią przymierza Bożego, Ophni i Phinees.  
-5 A gdy przyszła skrzynia przymierza Pańskiego do obozu, krzyczał wszystek Izrael głosem wielkim, i rozlegało się po ziemi.  
-6 I usłyszeli Philistynowie głos wołania, i rzekli: Co to za głos krzyku wielkiego w obozie Hebrejskim? i dowiedzieli się, że skrzynia Pańska przyszła do obozu.  
-  
-
-
-### Lectio3  
-*1 Sm 4:7-11*  
-7 I zlękli się Philistynowie, rzekąc: Przyszedł Bóg do obozu: i wzdychali, mówiąc:  
-8 Biadaż nam; bo nie była taka radość wczora i dziś trzeci dzień. Biada nam! Kto nas wybawi z ręki tych bogów wysokich? ci są bogowie, którzy porazili Egipt wszelką plagą na puszczy.  
-9 Umacniajcie się, a bądźcie mężami, Philistynowie! abyście nie służyli Hebrejczykom, jako i oni wam służyli. Umacniajcie się, a bijcie się.  
-10 Zwiedli tedy bitwę Philistynowie, i porażon Izrael, i uciekł każdy do namiotu swego: i była porażka bardzo wielka, i poległo z Izraela trzydzieści tysięcy pieszych.  
-11 I skrzynię Bożą wzięto, i dwaj synowie Heli umarli, Ophni i Phinees.  
-  
-
-
 ### Lectio7  
 Czytanie Ewangelii świętej według Łukasza  
 *Łk 14:16-24*  
@@ -14307,16 +8502,6 @@ Onego czasu: Powiedział Jezus faryzeuszom tę przypowieść: „Człowiek pewie
 Homilia świętego Grzegorza, Papieża  
 *Homilia 36. na Ewangelię*  
 Ta jest, najdrożsi bracia, różnica między przyjemnościami ciała i ducha, iż bardzo się pożąda cielesnych przyjemności, gdy się ich nie ma; a gdy się ich chciwie używa, wnet sprawiają niesmak z powodu przesytu. A przeciwnie: duchowe przyjemności sprawiają niesmak, póki się ich nie ma; pragnie się zaś ich, gdy się je posiada; spożywający o tyle bardziej ich pragnie, o ile więcej ich używa. Co do pierwszych, to podobają się, póki się ich pragnie. Stają się zaś niemiłe, gdy się ich zaznaje. Co się zaś drugich tyczy, to słabo się ich pragnie, póki z doświadczenia się nie pozna, jak bardzo one są miłe. Pożądanie pierwszych rodzi nasycenie, a nasycenie wywołuje niesmak; w drugich zaś za pożądaniem idzie nasycenie, a to sprawia, iż się jeszcze bardziej pragnie nasycenia.  
-  
-
-
-### Responsory8  
-R. Człowiek niektóry sprawił wieczerzę wielką i posłał sługę swego w godzinę wieczerzy, aby powiedział zaproszonym żeby przyszli:  
-* Boć już wszystko gotowe.  
-V. Pójdźcie, pożywajcie chleba mego i pijcie wino, którem wam roztworzyła.  
-R. Boć już wszystko gotowe.  
-Chwała Ojcu.  
-R. Boć już wszystko gotowe.  
   
 
 
@@ -14456,10 +8641,16 @@ Który żyjesz.
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
+KeyError, 
+('Responsory1',)
 
  Błąd importu.
+KeyError, 
+('Responsory1',)
 
  Błąd importu.
+KeyError, 
+('Responsory1',)
 
 
 ### Responsory1 1960  
@@ -14468,14 +8659,6 @@ R. Przygotujcie serca wasze Panu, a służcie jemu samemu:
 V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
 R. I uwolni was z rąk nieprzyjaciół waszych.  
   
-  
-
-
-### Lectio2  
-*1 Sm 8:7-9*  
-7 I rzekł Pan do Samuela: Słuchaj głosu ludu we wszystkiem, o coć mówią; boć nie ciebie odrzucili, ale mnie, żebych nie królował nad nimi.  
-8 Według wszystkich uczynków swych, które czynili ode dnia, któregom je wywiódł z Egiptu, aż do dnia tego: jako mnie opuszczali, i służyli bogom cudzym, takżeć i tobie czynią.  
-9 Teraz tedy słuchaj głosu ich, a wszakże oświadcz się przed nimi, a opowiedz im prawo króla, który ma królować nad nimi.  
   
 
 
@@ -14488,16 +8671,6 @@ R. I namaścił mnie olejem miłosierdzia swego.
   
 
 
-### Lectio3  
-*1 Sm 8:10-14*  
-10 Rzekł tedy Samuel wszystkie słowa Pańskie do ludu, który był prosił króla u niego,  
-11 I rzekł: To będzie prawo króla, który ma panować nad wami: Syny wasze brać będzie, i postawi je na woziech swych, i uczyni sobie jezdne, i którzy mają biegać przed poczwórnemi jego,  
-12 I poczyni sobie tysiączniki setniki, i oracze ról swoich, i żeńce zboża, i rzemieślniki zbroi i wozów swoich.  
-13 Córki téż wasze uczyni sobie aptekarki i kucharki i piekarki.  
-14 Pola téż wasze i winnice i oliwnice co najlepsze weźmie, i rozda sługom swoim.  
-  
-
-
 ### Responsory3 1960  
 R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
 * Ten wyrwie mnie z rąk nieprzyjaciół moich.  
@@ -14507,53 +8680,6 @@ Chwała Ojcu.
 R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
-  
-
-
-### Lectio2  
-*1 Sm 8:7-9*  
-7 I rzekł Pan do Samuela: Słuchaj głosu ludu we wszystkiem, o coć mówią; boć nie ciebie odrzucili, ale mnie, żebych nie królował nad nimi.  
-8 Według wszystkich uczynków swych, które czynili ode dnia, któregom je wywiódł z Egiptu, aż do dnia tego: jako mnie opuszczali, i służyli bogom cudzym, takżeć i tobie czynią.  
-9 Teraz tedy słuchaj głosu ich, a wszakże oświadcz się przed nimi, a opowiedz im prawo króla, który ma królować nad nimi.  
-  
-
-
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
-  
-  
-
-
-### Lectio3  
-*1 Sm 8:10-14*  
-10 Rzekł tedy Samuel wszystkie słowa Pańskie do ludu, który był prosił króla u niego,  
-11 I rzekł: To będzie prawo króla, który ma panować nad wami: Syny wasze brać będzie, i postawi je na woziech swych, i uczyni sobie jezdne, i którzy mają biegać przed poczwórnemi jego,  
-12 I poczyni sobie tysiączniki setniki, i oracze ról swoich, i żeńce zboża, i rzemieślniki zbroi i wozów swoich.  
-13 Córki téż wasze uczyni sobie aptekarki i kucharki i piekarki.  
-14 Pola téż wasze i winnice i oliwnice co najlepsze weźmie, i rozda sługom swoim.  
-  
-
-
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
@@ -14682,65 +8808,9 @@ R. Dał pokarm tym, którzy się go boją.
   
 
 
-### Responsory1  
-R. Postanowię téż z nimi przymierze wieczne i nie przestanę im dobrze czynić: i bojaźń moję dam do serca ich.  
-* Aby nie odstępowali odemnie.  
-V. I będę się weselił nad nimi, gdy im dobrze uczynię, w wszystkiem sercem mojem.  
-R. Aby nie odstępowali odemnie.  
-  
-
-
-### Lectio2  
-*Jr 30:18-19; 30:21-24*  
-18 To mówi Pan: Oto Ja przywrócę zaprowadzenie namiotów Jakóbowych, i zmiłuję się nad dachy jego i zbuduje się miasto na wysokości swojéj, i kościół według porządku swego założon będzie.  
-19 I wynidzie z nich chwała i głos igrających: i rozmnożę je, i nie ubędzie ich, i uwielbię je, i nie zdrobnieją.  
-21 I będzie wódz jego z niego, a książę z pośrodku jego wywiedzion będzie, i przytulę go, i przystąpi do mnie. Bo któż to jest, któryby przytulił serce swe, aby się przybliżył ku mnie? mówi Pan.  
-22 I będziecie mi ludem, a Ja wam będę Bogiem.  
-23 Oto wicher Pański, zapalczywość wychodząca, burza spadająca na głowie niezbożnych odpocznie.  
-24 Nie odwróci Pan gniewu zapalczywości, aż uczyni, i nie wypełni myśl serca swego: na ostatku dni wyrozumiecie to.  
-  
-
-
-### Responsory2  
-R. By mi był złorzeczył nieprzyjaciel mój, wżdybych był wytrwał:  
-* Ale ty, człowiecze jednomyślny, któryś pospołu zemną jadał pokarmy.  
-V. I by był ten, który mię nienawidział, przeciwko mnie wielkie rzeczy mówił: snadźbych się był skrył przed nim.  
-R. Ale ty, człowiecze jednomyślny, któryś pospołu zemną jadał pokarmy.  
-  
-
-
-### Lectio3  
-*Jr 31:1-3; 1:31-33*  
-1 Czasu onego, mówi Pan, będę Bogiem wszystkim rodzajom Izraeolwym, a oni będą mi ludem.  
-2 To mówi Pan: Nalazł łaskę na puszczy lud, który został po mieczu, pójdzie na swój pokój Izrael.  
-3 Z daleka Pan mi się okazał. A miłością wieczną umiłowałem cię, dlatego przyciągnąłem litując się.  
-31 Oto dni przychodzą, mówi Pan, i postanowię z domem Izraelskim i z domem Judzkim przymierze nowe:  
-32 Nie według przymierza, którem z ojcy ich postanowił w dzień, któregom ujął rękę ich, abych je wywiódł z ziemie Egipskiéj: przymierze, które zgwałcili, a Jam panował nad nimi, mówi Pan.  
-33 Ale to będzie przymierze, które postanowię z domem Izraelowym, po onych dniach, mówi Pan: Dam zakon mój do wnętrzności ich, a na sercu ich napiszę go: i będę im Bogiem, a oni będą mi ludem.  
-  
-
-
-### Responsory3  
-R. I gdyśmy byli umarłymi przez grzechy, ożywił nas społem Bóg w Chrystusie.  
-* Dla zbytniéj miłości swojéj, którą nas umiłował.  
-V. Aby okazał w nadchodzących wiekach obfite bogactwa łaski swojéj.  
-R. Dla zbytniéj miłości swojéj, którą nas umiłował.  
-Chwała Ojcu.  
-R. Dla zbytniéj miłości swojéj, którą nas umiłował.  
-  
-
-
 ### Lectio4  
 *Z listu encyklikalnego papieża Piusa XI*  
 Wśród wielu cudownych odkryć świętego nauczania i pobożności, przez które plany Bożej Mądrości są codziennie objaśniane Kościołowi, mało które rzuca się w oczy tak, jak niesamowity postęp poczyniony przez nabożeństwo do Najświętszego Serca Pana Jezusa. Bardzo często, zaiste, w ciągu ostatnich stuleci, Ojcowie, Doktorzy i święci czcili miłość naszego Odkupiciela: mówili, że rana otwarta w boku Chrystusa jest ukrytą fontanną wszelkich łask. Ponadto, począwszy od średniowiecza, kiedy wierni zaczęli okazywać czulszą pobożność dla świętego Człowieczeństwa Zbawiciela, dusze kontemplacyjne zaczęły mieć w zwyczaju przenikanie przez tę ranę niemalże do samego Serca, zranionego z miłości do ludzi. Od tego czasu ta forma kontemplacji stała się tak bliska wszystkim osobom wiodącym pobożne życie, że nie było zakątka ani zakonu, w którym, w tym okresie, nie znaleziono by dających o niej świadectwo. Wreszcie, w ostatnich wiekach, najszczególniej w tym okresie, gdy heretycy, w imię fałszywej pobożności, starali się odwieść Chrześcijan od przyjmowania Najświętszej Eucharystii, cześć dla Najświętszego Serca zaczęła być praktykowana publicznie, początkowo dzięki wysiłkom św. Jana Eudesa, który nie bez słuszności nazywany jest założycielem liturgicznego kultu Najświętszych Serc Jezusa i Maryi.  
-  
-
-
-### Responsory4  
-R. Blisko jest Pan wszystkim, którzy go wzywają:  
-* Wszystkim, którzy go wzywają w prawdzie.  
-V. Litościwy i miłościwy, Pan, cierpliwy i wielce miłosierny.  
-R. Wszystkim, którzy go wzywają w prawdzie.  
   
 
 
@@ -14749,26 +8819,8 @@ W celu ustanowienia w pełni i w całości kultu Najświętszego Serca Pana Jezu
   
 
 
-### Responsory5  
-R. Wyznawam tobie, Ojcze, Panie nieba i ziemie, iżeś to zakrył od mądrych i rozumnych.  
-* A objawiłeś to malutkim.  
-V. Tak, Ojcze, iż się tak upodobało przed tobą.  
-R. A objawiłeś to malutkim.  
-  
-
-
 ### Lectio6  
 Wreszcie, w roku 1765, Najwyższy Pasterz Klemens XIII zaaprobował Mszę i Oficjum ku czci najświętszego Serca Jezusa, a Pius IX rozszerzył je na cały Kościół. Odtąd kult Najświętszego Serca, jak przepełniająca się rzeka zmywająca wszystkie przeszkody, rozlał się po całej ziemi, i o brzasku nowego stulecia, Leon XIII, ogłaszając jubileusz, zdecydował poświęcić całą ludzkość Świętemu Sercu. To poświęcenie została uczyniona poprzez wiele uroczystych obrzędów, we wszystkich kościołach Katolickiego świata, i spowodowało ogromny wzrost tego nabożeństwa, prowadząc do niego nie tylko narody, ale i pojedyncze rodziny, w których niezliczone rzesze poświęcały się boskiemu Sercu, oddając się pod Jego królewską władzę. W końcu, by uroczystość ta, przez swoją wzniosłość, odpowiadała pełniej powszechnej pobożności Chrześcijan, Najwyższy Pasterz Pius XI podniósł rangę Najświętszego Serca Jezusa do rangi rytu zdwojonego pierwszej klasy z oktawą, a ponadto, ażeby naprawić krzywdy spowodowane pogwałceniem praw Chrystusa, najwyższego Króla i najbardziej miłującego Pana, i celem opłakania grzechów narodów, zarządził, by corocznie, w dniu tejże uroczystości, recytowano modlitwy ekspiacyjne we wszystkich kościołach chrześcijańskiego świata.  
-  
-
-
-### Responsory6  
-R. Wszyscy narodowie, któreśkolwiek stworzył, przyjdą.  
-* A pokłonią się przed tobą, Panie.  
-V. I będą sławić imię twoje, albowiemeś ty wielki i czyniący cuda.  
-R. A pokłonią się przed tobą, Panie.  
-Chwała Ojcu.  
-R. A pokłonią się przed tobą, Panie.  
   
 
 
@@ -14783,27 +8835,9 @@ Aby z boku spoczywającego na Krzyżu Chrystusa mógł się zrodzić Kościół,
   
 
 
-### Responsory7  
-R. Ja, gdy nad ziemię podwyższony będę,  
-* Wszystko do siebie przyciągnę.  
-V. A mówił to, oznajmując, jaką śmiercią miał umrzeć.  
-R. Wszystko do siebie przyciągnę.  
-  
-
-
 ### Lectio8  
 *Mistyczny krzew winny, rozdz. 3.*  
 Skoro już raz przyszliśmy do Serca najsłodszego Pana Jezusa i dobrze nam tu być, nie odchodźmy zbyt łatwo od Niego. O jak dobrze i miło mieszkać w tym Sercu. O najlepszy Jezu! Serce twoje, jest cennym skarbem, perłą kosztowną, którą znaleźliśmy, przekopawszy pole Twego Ciała. Któż odrzuciłby tę perłę? Czyż raczej nie oddam wszystkich innych pereł i za cenę wszystkich moich myśli i uczuć nie nabędę dla siebie owej jedynej, zrzucając wszelką moją troskę na Serce dobrego Jezusa, a ono na pewno mnie podtrzyma. Tak więc Twoim i moim, odnalezionym sercem, o najsłodszy Jezu, będę się modlił do Ciebie, mojego Boga. Przyjmij moje modlitwy w świątyni wysłuchania, co więcej – przygarnij mnie do Twojego Serca.  
-  
-
-
-### Responsory8  
-R. Bądźmyż tedy naśladowcami Bożymi.  
-* I postępujmy w miłości.  
-V. Jako i Chrystus umiłował nas i wydał samego siebie za nas.  
-R. I postępujmy w miłości.  
-Chwała Ojcu.  
-R. I postępujmy w miłości.  
   
 
 
@@ -15004,14 +9038,62 @@ R. Ze źródeł Zbawicielowych.
 Obrońco nadzieję w Tobie pokładających, Boże, bez którego niema nic stałego ani świętego: pomnóż miłosierdzie Twoje nad nami, abyśmy pod rządami i przewodnictwem Twojem tak przeszli przez dobra doczesne, by nie utracić wiecznych.  
 Przez Pana.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Lectio4  
+Z pism Papieża Piusa XI  
+*Encyklika Miserentíssimus Redémptor*  
+Z pośród wielu innych dowodów bezbrzeżnej dobroci Naszego Odkupiciela najpotężniej jaśnieje ten, że w miarę wygasania miłości wśród wiernych Chrystusowi wyniesiono sama miłość Boga na wyżynę specjalnego kultu, a skarby tej dobroci na oścież otwarto dzięki tej formie czci, którą się okazuje Najświętszemu Sercu Jezusa, „w którym się mieszczą wszystkie skarby mądrości i wiedzy” (Kol 2, 3). Albowiem, jak niegdyś rodowi ludzkiemu, wychodzącemu z arki Noego, Pan Bóg raczył na znak przymierza przyjaźni rozjaśnić „tęczę, ukazującą się nad chmurami” (Rdz 2, 14), tak i w najburzliwszych chwilach ostatnich czasów, kiedy rozszalała się jedna z najsroższych ze wszystkich herezji, jansenizm, godząca w miłość i cześć Boga, który przedstawiał Boga nie jako Ojca godnego miłości, ale jako srogiego i nieubłaganego Sędziego - Najłaskawszy Jezus ukazał ludom Swe Najświętsze Serce jako znak pokoju i miłości, zwiastujący pewne zwycięstwo w walce.  
+  
+
+
+### Lectio5  
+Dlatego to Nasz Poprzednik w urzędzie, Leon XIII, podziwiając te wielkie dobrodziejstwa, płynące ze czci Najświętszego Serca Jezusa, nie zawahał się wypowiedzieć w Encyklice „Annum Sacrum”: „Ody Kościół w pierwszych latach swego powstania .uginał się pod jarzmem cezaryzmu, krzyż, który ukazał się w powietrzu młodemu cesarzowi, był zapowiedzią i przyczyną zarazem pełnego zwycięstwa, które wnet nastąpiło. I oto dzisiaj ukazuje się oczom naszym inny, jak najlepiej wróżący i najświętszy znak: mianowicie Najświętsze Serce Jezusa, widniejące pod znakiem krzyża i jaśniejące najwspanialszą jasnością wśród płomieni. W Nim pokładać należy wszelką nadzieję, w Nim należy szukać i od Niego oczekiwać zbawienia ludzi”.  
+  
+
+
+### Lectio6  
+I to całkiem słusznie, Czcigodni Bracia, bo czyż w tym, jak najlepiej wróżącym znaku i w tej, z niego wypływającej formie czci nie jest zawarta istota całej religii i o tyle doskonalsza norma życia, ile że tym prędzej doprowadza ona dusze do tym głębszego poznania Chrystusa Pana i o wiele skuteczniej skłania je do tym głębszego ukochania Go i naśladowania? Nic więc dziwnego w tym, że poprzednicy Nasi nie ustawali w obronie tej najdoskonalszej formy nabożeństwa przed aktami oszczerców, w wysławianiu najżywszym i najgorętszym jej rozpowszechnianiu w miarę, jak tego czasy i okoliczności wymagały. Za przyczynieniem się i wolą Boga stało się, że z dnia na dzień coraz bardziej wzrastała wśród wiernych chęć uczczenia Najświętszego Serca Jezusowego.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
+KeyError, 
+(None,)
 
- Błąd importu.
 
- Błąd importu.
+### Ant 1  
+@Tempora/Pent03-0  
+  
 
- Błąd importu.
+
+### Kolekta  
+Obrońco nadzieję w Tobie pokładających, Boże, bez którego niema nic stałego ani świętego: pomnóż miłosierdzie Twoje nad nami, abyśmy pod rządami i przewodnictwem Twojem tak przeszli przez dobra doczesne, by nie utracić wiecznych.  
+Przez Pana.  
+  
+Przez Pana.  
+  
+
+
+### Lectio7  
+Czytanie Ewangelii świętej według Łukasza  
+*Łk 15:1-10*  
+Onego czasu: Zbliżali się do Jezusa celnicy i grzesznicy, aby Go słuchać. I tak dalej.  
+  
+Homilia świętego Grzegorza, Papieża  
+*Homilia 34. na Ewangelię, w 1. połowie*  
+Słyszeliście, bracia moi, w czytanej Ewangelii, iż grzesznicy i celnicy przystąpili do naszego Odkupiciela i że On z nimi nie tylko rozmawiał, ale i jadł z nimi. Widząc to, faryzeusze się oburzyli. Z tego wnioskujcie, iż prawdziwą sprawiedliwość cechuje litość, fałszywą zaś sprawiedliwość – oburzenie. Chociaż i sprawiedliwi słusznie zwykli gniewać się na grzeszników. Co innego jednak, jeśli się to dzieje pod wpływem pychy, a co innego z troski o karność.  
+  
+
+
+### Ant 2  
+@Tempora/Pent03-0  
+  
+
+
+### Ant 3  
+@Tempora/Pent03-0  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Capitulum Vespera  
@@ -15036,23 +9118,6 @@ R. Dał pokarm tym, którzy się go boją.
 Obrońco nadzieję w Tobie pokładających, Boże, bez którego niema nic stałego ani świętego: pomnóż miłosierdzie Twoje nad nami, abyśmy pod rządami i przewodnictwem Twojem tak przeszli przez dobra doczesne, by nie utracić wiecznych.  
 Przez Pana.  
   
-  
-
-
-### Lectio2  
-*1 Sm 9:22-25*  
-22 Wziąwszy tedy Samuel Saula i sługę jego, wwiódł je na salę, i dał im miejsce na przodku tych, którzy byli wezwani; bo ich było o trzydzieści mężów.  
-23 I rzekł Samuel kucharzowi: Daj sztukę, którąm ci dał i rozkazał, żebyś odłożył osobno u siebie.  
-24 I podniósł kucharz łopatkę i położył przed Saulem. I rzekł Samuel: Oto, co zostało, weźmij przed się, a jedz; bo umyślnie dla ciebie schowano, kiedym wezwał ludu. I jadł Saul z Samuelem dnia onego.  
-25 I zeszli z wyżyny do miasta, i mówił z Saulem na sali: i posłał Saulowi na sali, i spał.  
-  
-
-
-### Lectio3  
-*1 Sm 9:26-27; 10:1*  
-26 A gdy rano wstali, i już dniało, wezwał Samuel Saula na sali, mówiąc: Wstań, i odprawię cię: i wstał Saul, i wyszli obaj, to jest on i Samuel.  
-27 A gdy schodzili na końcu miasta, Samuel rzekł do Saula: Rzecz słudze, że pójdzie przed nami, i minie: a ty pozostań trochę, żeć opowiem słowo Pańskie.  
-1 I wziął Samuel bańkę oliwy i wylał na głowę jego i pocałował go i rzekł: Oto cię Pan pomazał za książę nad dziedzictwem jego, i wyzwolisz lud jego z rąk nieprzyjaciół jego, którzy są około niego.  
   
 
 
@@ -15143,1061 +9208,362 @@ Boże, który nam najmiłosierniej nieskończone skarby miłości w Sercu Syna s
 Przez tegoż Pana.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Sm 10:21-24*  
-21 Szukali go tedy, i nie naleziono go.  
-22 I radzili się potem Pana, jeźli miał tam przyjść. A Pan odpowiedział: Oto się skrył doma.  
-23 Bieżeli tedy i wzięli go ztamtąd: i stanął w pośrodku ludu, i był wyższy nad wszystek lud od ramion i wyżéj.  
-24 I rzekł Samuel do wszystkiego ludu: Zaiste widzicie, kogo Pan obrał, że mu niemasz podobnego między wszystkim ludem. I zawołał wszystek lud, i rzekł: Niech żywie król!  
-  
-
-
-### Lectio3  
-*1 Sm 10:25-27*  
-25 I opowiedział Samuel przed ludem prawo królewskie i spisał na księgach i położył przed Panem. I rozpuścił Samuel wszystek lud, każdego do domu jego.  
-26 Lecz i Saul odszedł do domu swego do Gabaa: i szła z nim część wojska, których Bóg ruszył serca.  
-27 Ale synowie Belial mówili: Izali nas ten wybawić może? i wzgardzili nim, a nie przynieśli mu darów. Ale on czynił, jakoby nie słyszał.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Sm 10:20-24*  
-20 I przywiódł Samuel wszystkie pokolenia Izrael, i padł los pokolenia Benjamin.  
-21 I przywiódł pokolenie Benjamin i rody jego, i padł ród Metryego, i przyszedł do Saula, syna Cys: szukali go tedy, i nie naleziono go.  
-22 I radzili się potem Pana, jeźli miał tam przyjść. A Pan odpowiedział: Oto się skrył doma.  
-23 Bieżeli tedy i wzięli go ztamtąd: i stanął w pośrodku ludu, i był wyższy nad wszystek lud od ramion i wyżéj.  
-24 I rzekł Samuel do wszystkiego ludu: Zaiste widzicie, kogo Pan obrał, że mu niemasz podobnego między wszystkim ludem. I zawołał wszystek lud, i rzekł: Niech żywie król!  
-  
-
-
-### Lectio3  
-*1 Sm 10:25-27*  
-25 I opowiedział Samuel przed ludem prawo królewskie i spisał na księgach i położył przed Panem. I rozpuścił Samuel wszystek lud, każdego do domu jego.  
-26 Lecz i Saul odszedł do domu swego do Gabaa: i szła z nim część wojska, których Bóg ruszył serca.  
-27 Ale synowie Belial mówili: Izali nas ten wybawić może? i wzgardzili nim, a nie przynieśli mu darów. Ale on czynił, jakoby nie słyszał.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Sm 10:20-24*  
-20 I przywiódł Samuel wszystkie pokolenia Izrael, i padł los pokolenia Benjamin.  
-21 I przywiódł pokolenie Benjamin i rody jego, i padł ród Metryego, i przyszedł do Saula, syna Cys: szukali go tedy, i nie naleziono go.  
-22 I radzili się potem Pana, jeźli miał tam przyjść. A Pan odpowiedział: Oto się skrył doma.  
-23 Bieżeli tedy i wzięli go ztamtąd: i stanął w pośrodku ludu, i był wyższy nad wszystek lud od ramion i wyżéj.  
-24 I rzekł Samuel do wszystkiego ludu: Zaiste widzicie, kogo Pan obrał, że mu niemasz podobnego między wszystkim ludem. I zawołał wszystek lud, i rzekł: Niech żywie król!  
-  
-
-
-### Lectio3  
-*1 Sm 10:25-27*  
-25 I opowiedział Samuel przed ludem prawo królewskie i spisał na księgach i położył przed Panem. I rozpuścił Samuel wszystek lud, każdego do domu jego.  
-26 Lecz i Saul odszedł do domu swego do Gabaa: i szła z nim część wojska, których Bóg ruszył serca.  
-27 Ale synowie Belial mówili: Izali nas ten wybawić może? i wzgardzili nim, a nie przynieśli mu darów. Ale on czynił, jakoby nie słyszał.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
-
-### Lectio2  
-@Tempora/Pent03-2  
-  
-
-
-### Lectio3  
-@Tempora/Pent03-2  
+KeyError, 
+(None,)
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Sm 12:6-9*  
-6 I rzekł Samuel do ludu: Pan, który uczynił Mojżesza i Aarona, i wywiódł ojce nasze z ziemie Egipskiéj.  
-7 Teraz tedy stójcie, że się rozpierać będę sądem przeciw wam przed Panem, o wszystkie miłosierdzia Pańskie, które uczynił z wami i z ojcy waszymi.  
-8 Jako Jakób wszedł do Egiptu, i wołali ojcowie wasi do Pana, i posłał Pan Mojżesza i Aarona i wywiódł ojce wasze z Egiptu, i posadził je na tem miejscu,   
-9 Którzy zapomnieli Pana, Boga swego, i dał je w rękę Sysary, hetmana wojska Hasor, i w rękę Philistynów i w rękę króla Moab, i walczyli przeciw nim.   
-  
-
-
-### Lectio3  
-*1 Sm 12:10-14*  
-10 Potem wołali do Pana i mówili: Zgrzeszyliśmy, żeśmy opuścili Pana, a służyliśmy Baalim i Astaroth: teraz tedy wyrwij nas z ręki nieprzyjaciół naszych, a będziemyć służyć.  
-11 I posłał Pan Jerobaala i Badana i Jephtego i Samuela, i wyrwał was z ręki nieprzyjaciół waszych po okolicy, i mieszkaliście przespiecznie.   
-12 A ujrzawszy, że Naas, król synów Ammonowych przyszedł na was, rzekliście mi: Żadnym sposobem; ale król będzie nam rozkazował, gdyż Pan, Bóg wasz, królował nad wami.  
-13 Teraz tedy oto jest król wasz, któregoście obrali i żądali: oto wam dał Pan króla.  
-14 Jeźli się będziecie bać Pana a służyć mu i słuchać głosu jego, a nie rozdraźnicie ust Pańskich: będziecie i wy i król, który wam rozkazuje, chodzący za Panem, Bogiem waszym.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
-
-### Lectio2  
-*1 Sm 13:5-8*  
-5 Philistynowie téż zgromadzili się, aby walczyli na Izraela, trzydzieści tysięcy wozów, i sześć tysięcy jezdnych, a ostatek ludu pospolitego tak wiele jako piasku, który jest na brzegu morskim bardzo wielki: i wyciągnąwszy położyli się obozem w Machmas na wschód Bethawen.  
-6 Co ujrzawszy mężowie Izraelscy, że w cieśniéj byli; (bo był lud utrapiony), pokryli się w jaskiniach, i w skrytych miejscach, i w skałach téż i w jamach i w studniach.  
-7 A Hebreowie przeszli za Jordan do ziemie Gad i Galaad. A gdy jeszcze Saul był w Galgala, przelękł się wszystek lud, który szedł za nim.  
-8 I czekał siedm dni według woléj Samuelowéj: lecz Samuel nie przyszedł do Galgalu, i rozbieżał się lud od niego.  
-  
-
-
-### Lectio3  
-*1 Sm 13:9-14*  
-9 Rzekł tedy Saul: Przynieście mi całopalenie i zapokojne. I ofiarował całopalenie.  
-10 A gdy skończył ofiarować całopalenie, oto Samuel przychodził: i wyszedł Saul przeciwko jemu, aby go przywitał.  
-11 I rzekł do niego Samuel: Coś uczynił? Odpowiedział Saul: Bom widział, iż się lud rozchodził odemnie, a tyś nie przyszedł wedle dni namówionych, a Philistynowie zgromadzili się byli w Machmas:  
-12 Rzekłem: Teraz zjadą Philistynowie do mnie do Galgala, a nie ubłagałem oblicza Pańskiego: portzebą przyciśniony, ofiarowałem całopalenie.  
-13 I rzekł Samuel do Saula: Głupieś uczynił, aniś strzegł przykazania Pana, Boga twego, któreć przykazał: czego byś był nie uczynił, teraz by już był Pan nagotował królestwo twoje nad Izraelem na wieki.  
-14 Ale żadną miarą królestwo twoje więcéj nie powstanie: szukał sobie Pan męża według serca swego, i rozkazał mu Pan, aby był książęciem nad ludem jego, przeto żeś nie zachował, coć Pan rozkazał.  
+KeyError, 
+(None,)
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
-  
-
-
-### Lectio2  
-@Tempora/Pent03-4  
-  
-
-
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
-  
-  
-
-
-### Lectio3  
-@Tempora/Pent03-4  
-  
-
-
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-  
-  
-<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Sm 14:12-15*  
-12 I mówili mężowie z onéj straży do Jonathy i do giermka jego i rzekli: Wstąpcie do nas, a ukażemy wam coś. I rzekł Jonathas do giermka swego: Wstąpmy, pójdź za mną; bo je Pan dał w ręce Izraelowi.  
-13 A tak wstępował Jonathas pnąc się na rękach i na nogach, i giermek jego za nim: tedy jedni  padali przed Jonathą, a drugich giermek jego zabijał idąc za nim.  
-14 A była pierwsza porażka, którą poraził Jonathas i giermek jego, około dwudziestu mężów na połowicy staja, które zwykło para wołów na dzień zorać.  
-15 I stał się dziw w obozie po polach: ale i wszystek lud strażéj ich, którzy byli wyjechali dla łupu, zdumiał się: i strwożyła się ziemia, i stał się jako dziw od Boga.  
-  
-
-
-### Lectio3  
-*1 Sm 14:16-20*  
-16 I wyjrzeli stróżowie Saulowi, którzy byli w Gabaa Benjamin, a ono moc porażonych, i tam i sam uciekających.  
-17 I rzekł Saul do ludu, który był z nim: Poszukajcie a obaczcie, ktoli z nas odszedł. A gdy się dowiadowali, naleziono, że niemasz Jonathy i giermka jego.  
-18 I rzekł Saul do Achias: Przystaw skrzynię Bożą; (bo tam była skrzynia Boża w on dzień z synmi Izraelowymi.)  
-19 A gdy Saul mówił do kapłana, trwoga wielka wszczęła się w obozie Philistyńskim, i pomału się wzmagała, i głośniej sie rozlegała. I rzekł Saul do kapłana: Wściągnij ręki twojéj.  
-20 Zawołał tedy Saul i wszystek lud, który był z nim, i przyszli aż na miejsce bitwy, ano każdego miecz był obrócon na towarzysza jego, a porażka bardzo wielka.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
-
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
-  
-
-
-### Lectio2  
-@Tempora/Pent03-5  
-  
-
-
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
-  
-  
-
-
-### Lectio3  
-@Tempora/Pent03-5  
-  
-
-
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-  
-  
-<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Sm 15:4-8*  
-4 Rozkazał tedy Saul ludowi, i policzył je jako baranki: dwieście tysięcy pieszych, i dziesięć tysięcy mężów Judzkich.  
-5 A gdy przyciągnął Saul aż do miasta Amalek, uczynił zasadzkę przy potoku.  
-6 I rzekł Saul Cyneowi: Idźcie, odstąpcie i wynidźcie od Amalek, abych snadź nie zagarnął cię z nim; boś ty uczynił miłosierdzie ze wszystkimi syny Izraelowymi, gdy wychodzili z Egiptu. I odstąpił Cynejczyk z pośrodku Amalek.  
-7 I poraził Saul Amalek od Hewila, aż przyjdziesz do Sur, który jest naprzeciw Egiptowi.  
-8 I poimał Agaga, króla Amalek żywego, a wszystek lud pobił paszczeką miecza.  
-  
-
-
-### Lectio3  
-*1 Sm 15:9-11*  
-9 I przepuścił Saul i lud Agagowi, i co lepszym trzodom owiec i bydła i szatom i baranom i wszystkim rzeczom co piękniejszym, ani chcieli ich wyniszczyć: a cokolwiek było podłego i nikczemnego, to pokazili.  
-10 I stało się słowo Pańskie do Samuela, rzekąc:  
-11 Żal mi, żem uczynił Saula królem; bo mię opuścił, a słowa mego skutkiem nie wypełnił. I zafrasował się Samuel i wołał do Pana całą noc.  
+KeyError, 
+(None,)
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
+KeyError, 
+(None,)
 
 
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
+### Ant 1  
+Wziął Dawid górę * nad Philistynem procą i kamieniem, w imię Pana.  
   
 
 
-### Lectio2  
-*1 Sm 19:4-6*  
-4 A tak mówił Jonathas o Dawidzie dobrze do ojca swego Saula i rzekł do niego: Nie grzesz, królu, przeciwko słudze twemu Dawidowi; boć nic nie winien, a sprawy jego sąć bardzo pożyteczne.  
-5 I położył duszę swą w ręce swéj i zabił Philistyna i uczynił Pan zbawienie wielkie wszemu Izraelowi: widziałeś, i byłeś rad. Czemuż tedy grzeszysz przeciw krwi niewinnéj, zabijając Dawida, który jest bez winy?  
-6 Co gdy usłyszał Saul, ubłagany słowy Jonathy, przysiągł: Żywie Pan, że nie będzie zabit.  
+### Kolekta  
+Spraw, prosimy Cię Panie, aby bieg wypadków świata, któremi wolą swoją kierujesz, był spokojny dla nas: i aby Kościół Twój niezachwianą odznaczał się pobożnością.  
+Przez Pana.  
   
 
 
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
+### Lectio7  
+Czytanie Ewangelii świętej według Łukasza  
+*Łk 5:1-11*  
+Onego czasu: Gdy cisnęły się rzesze do Jezusa, aby słuchać słowa Bożego, On stał nad jeziorem Genezaret. I tak dalej.  
   
-  
-
-
-### Lectio3  
-*1 Sm 19:8-10*  
-8 Ale wojna zasię się wszczęła, i wyciągnąwszy Dawid, walczył przeciw Philistynom i poraził je porażką wielką, i uciekli przed obliczem jego.  
-9 I popadł duch zły Pański Saula, a siedział w domu swym i dzierżał oszczep, a Dawid grał na arfie ręką swą.  
-10 I chciał Saul przebić Dawida oszczepem ku ścianie: ale się Dawid umknął przed obliczem Saula, a oszczep bez urazu utknął w ścianie, a Dawid uciekł i zachował się nocy onéj.  
+Homilia świętego Ambrożego, Biskupa  
+*Księga 4., do rozdz. 5. Ewangelii wg św. Łukasza, blisko końca księgi*  
+Skoro Pan licznym ludziom udzielił różnego rodzaju uleczeń, ani czas, ani miejsce nie mogły powstrzymać rzeszy chcącej dalszych uzdrowień. Wieczór się zbliżył – idą za Panem. Oto jezioro – rzesza napiera. Pan wstępuje zatem na łódź Piotra. Jest to ta łódź, która według Mateusza jeszcze się chwieje, a według Łukasza pełna jest ryb, abyś w tym poznał i początki chwiejącego się jeszcze Kościoła, a i późniejszą jego obfitość. Rybami są ci, którzy płyną przez to życie. Według Mateusza Chrystus jeszcze śpi dla swych uczniów, u Łukasza im rozkazuje. Śpi dla letnich w wierze, dla doskonałych czuwa.  
   
 
 
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
+### Ant 2  
+Jezus wszedłszy * w łódź, a siadłszy, uczył rzesze z łodzi, alleluja.  
   
+
+
+### Ant 3  
+Nauczycielu, * przez całą noc pracując, niceśmy nie ułowili, wszakże na słowo Twoje, zapuszczę sieci.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
-
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
-  
-
-
-### Lectio2  
-*1 Sm 20:3-4*  
-3 I zasię przysiągł Dawidowi. A on rzekł: Wie zaiste ojciec twój, żem nalazł łaskę w oczu twoich, i rzecze: Niech o tem nie wie Jonathas, by się snadź nie frasował: i owszem żywie Pan, i żywie dusza twoja, że jednym tylko, że tak rzekę, stopniem ja i śmierć dzielimy się.  
-4 I rzekł Jonathas do Dawida: Cokolwiek mi rzecze dusza twoja, uczynię tobie.  
-  
-
-
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
-  
-  
-
-
-### Lectio3  
-*1 Sm 20:5-7*  
-5 I rzekł Dawid do Jonathy: Oto jutro jest nów miesiąca, a ja wedle obyczaju zwykłem siedzieć podle króla, abym jadł: puść mię tedy, że się skryję na polu aż do wieczora dnia trzeciego.  
-6 Jeźli patrząc ojciec twój będzie się pytał o mnie, odpowiesz mu: Prosił mie Dawid, aby szedł prędko do Bethlehem, miasta swego; bo tam są ofiary uroczyste wszystkim z pokolenia jego.  
-7 Jeźli rzecze: Dobrze, pokój będzie słudze twemu: Ale, jeźli się rozgniewa, wiedz, iż się dopełniła złość jego.  
-  
-
-
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-  
+KeyError, 
+(None,)
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
-
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
-  
-
-
-### Lectio2  
-*2 Sm 6:4-7*  
-4 A gdy ją wzięli z domu Abinadaba, który był w Gabaa, strzegący skrzynie Bożéj Ahio szedł przed skrzynią.   
-5 A Dawid i wszystek Izrael grali przed Panem na wszelakich drzewach misternie uczynionych i arfach i skrzypicach i bębniech i gęślach i cymbalech.  
-6 A gdy przyszli do gumna Nachon, wyciągnął Oza rękę ku skrzyni Bożéj i zadzierżał ją; bo wierzgały woły i nachyliły ją były.  
-7 I rozgniewał się poruszeniem Pan na Ozę, i zabił go przez śmiałość, który tam umarł przy skrzyni Bożéj.  
-  
-
-
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
-  
-  
-
-
-### Lectio3  
-*2 Sm 6:8-12*  
-8 I zafrasował się Dawid przeto, że Pan zabił Ozę, i nazwano imię onego miejsca: Zabicie Ozy, aż do dnia tego.   
-9 I zląkł się Dawid Pana dnia onego, mówiąc: Jakoż wnidzie do mnie skrzynia Pańska?  
-10 I nie chciał prowadzić do siebie skrzynie Pańskiéj do miasta Dawidowego: ale ją wprowadził do domu Obededoma, Gethejczyka.  
-11 I mieszkała skrzynia Pańska w domu Obededoma, Gethejczyka trzy miesiące: i błogosławił Pan Obededoma i wszystek dom jego.  
-12 I powiedziano królowi Dawidowi, że błogosławił Pan Obededoma i wszystkie rzeczy jego dla skrzynie Bożéj. Poszedł tedy Dawid i przyprowadził skrzynię Bożą z domu Obededoma do miasta Dawidowego z weselem.   
-  
-
-
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-  
-<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
-  
-
-
-### Lectio2  
-*2 Sm 7:7-11*  
-7 Po wszystkich miejscach, którem przeszedł ze wszystkimi synmi Izraelowymi, azam mówiąc mówił do jednego z pokolenia Izraelowego, któremum przykazał, żeby pasł lud mój Izraelski, mówiąc: Czemuście mi nie zbudowali domu cedrowego?  
-8 A teraz to powiesz słudze memu Dawidowi: To mówi Pan zastępów: Jam ciebie wziął z paszéj, chodzącego za trzodami, abyś był wodzem nad ludem moim Izraelskim:   
-9 I byłem z tobą we wszystkiem, gdzieśkolwiek chodził, i pobiłem wszystkie nieprzyjacioły twe od oblicza twego: i uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi.  
-10 I postanowię miejsce ludowi memu Izrael i wszczepię go, i będzie mieszkał pod niem, a nie poruszy się więcéj: i nie przydadzą synowie nieprawości trapić go jako pierwéj:  
-11 Ode dnia, któregom postanowił sędzię nad ludem moim Izraelskim: i dam ci pokój ode wszech nieprzyjaciół twoich: i opowiadać Pan, że dom uczyni tobie Pan.  
-  
-
-
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
-  
-  
-
-
-### Lectio3  
-*2 Sm 7:12-17*  
-12 A gdy się wypełnią dni twoje, a zaśniesz z ojcy twymi, wzbudzę nasienie twe po tobie, które wynidzie z żywota twego, i umocnię królestwo jego.   
-13 On zbuduje dom imieniowi memu, i utwierdzę stolicę królestwa jego aż na wieki.  
-14 Ja mu będę za ojca, a on mnie będzie za syna, który jeźli co źle uczyni, skarżę go rózgą mężów i plagami synów człowieczych.   
-15 Lecz miłosierdzia mego nie odejmę od niego, jakom odjął od Saula, któregom oddalił od obhcza mego.   
-16 I będzie wierny dom twój, i królestwo twe aż na wieki przed obliczem twojem: i stolica twoja będzie trwała zawsze.  
-17 Według tych wszystkich słów i według wszystkiego widzenia tego: tak mówił Nathan do Dawida.  
-  
-
-
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-  
+KeyError, 
+(None,)
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
-
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
-  
-
-
-### Lectio2  
-*2 Sm 15:16-18*  
-16 A tak wyszedł król i wszystek dom jego pieszo: i zostawił król dziesięć niewiast nałożnic dla straży domu.  
-17 I wyszedłszy król i wszystek Izrael pieszo, stanął daleko od domu.  
-18 A wszyscy słudzy jego szli przy nim i roty Cerety i Phelethy, i wszyscy Gethejczykowie, duży walecznicy, sześćset mężów, którzy byli za nim przyszli z Gethu, pieszo szli przed królem.  
-  
-
-
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
-  
-  
-
-
-### Lectio3  
-*2 Sm 15:19-20*  
-19 I rzekł król do Ethai Gethejczyka: Przecz idziesz z nami? wróć się a mieszkaj z królem; boś ty gość, a wyszedłeś z miejsca twego.  
-20 Wczoraś przyszedł, a dziś będziesz musiał wyniść z nami? a ja pójdę, gdzie iść mam: wróć się a odprowadź z sobą bracią twoję, a Pan uczyni z tobą miłosierdzie i prawdę, żeś okazał łaskę i wiarę.  
-  
-
-
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-  
-<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
-  
-
-
-### Lectio2  
-*2 Sm 16:9-10*  
-9 I rzekł Abisai, syn Sarwii, królowi: Czemu złorzeczy ten zdechły pies panu memu, królowi? pójdę a utnę głowę jego.  
-10 I rzekł król: Co mnie i wam, synowie Sarwii? dajcie mu pokój, aby złorzeczył; albowiem Pan kazał mu złorzeczyć Dawidowi: a któż jest, ktoby śmiał rzec: Czemu tak uczynił?  
-  
-
-
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
-  
-  
-
-
-### Lectio3  
-*2 Sm 16:11-12*  
-11 I rzekł król Abisai i wszystkim sługom swoim: Oto syn mój, który wyszedł z żywota mego, szuka dusze mojéj, jako daleko więcéj teraz syn Jemini? dopuśćcie mu, że złorzeczy według rozkazania Pańskiego.  
-12 Jeźli snadź wejrzy Pan na utrapienie moje, a odda mi Pan dobrem za złorzeczenie to dzisiejsze.  
-  
-
-
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-  
+KeyError, 
+(None,)
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
-
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
-  
-
-
-### Lectio2  
-*1 Krl 4:25-29*  
-25 I mieszkał Juda i Izrael bez wszelkiéj bojażni, każdy pod winną macicą swoją i pod figą swoją, od Dan aż do Bersabee po wszystkie dni Salomonowe.  
-26 I miał Salomon czterdzieści tysięcy żłobów koni do wozów a dwanaście tysięcy do jazdy.   
-27 A opatrowali je wyżéj pomienieni starostowie królewscy: lecz i potrzeby do stołu króla Salomona z wielką pilnością dodawali czasu swego.  
-28 Jęczmień téż i słomę dla koni i mułów wozili na miejsce, gdzie był król, według tego. jako im ustawiono.  
-29 Dał téż Bóg Salomonowi mądrość i roztropność bardzo wielką i przestronność serca, jako piasek, który jest na brzegu morskim.  
-  
-
-
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
-  
-  
-
-
-### Lectio3  
-*1 Krl 4:30-34*  
-30 I przechodziła mądrość Salomonowa mądrość wszystkich ludzi wschodnich i Egiptyanów.  
-31 I był mędrszy nad wszystkie ludzie: mędrszy niż Ethan Ezrahita, i Heman i Chalkol i Dorda, synowie Mahol: i był sławny u wszech narodów okolicznych.   
-32 Mówił téż Salomon trzy tysiące przypowieści, a pieśni jego było tysiąc i pięć.  
-33 Rozprawiał téż o drzewach od cedru, który jest na Libanie, aż do hysopu, który wyrasta z ściany: i mówił o zwierzętach i ptakach i płazie i o rybach.  
-34 I przychodzili ze wszystkich narodów słuchać mądrości Salomonowéj, i od wszystkich królów ziemskich, którzy słyszeli mądrość jego.  
-  
-
-
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-  
-<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
-  
-
-
-### Lectio2  
-*1 Krl 5:5-6*  
-5 Przetóż myślę zbudować kościół imieniowi Pana, Boga mego, jako mówił Pan Dawidowi, ojcu memu, rzekąc: Syn twój, którego dam miasto ciebie na stolicę twoje, ten zbuduje dom imieniowi memu.   
-6 A tak przykaż, że mi nawicinają słudzy twoi cedru z Libanu, a słudzy moi niechaj będą z sługami twymi, a zapłatę sług twoich dam tobie, którąkolwiek żądać będziesz; bo wiesz, jako niemasz między ludem moim męża, któryby umiał drzewo wyrębować, jako Sydończycy.  
-  
-
-
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
-  
-  
-
-
-### Lectio3  
-*1 Krl 5:7-9*  
-7 Gdy tedy usłyszał Hiram słowa Salomonowe, uradował się bardzo i rzekł: Błogosławiony Pan Bóg dzisiaj, który dał Dawidowi syna bardzo mądrego nad ludem tym wielkim.  
-8 I posłał Hiram do Salomona, mówiąc: Słyszałem, o cośkolwiek wskazał do mnie: ja uczynię wszystkę wolą twoje około drzewa cedrowego i jodłowego.  
-9 Słudzy moi złożą je z Libanu do morza, a ja złożę je w trafty na morzu aż na miejsce, o którem mi dasz znać, i przy pławię je tam, a ty je pobierzesz: i dodasz mi potrzeb, aby była dana żywność domowi memu.  
-  
-
-
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-  
+KeyError, 
+(None,)
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
-
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
-  
-
-
-### Lectio2  
-*1 Krl 12:5-8*  
-5 A gdy odszedł lud,  
-6 Wszedł król Roboam w radę z starszymi, którzy stawali przed Salomonem, ojcem jego, póki jeszcze był żyw, i rzekł: Co mi za radę dajecie, żebych odpowiedział ludowi temu?  
-7 Którzy mu rzekli: Jeźli dziś posłuszny będziesz ludowi temu i posłużysz i dasz miejsce prośbie ich, a będziesz do nich mówił łagodne słowa: będąć sługami po wszystkie dni.  
-8 Który opuścił radę starych, którą mu byli dali, i radził się młodzieńców, którzy z nim wychowani byli, i stawali przed nim.  
-  
-
-
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
-  
-  
-
-
-### Lectio3  
-*1 Krl 12:13-16*  
-13 I odpowiedział król ludowi srogo, opuściwszy radę starszych, którą mu byli dali.  
-14 I mówił do nich według rady młodzieńców, rzekąc: Ojciec mój obciążył jarzmo wasze, a ja przyłożę do jarzma waszego: ojciec mój chlustał was biczmi, a ja was chlustać będę basałykami.  
-15 I nie pozwolił król ludowi; bo się był Pan odwrócił od niego, aby wzbudził słowo swe, które był rzekł w ręce Achiasza, Sylonitczyka, do Jeroboama, syna Nabat.  
-16 Widząc tedy lud, że ich król nie chciał wysłuchać, odpowiedział mu, rzekąc: Cóż my za dział mamy w Dawidzie? albo co za dziedzictwo w synie Isai?  
-  
-
-
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-  
+KeyError, 
+(None,)
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
-  
-
-
-### Lectio2  
-*1 Krl 14:7-9*  
-7 Idź a rzecz Jeroboamowi: To mówi Pan, Bóg Izraelów: Iżem cię wywyższył z pośrodku ludu i dałem cię wodzem nad ludem moim Izraelskim:  
-8 I rozerwałem królestwo domu Dawidowego i dałem je tobie, a nie byłeś jako sługa mój Dawid, który strzegł przykazania mego i chodził za mną ze wszystkiego serca swego, czyniąc, co się przed oczyma memi podobało:  
-9 Aleś czynił złe nade wszystkie, którzy przed tobą byli, i naczyniłeś sobie bogów cudzych i litych, abyś mię ku gniewu pobudził, a mnieś zarzucił w tył sobie:  
-  
-
-
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
-  
-  
-
-
-### Lectio3  
-*1 Krl 14:10-12*  
-10 Przetóż oto ja przywiodę złe na dom Jeroboamów, i wytracę z Jeroboama mokrzącego na ścianę i zamknionego i ostatecznego w Izraelu: i wymiotę ostatki domu Jeroboamowego, jako wymiatają gnój aż do czysta.  
-11 Którzy z Jeroboam umrą w mieście, psi ich zjedzą: a którzy umrą na polu, zjedzą je ptacy powietrzni; bo Pan powiedział.  
-12 A tak ty wstań, a idź do domu twego: a w samem wejściu nóg twoich w miasto umrze dziecię.  
-  
-
-
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
  Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
+KeyError, 
+(None,)
 
 
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
+### Ant 1  
+Góry Gelboe, * ani rosa ani deszcz niech nie padają na was, bo tam porzucona jest tarcz mocarzów, tarcz Saulowa, jakoby nie był pomazany oliwą. Jakoż polegli mocarze w bitwie! Jonathas na wyżynach twoich zabit: Saul i Jonathas, miłośni i przyjemni w żywocie swoim, w śmierci téż nie są rozłączeni.  
   
 
 
-### Lectio2  
-*2 Krl 6:27-32*  
-27 I rzekł do niéj król: Czegóż chcesz? Która odpowiedziała:  
-28 Ta niewiasta mówiła mi: Daj syna twego, że go zjemy dzisiaj, a syna mego zjemy jutro.  
-29 A tak uwarzyliśmy syna mego i zjedliśmy. I rzekłam jéj na zajutrz: Daj syna twego, że go zjemy. Która skryła syna swego.  
-30 Co gdy król usłyszał, rozdarł szaty swoje i szedł po murze: i widział wszystek lud włosienicę, którą odziany był na ciele od spodku.  
-31 I rzekł król: To mi niech Bóg uczyni i to niech przyczyni, jeźli się zostoi głowa Elizeusza, syna Saphat, dzisiaj na nim.  
-32 A Elizeusz siedział w domu swym, i starcy siedzieli z nim.  
+### Kolekta  
+Boże, któryś miłującym Cię niewidzialne dobra zgotował, wlej w serca nasze miłość, abyśmy, miłując Cię we wszystkiem i nadewszystko, dostąpili obietnic Twoich, które przewyższają wszelkie nasze pożądania.  
+Przez Pana.  
   
 
 
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
+### Lectio7  
+Czytanie Ewangelii świętej według Mateusza  
+*Mt 5:20-24*  
+Onego czasu: Rzekł Jezus uczniom swoim: „Jeśli nie będzie obfitowała sprawiedliwość wasza więcej niż uczonych w Zakonie i faryzeuszów, nie wnijdziecie do Królestwa Niebieskiego”. I tak dalej.  
   
-  
-
-
-### Lectio3  
-*2 Krl 6:32-33; 7:1*  
-32 A Przesłał tedy męża: a pierwéj niż on poseł przyszedł, rzekł do starców: A wiecież, że ten syn mężobójce posłał, aby ucięto głowę moję? A tak patrzcie, gdy przyjdzie posłaniec, zamknijcie drzwi, a nie dajcie mu wniść; bo oto tętnanie nóg pana jego jest za nim.  
-33 A gdy jeszcze mówił do nich, ukazał się posłaniec, który szedł do niego, i rzekł: Oto tak wielkie złe od Pana jest, czegóż mam więcéj czekać od Pana?  
-1 I rzekł Elizeusz: Słuchajcie słowa Pańskiego: To mówi Pan: O tym czasie jutro będzie korzec białéj mąki za jeden stater, a dwa korce jęczmienia za jeden stater, w bramie Samaryjskiéj.  
+Homilia świętego Augustyna, Biskupa  
+*Księga 1. o Kazaniu Pana na górze, rozdz. 9*  
+Sprawiedliwość faryzeuszów polega na: „Nie zabijaj”, sprawiedliwość zaś tych, co mają wejść do Królestwa Niebieskiego polega na tym, aby nie gniewać się bez powodu. Najmniejsze to przykazanie „Nie zabijaj”, a kto je zniesie, będzie zwany najmniejszym w Królestwie Niebieskim. Kto zaś to wypełni, aby nie zabijać, nie od razu będzie wielkim i zdatnym do Królestwa Niebieskiego, ale jednak postąpi o jakiś stopień wyżej. Natomiast udoskonali się, jeżeli nie będzie się gniewał bez przyczyny, a jeżeli to wykona, będzie o wiele bardziej unikał zabójstwa. Dlatego też Ten, który naucza, abyśmy nie gniewali się, nie znosi Prawa „Nie zabijaj”, ale je raczej wypełnia. Dzięki temu na zewnątrz zachowujemy niewinność, ponieważ nie zabijamy, i w sercu, gdyż się nie gniewamy.  
   
 
 
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
+### Ant 2  
+Słyszeliście, * iż rzeczono jest starym: Nie będziesz zabijał: a ktoby zabił, będzie winien sądu.  
   
+
+
+### Ant 3  
+Jeśli tedy ofiarujesz * dar twój do ołtarza, a tam wspomnisz, iż brat twój ma nieco przeciw tobie: zostaw tam dar twój przed ołtarzem, a idź pierwej pojednaj się z bratem twoim: a wtedy przyszedłszy, ofiarujesz dar twój, alleluja.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
+### Ant 1  
+Proszę, Panie, * oddal nieprawość sługi twego; bomci głupie uczynił.  
   
 
 
-### Lectio2  
-*2 Krl 8:4-6*  
-4 A król rozmawiał z Giezym, sługą męża Bożego, mówiąc: Powiadaj mi wszystkie zacne rzeczy, które czynił Elizeusz.  
-5 A gdy on powiadał królowi, jako wskrzesił umarłego, ukazała się niewiasta, któréj był syna ożywił, wołając do króla o dom swój i o rolę swoję. I rzekł Giezy: Panie mój, królu, tać to jest niewiasta, i to jest syn jéj, którego wskrzesił Elizeusz.  
-6 I pytał król niewiasty, która mu powiedziała. I dał jéj król rzezańca jednego, mówiąc: Przywróć jéj wszystko, co jéj jest, i wszystkie dochody z ról odednia, którego opuściła ziemię aż dotąd.  
+### Kolekta  
+Boże zastępów, od którego wszelkie dobro pochodzi, wiej w serca nasze miłość Imienia Twego i wzmóż w nas ducha pobożności, wzmacniając to, co w nas jest dobrego, a wzmocnione, umiłowaniem pobożności zachowaj.  
+Przez Pana.  
   
 
 
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
+### Lectio7  
+Czytanie Ewangelii świętej według Marka  
+*Mk 8:1-9*  
+Onego czasu: Gdy rzesza wielka była z Jezusem, a nie miała co jeść, przywoławszy uczniów, rzekł im: „Żal mi tego ludu, bo oto już od trzech dni trwają przy Mnie, a nie mają co jeść”. I tak dalej.  
   
-  
-
-
-### Lectio3  
-*2 Krl 8:7-10*  
-7 Przyszedł téż Elizeusz do Damaszku, a Benadad król Syryjski chorował. I powiedziano mu, mówiąc: Przyszedł tu mąż Boży.  
-8 I rzekł król do Hazaela: Weźmij z sobą dary a idź przeciwko mężowi Bożemu a poradź się Pana przezeń, mówiąc: Będęli mógł wybiegać się z téj niemocy mojéj?  
-9 A tak poszedł Hazael przeciwko niemu, mając z sobą dary i wszelkie dobra Damaszku, brzemiona czterdziestu wielbłądów. I stanąwszy przed nim, rzekł: Syn twój Benadad, król Syryjski, posłał mię do ciebie, mówiąc: Będęli mógł ozdrowieć z téj niemocy mojéj?  
-10 I rzekł mu Elizeusz: Idź, rzecz: Będziesz zdrów: lecz mi Pan pokazał, że śmiercią umrze.  
+Homilia świętego Ambrożego, Biskupa  
+*Księga 6., do rozdz. 9. Ewangelii wg św. Łukasza, w 1. połowie*  
+Pokarm łaski niebiańskiej został udzielony dopiero po uzdrowieniu owej chorej na krwotok niewiasty, będącej figurą Kościoła, i po wyznaczeniu Apostołów na głosicieli Ewangelii o Królestwie Bożym. Zważ jednak, komu został udzielony. Nie próżniakom, nie tym, którzy przebywają w mieście, jakby w Synagodze, lub tym, którzy piastują jakieś wysokie w świecie stanowiska, lecz tym, którzy na pustkowiu szukają Chrystusa. Tych bowiem, którzy nie są zadufani w sobie, Chrystus przyjmuje i z nimi Słowo Boże rozmawia nie o sprawach tego świata, lecz o Królestwie Bożym. Tym zaś, którzy cierpią na jakieś cielesne słabości, chętnie udziela lekarstwa.  
   
 
 
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
+### Ant 2  
+Gdy wielka rzesza * była z Jezusem, a nie mieli coby jedli; wezwawszy uczniów swoich rzekł im: Żal mi ludu: iż oto już trzy dni trwają przy mnie a nie mają, coby jedli, alleluja.  
   
+
+
+### Ant 3  
+Żal * mi ludu: iż oto już trzy dni trwają przy mnie, a nie mają coby jedli: a jeśli ich opuszczę głodnych do domów ich, ustaną na drodze, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
-
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
-  
-
-
-### Lectio2  
-*2 Krl 17:13-15*  
-13 I oświadczył się Pan w Izraelu i w Judzie przez rękę wszystkich proroków i widzących, mówiąc: Nawróćcie się od dróg waszych bardzo złych a strzeżcie przykazań moich i Ceremonii według wszystkiego zakonu, którym przykazał ojcom waszym, i jakom posłał do was w ręce sług moich, proroków.   
-14 Którzy nie słuchali, ale zatwardzili krzczycę swoje wedle krzczyce ojców swoich, którzy nie chcieli być posłuszni Panu, Bogu swemu.  
-15 I odrzucili prawa jego i przymierze, które uczynił z ojcy ich, i oświadczania, któremi oświadczył je: i poszli za nikczemnościami, i nikczemnie się sprawowali:  
-  
-
-
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
-  
-  
-
-
-### Lectio3  
-*2 Krl 17:18-21*  
-18 I rozgniewał się Pan bardzo na Izraela i zniósł je od oblicza swego, i nie zostało, jedno tylko pokolenie Juda.  
-19 Ale ani sam Juda nie strzegł przykazania Pana, Boga swego, ale chodził w błędziech Izraelskich, które był uczynił.  
-20 I odrzucił Pan wszystko nasienie Izraelowe i utrapił je i podał je w ręce łupieżców, aż je odrzucił od oblicza swego:  
-21 Już od onego czasu, którego się oderwał Izrael od domu Dawidowego, i postanowili sobie króla Jeroboam, syna Nabatowego.  
-  
-
-
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
+### Ant 1  
+Namaścili Salomona * Sadok kapłan, i Natan prorok, na króla w Gihonie, i wstępując z radością mówili: Niech żyje król na wieki.  
   
 
 
-### Lectio2  
-*2 Krl 17:24-25*  
-24 A król Assyryjski nawiódł ludzi z Babilonu i z Kuthy i z Awei i z Emathu i z Sepharwaima, i osadził je w mieściech Samaryjskich miasto synów Izraelskich: którzy posiedli Samaryą i mieszkali w mieściech jéj.  
-25 A gdy tam jęli mieszkać, nie bali się Pana, i przepuścił na nie Pan lwy, którzy je zabijali.  
+### Kolekta  
+Boże, którego Opatrzność, w rozporządzeniach swoich nigdy się nie myli: usilnie Cię błagamy, abyś to, co szkodliwe, oddalił od nas, a wszystkiego, co użyteczne udzielić nam raczył.  
+Przez Pana.  
   
 
 
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
+### Lectio7  
+Czytanie Ewangelii świętej według Mateusza  
+*Mt 7:15-21*  
+Onego czasu: Rzekł Jezus uczniom swoim: „Strzeżcie się fałszywych proroków, którzy do was przychodzą w odzieniu owczym, a wewnątrz są wilki drapieżne”. I tak dalej.  
   
-  
-
-
-### Lectio3  
-*2 Krl 17:26-27*  
-26 I dano znać królowi Assyryjski emu i rzeczono: Narody, któreś przeprowadził i posadził w mieściech Samaryjskich, nie umieją praw Boga ziemie, i przepuścił Pan na nie lwy, a oto je mordują, przeto iż nie umieją chwały Boga ziemie.  
-27 I rozkazał król Assyryjski, mówiąc: Zawiedźcie tam jednego z kapłanów, któreście ztamtąd więźniami przywiedli, a niech idzie i mieszka z nimi i nauczy ich praw Boga ziemie.  
+Homilia świętego Hilarego, Biskupa  
+*Komentarz do Ewangelii wg św. Mateusza, rozdz. 6.*  
+Pan nakazuje, aby urok słów i pozory łagodności sprawdzać owocami postępowania.  Należy sprawdzać, nie za kogo się kto podaje, lecz jaki jest w działaniu, ponieważ wielu przyodziewa owczą wełną wilczą wściekłość. A zatem jak ciernie nie rodzą winnych jagód, osty – fig, dzikie drzewa nie wydają dobrych jabłek, tak owoc dobrego dzieła nie tkwi w udawaniu, i dlatego poucza, że każdego należy rozpoznawać po czynach. Ci bowiem nie osiągają Królestwa Niebieskiego samymi tylko słowami; ani ten też, kto tylko mówi: Panie, Panie, nie będzie jego dziedzicem.  
   
 
 
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
+### Ant 2  
+Strzeżcie się * pilnie fałszywych Proroków, którzy do was przychodzą w odzieniu owczem, a wewnątrz są wilcy drapieżni: z owoców ich poznacie je, alleluja.  
   
+
+
+### Ant 3  
+Nie może drzewo * dobre owoców złych rodzić, ani drzewo złe owoców dobrych rodzić: Wszelkie drzewo, które nie rodzi owocu dobrego, będzie wycięte i w ogień wrzucone, alleluja.  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
-
-### Responsory1  
-R. Przygotujcie serca wasze Panu, a służcie jemu samemu:  
-* I uwolni was z rąk nieprzyjaciół waszych.  
-V. Nawróćcie się do mnie ze wszystkiego serca waszego, wyrzućcież bogi cudze z pośrodku was.  
-R. I uwolni was z rąk nieprzyjaciół waszych.  
-  
-  
-
-
-### Lectio2  
-*2 Krl 24:2-4*  
-2 I posłał nań Pan łotrzyki Chaldejskie i łotrzyki Syryjskie i łotrzyki Moab i łotrzyki synów Ammon: i puścił je na Judę, aby go wytracili według słowa Pańskiego, które był rzekł przez sługi swe proroki.  
-3 A to stało się przez słowo Pańskie przeciw Judzie, aby go zniósł przed sobą, dla grzechów Manasse wszystkich, które czynił:  
-4 I dla krwie niewinnéj, którą wjdał i napełnił Jeruzalem krwią niewinnych: i dla téj rzeczy nie chciał się Pan dać ubłagać.  
-  
-
-
-### Responsory2  
-R. Pan wysłuchujący wszystkich: On posłał swego anioła i zabrał mnie od owiec mego ojca:  
-* I namaścił mnie olejem miłosierdzia swego.  
-V. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-R. I namaścił mnie olejem miłosierdzia swego.  
-  
-  
-
-
-### Lectio3  
-*2 Krl 24:5-7*  
-5 A ostatek mów Joakimowych i wszystko, co czynił, aza to nie napisano jest w księgach mów dni królów Judzkich? I zasnął Joakim z ojcy swymi:  
-6 A Joachin, syn jego, królował miasto niego.  
-7 I daléj nie przydał król Egipski, żeby wyszedł z ziemie swojéj; bo był wziął król Babiloński od rzeki Egipskiéj aż do rzeki Euphrates wszystko, co było króla Egipskiego.  
-  
-
-
-### Responsory3  
-R. Pan, który uratował mię z lwiej paszczęki, i z rąk bestii uwolnił mię.  
-* Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-V. Zesłał Bóg miłosierdzie swoje, i prawdę swoję, i wyrwał duszę moję z pośrodku szczeniąt lwich.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-Chwała Ojcu.  
-R. Ten wyrwie mnie z rąk nieprzyjaciół moich.  
-  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Poraził Saul tysiąc, a Dawid dziesięć tysięcy:  
-* Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-V. Aza to nie on Dawid, któremu śpiewano w tańcach, mówiąc: Zabił Saul w tysiącach swych, a Dawid w dziesiąci tysięcy swoich?  
-R. Albowiem była z nim ręka Pańska: zabił Philistyna, i usunął hańbę z Izraela.  
-  
+### Ant 1  
+Wysłuchałeś, Panie, * modlitwy sługi Twego, abym zbudował świątynię imieniowi Twemu.  
   
 
 
-### Lectio2  
-*2 Krl 24:12-14*  
-12 I wyszedł Joachin, król Judzki, do króla Babilońskiego, sam i matka jego i słudzy jego i książęta jego i rzezańcy jego: i przyjął go król Babiloński roku ósmego królowania swego.  
-13 I wyniósł zonąd wszystkie skarby domu Pańskiego i skarby domu królewskiego: i potłukł wszystkie naczynia złote, które był sprawił król Salomon Izraelski w kościele Pańskim według słowa Pańskiego.  
-14 I przeniósł wszystko z Jeruzalem i wszystkie książęta i wszystkie mocarze wojska, dziesięć tysięcy w niewolą, i wszelkiego rzemieślnika i oboźne. i nie zostało nic, oprócz ubogich z ludzi ziemie.  
+### Kolekta  
+Użycz nam, prosimy Cię, Panie, ducha myślenia i czynienia tego, co dobre; a że bez Ciebie istnieć nie możemy, daj nam żyć według woli Twojej.  
+Przez Pana.  
   
 
 
-### Responsory2  
-R. Góry Gelboe, ani rosa ani deszcz niech nie padają na was,  
-* Gdzie polegli mocarze Izraela.  
-V. Wszystkie góry, które są wokół, nawiedzi Pan: od Gelboe zaś odejdzie.  
-R. Gdzie polegli mocarze Izraela.  
+### Lectio7  
+Czytanie Ewangelii świętej według Łukasza  
+*Łk 16:1-9*  
+Onego czasu: Rzekł Jezus uczniom swoim tę przypowieść: „Był człowiek pewien bogaty, który miał włodarza, a tego zniesławiono przed nim, jakoby trwonił dobra jego”. I tak dalej.  
   
-  
-
-
-### Lectio3  
-*2 Krl 24:15-17*  
-15 Przeniósł téż Joachina do Babilonu i matkę królewską i żony królewskie i rzezańce jego; i sędzię ziemie zabrał w niewolą z Jeruzalem do Babilonu.   
-16 I wszystkich mężów mężnych siedm tysięcy, a rzemieślników i oboźnych tysiąc, wszystkie męże mocne i waleczne: i zaprowadził je król Babiloński w niewolą do Babilonu.  
-17 A królem uczynił Mathaniasza, stryja jego, miasto niego: i dał mu imię Sedekiasz.   
+Homilia świętego Hieronima, Kapłana  
+*List 151 do Algazji, problem 6., część 3.*  
+Jeśli pan pochwalił szafarza mamony niesprawiedliwości, ponieważ z nieprawości przygotował sobie sprawiedliwość; jeśli ten pan, którego dobra trwoniono, chwali roztropność zarządcy, który roztropnie zabiegał o własną korzyść chociaż ze szkodą pana, to o ileż bardziej Chrystus, który nie może doznać żadnej szkody i który jest skory do łagodności, chwalić będzie uczniów swoich, jeśli będą miłosierni względem tych, którzy w Niego uwierzą?  
   
 
 
-### Responsory3  
-R. Zabrałem cię z domu ojca twego, mówi Pan, i postawiłem cię, byś pasł stado ludu mego.  
-* I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-V. I uczyniłem ci imię wielkie, wedle imienia wielkich, którzy są na ziemi: i odpoczynek ci dałem od wszystkich przeciwników twoich.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
-Chwała Ojcu.  
-R. I byłem z tobą, gdziekolwiek poszedłeś, utwierdzając królestwo twoje na wieki.  
+### Ant 2  
+Rzekł pan włodarzowi: * Cóż to słyszę o tobie? oddaj liczbę włodarstwa twego, alleluja.  
   
+
+
+### Ant 3  
+Cóż uczynię, * gdyż Pan odejmie odemnie włodarstwo? kopać nie mogę, żebrać się wstydzę: wiem, co uczynię, że gdy będę złożony z włodarstwa, przyjmą mię do domów swoich.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
+
+### Ant 1  
+Gdy zabrał Pan * Eliasza przez wicher do nieba, Elizeusz wołał: Ojcze mój, wozie Izraelów, i woźnico jego.  
+  
+
+
+### Kolekta  
+Nakłoń ucha Twego i bądź miłosierny na prośby błagających Cię, Boże, abyś zaś mógł wysłuchać proszących Cię, spraw, niechaj oto proszą, co się Tobie podoba.  
+Przez Pana.  
+  
+
+
+### Lectio7  
+Czytanie Ewangelii świętej według Łukasza  
+*Łk 19:41-47*  
+Onego czasu: Gdy się przybliżył Jezus do Jeruzalem i ujrzał miasto, zapłakał nad nim, mówiąc: „Gdybyś i ty poznało i właśnie w ten dzień twój to, co jest ku pokojowi twemu, a teraz zakryte jest przed oczyma twymi”. I tak dalej.  
+  
+Homilia świętego Grzegorza, Papieża  
+*Homilia 39. na Ewangelię*  
+Jest tu opisane, opowiadane z płaczem przez Pana, owo zburzenie Jerozolimy dokonane przez cesarzy rzymskich Wespazjana i Tytusa. Wie o tym każdy, kto czytał historię tego zburzenia O cesarzach bowiem rzymskich jest mowa w słowach: Albowiem przyjdą na ciebie dni i otoczą cię nieprzyjaciele twoi wałem.  To, co dodane: Nie zostawią w tobie kamienia na kamieniu, zostało potwierdzone przez przeniesienie miasta w inne miejsce. Jest ono bowiem teraz wzniesione tam, gdzie Pan poza bramą został ukrzyżowany; dawna bowiem Jerozolima, jak mówią, doszczętnie została zniszczona.  
+  
+
+
+### Ant 2  
+Gdy się przybliżał * Pan do Jerozolimy, ujrzawszy miasto, płakał nad niem, mówiąc: Iż gdybyś i ty poznało: albowiem przyjdą na cię dni i obtoczą cię nieprzyjadele twoi wałem: i oblegą cię i ścisną cię zewsząd: i na ziemię cię obalą: dlatego iżeś nie poznało czasu nawiedzenia twego, alleluja.  
+  
+
+
+### Ant 3  
+Napisano jest bowiem: * Iż dom mój, dom modlitwy jest dla wszystkich narodów: a wyście go uczynili jaskinią zbójców: i uczył na każdy dzień w kościele.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 1  
+Czynił Joas * prawość przed Panem po wszystkie dni, przez które go uczył Jojada kapłan.  
+  
+
+
+### Kolekta  
+Boże, który wszechmoc swoją objawiasz najbardziej w okazywaniu miłosierdzia i w przebaczeniu, okaż nam wielkość miłosierdzia Twego, abyśmy dążąc do obietnic Twoich, doszli do uczestnictwa w szczęśliwości wiecznej.  
+Przez Pana.  
+  
+
+
+### Lectio7  
+Czytanie Ewangelii świętej według Łukasza  
+*Łk 18:9-14*  
+Onego czasu: Mówił Jezus do niektórych, którzy samym sobie ufali, jakoby byli sprawiedliwi, a innymi pogardzali, tę przypowieść: „Dwóch ludzi weszło do świątyni, aby się modlili: jeden faryzeusz, a drugi celnik”. I tak dalej.  
+  
+Homilia świętego Augustyna, Biskupa  
+*Kazanie 36. o Słowach Pana, blisko połowy*  
+Gdyby faryzeusz powiedział przynajmniej: Nie jestem jak wielu ludzi. Cóż znaczą słowa „inni ludzie”, jeśli nie to, że wszyscy prócz niego? Ja – mówi – jestem sprawiedliwy, pozostali zaś to grzesznicy. Nie jestem jak inni ludzie, niesprawiedliwi, drapieżni, cudzołożnicy. I oto stojący obok celnik daje mu powód do jeszcze większego pysznienia się! Powiada: Jako i ten celnik. Ja – mówi – jestem sam jeden, on zaś jest z innych. Nie jestem – powiada więc – taki jak on; przez sprawiedliwość moją nie jestem niegodziwy.  
+  
+
+
+### Ant 2  
+Celnik, stojąc z daleka, * nie chciał ani oczu podnieść w niebo: ale bił się w piersi swoje, mówiąc: Boże, bądź miłościw mnie grzesznemu.  
+  
+
+
+### Ant 3  
+Zstąpił * ten usprawiedliwiony do domu swego, nad niego. Albowiem ktokolwiek się podwyższa, będzie poniżony, a kto się uniża, będzie podwyższony.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 1  
+Proszę, Panie, * wspomnij, proszę, jakom chodził przed tobą w prawdzie i w sercu doskonałem, a czyniłem, co się przed tobą podobało.  
+  
+
+
+### Kolekta  
+Wszechmogący, wieczny Boże, który szczodrobliwością litości Twojej przewyższasz zasługi i pożądania błagających Cię, zlej na nas miłosierdzie odpuszczając to, co sumienie niepokoi i udzielając tego, o co się modlić nie ośmielamy.  
+Przez Pana.  
+  
+
+
+### Lectio7  
+Czytanie Ewangelii świętej według Marka  
+*Mk 7:31-37*  
+Onego czasu: Jezus, wyszedłszy z granic Tyru przez Sydon, przyszedł nad Morze Galilejskie poprzez granice Dekapolu. I tak dalej.  
+  
+Homilia świętego Grzegorza, Papieża  
+*Homilia 10. na Księgę Proroka Ezechiela, księga 1., w 1. połowie*  
+Dlaczego Bóg, Stwórca wszech rzeczy, chcąc uleczyć głuchego i niemego, włożył swe palce w jego uszy, a splunąwszy, dotknął jego języka? Cóż jednak oznaczają palce Zbawiciela, jeśli nie dary Ducha Świętego? Toteż Jezus, wypędzając kiedy indziej czarta, powiedział: Jeśli Ja palcem Bożym wyrzucam czarty, tedy przyszło do was Królestwo Boże. Opisując to samo zdarzenie, inny Ewangelista tak przytacza Jego słowa: Jeśli Ja Duchem Bożym wyganiam czarty, tedy przyszło do was Królestwo Boże. Zestawiwszy te dwa teksty, dochodzimy do wniosku, że Duch Święty zwany jest „palcem Bożym”. Włożenie palców do uszu głuchego jest więc, poprzez dary Ducha Świętego, otwarciem jego serca na posłuszeństwo wobec Boga.  
+  
+
+
+### Ant 2  
+Gdy Pan przekroczył * granice Tyru, głuchych uczynił, że słyszą, i niemych, że mówią.  
+  
+
+
+### Ant 3  
+Dobrze wszystko uczynił, * i głuchych uczynił, że słyszą, i niemych, że mówią.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Kolekta  
@@ -16214,17 +9580,6 @@ Onego czasu: Rzekł Jezus uczniom swoim: „Błogosławione oczy, które widzą,
 Homilia świętego Bedy Czcigodnego, Kapłana  
 *Księga 3., do rozdz. 10. Ewangelii wg św. Łukasza*  
 Nie są błogosławione oczy uczonych w Piśmie i faryzeuszy, którzy widzieli tylko ciało Pana, lecz błogosławione są oczy tych, którzy mogą poznać Jego tajemnice. O nich to napisano: A objawiłeś je maluczkim. Błogosławione oczy maluczkich, którym Syn zechciał objawić samego siebie i Ojca. Abraham z radością wyglądał dnia Chrystusowego, a ujrzał i uweselił się. Także Izajasz i Micheasz, i wielu innych Proroków widziało chwałę Pańską, dlatego też zwano ich „Widzącymi”. Jednak wszyscy oni, oglądając i witając z daleka, widzieli niejasno, przez zwierciadło.  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
   
 
 
@@ -16261,17 +9616,6 @@ Odnośnie do dziesięciu trędowatych, których Pan uzdrowił, mówiąc: Idźcie
   
 
 
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
-  
-
-
 ### Ant 2  
 Gdy przechodził Jezus * niektóre miasteczko, zabierzało mu dziesięciu mężów trędowatych, którzy stanęli z daleka: i podnieśli głos, mówiąc: Jezusie, nauczycielu, zmiłuj się nad nami.  
   
@@ -16305,17 +9649,6 @@ Nikt nie może dwom panom służyć. Zdanie to należy odnieść do tej samej in
   
 
 
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
-  
-
-
 ### Ant 2  
 Nie troszczcie się tedy, * mówiąc: Cóż będziemy jeść albo co będziemy pić? albowiem Ojciec wasz, wie co jest wam potrzebne, alleluja.  
   
@@ -16346,17 +9679,6 @@ Onego czasu: Jezus szedł do miasta, które zowią Naim, a z Nim szli uczniowie 
 Homilia świętego Augustyna, Biskupa  
 *Kazanie 44. o Słowach Pana, na początku*  
 Z tego młodzieńca zmartwychwstałego uradowała się matka wdowa; z ludzi codziennie duchowo wskrzeszanych cieszy się matka Kościół. Ten umarł na ciele, owi na duchu. Tego śmierć widzialna jest widzialnie opłakiwana; niewidzialnej śmierci owych nikt nie stara się zgłębić ani dostrzec. Poszedł ich szukać Ten, który wiedział, że są martwi; a tylko Ten wiedział, że umarli, który mógł ich ożywić. Jeśliby Pan nie przyszedł dla wskrzeszenia umarłych, to nie mówiłby Apostoł: Zbudź się, który śpisz, i powstań z martwych, a oświeci cię Chrystus.  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
   
 
 
@@ -16678,798 +10000,93 @@ Zaprawdę powiadam wam, * iż nie przeminie ten naród, ażby się stało to wsz
 ### Ant 1  
 Mądrość * zbudowała sobie dom, wyciosała siedm filarów, poddała sobie narody, dumnym i wyniosłym szyje swą siłą zdeptała.  
   
-
-
-### Lectio2  
-*Prz 1:7-14*  
-7 Bojaźń Pańska początek mądrości: mądrością i nauką głupi gardzą.   
-8 Słuchaj, synu mój! ćwiczenia ojca twego, a nie opuszczaj zakonu matki twojéj:  
-9 Aby była przydana łaska głowie twojéj, a łańcuch szyi twojéj.  
-10 Synu mój! jeźliby cię nęcili grzesznicy, nie przyzwalaj im.  
-11 Jeźliby rzekli: Pójdź z nami, zasadźmy się na krew, zakryjmy sidła na niewinnego bez przyczyny:  
-12 Pożremy go jako piekło żywego, a całego jako zstępującego w dół:  
-13 Wszelką majętność drogą najdziemy, napełniemy domy nasze korzyścią:  
-14 Puść los z nami, mieszek jeden niech będzie wszystkich nas.  
-  
-
-
-### Lectio3  
-*Prz 1:15-19*  
-15 Synu mój! nie chódź z nimi, powściągnij nogę twoję od ścieżek ich.  
-16 Albowiem nogi ich bieżą ku złemu, i kwapią się, aby krew przelali.  
-17 Ano próżno zarzucają sieć przed oczyma skrzydlastych.  
-18 Oni téż przeciw krwi swojéj zasadzają się, i czynią zdrady przeciw duszom swoim.  
-19 Tak ścieżki wszelkiego łakomego dusze majętnych odejmują.  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Prz 3:7-10*  
-7 Nie bądź sam u siebie mądrym: bój się Boga, a odstąp od złego;   
-8 Zdrowie bowiem będzie żywotowi twemu, a odwilżenie kościom twoim.  
-9 Czcij Pana z majętności twojéj, a z pierwiastek wszelkiego zboża twego dawaj mu:   
-10 A napełnią się gumna twoje obfitością, i prasy twe winem opływać będą.  
+### Ant 1  
+Jam mieszkała na wysokości * a stolec mój na słupie obłokowym.  
   
-
-
-### Lectio3  
-*Prz 3:11-15*  
-11 Karania Pańskiego, synu mój, nie odrzucaj: ani ustawaj, gdy od niego karan bywasz.   
-12 Bo kogo Pan miłuje, karze: a jako ojciec w synie kocha się.  
-13 Błogosławiony człowiek, który nalazł mądrość, i który obfituje w roztropności.  
-14 Lepsze jest nabycie jéj, niźli kupiectwo śrebra: i złota pierwszego i najczystszego owoc jéj.  
-15 Droższa jest nad wszystkie bogactwa: a wszystkie rzeczy, które bywają pożądane, nie mogą jéj być przyrównane.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Ant 1  
+Wszelka mądrość * od Pana Boga jest i z nim zawsze była, i jest przed wieki.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Ant 1  
+Mądrość * wołała na ulicach: jeśli kto miłuje mądrość, niech ku mnie się zwrócie, a ją znajdzie: a znalazłszy, błogosławion będzie, jeśli ją zatrzyma.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
+### Ant 1  
+Zachowaj, synu, * przykazania ojca twego, a nie opuszczaj zakonu matki twojéj, ale uwiąż je zawsze u serca twego.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Ant 1  
 Gdy usłyszał Job * słowa posłańców, cierpiał bardzo, i rzekł: Jeźliśmy przyjęli dobra z ręki Bożéj, złego czemubyśmy przyjmować nie mieli? We wszystkiem nie zgrzeszył Job usty swemi, ani nic głupiego nie wyrzekł przeciw Bogu.  
   
-
-
-### Responsory1  
-R. Jeźliśmy przyjęli dobra z ręki Bożéj, złego czemubyśmy przyjmować nie mieli?  
-* Pan dał, Pan odjął: jako się Panu upodobało, tak się stało: niech będzie imię Pańskie błogosławione.  
-V. Nagom wyszedł z żywota matki mojéj i nago się tam wrócę.  
-R. Pan dał, Pan odjął: jako się Panu upodobało, tak się stało: niech będzie imię Pańskie błogosławione.  
-  
-
-
-### Lectio2  
-*Hi 1:4-5*  
-4 I chadzali synowie jego i sprawowali uczty wedle domów, każdy dnia swego. I posławszy wzywali trzech sióstr swoich, aby z nimi jadały i piły.  
-5 A gdy się wkoło obeszły dni biesiady, posyłał do nich Job i poświęcał je, a wstawszy rano, ofiarował całopalenia za każdego z nich. Bo mówił: By snadź nie zgrzeszyli synowie moi a nie błogosławili Bogu w sercach swoich. Tak czynił Job po wszystkie dni.  
-  
-
-
-### Responsory2  
-R. Pierwéj niźli jem, wzdycham, a jako wzbierające wody, tak ryczenie moje: bo strach, któregom się lękał, przyszedł na mię, a czegom się obawiał, przydało się: Azam mimo się nie puszczał? zażem nie milczał? zażem nie był spokojny?  
-* A przyszło na mię zagniewanie.  
-V. Oto niemasz mnie pomocy we mnie: i powinowaci téż moi odstąpili odemnie.  
-R. A przyszło na mię zagniewanie.  
-  
-
-
-### Lectio3  
-*Hi 1:6-11*  
-6 A niektórego dnia, gdy przyszli synowie Boży, aby stali przed Panem, był téż między nimi i szatan.  
-7 Któremu rzekł Pan: Zkąd idziesz? który odpowiadając rzekł: Zkrążyłem ziemię i schodziłem ją.  
-8 I rzekł Pan do niego: A baczyłżeś Joba, sługę mego, że mu  niemasz na ziemi podobnego, człowiek szczery i prosty a bojący się Boga i odstępujący od złego?  
-9 Któremu szatan odpowiadając rzekł: Aza się Job darmo Boga boi?  
-10 Azażeś go ty nie ogrodził i dom jego i wszystkę majętność wokoło zewsząd? błogosławiłeś uczynkom rąk jego, i dobytek jego rozrósł się na ziemi.  
-11 Ale ściągnij trochę rękę twoję a dotknij wszystkiego, co ma, jeźlić w oczy błogosławić nie będzie.  
-  
-
-
-### Responsory3  
-R. Czemuście uwłoczyli mowom prawdy: na łajanie tylko mowę stroicie i staracie się wywrócić przyjaciela waszego.  
-* Waszakóż jednak, coście zaczęli, konajcie.  
-V. Co jest sprawiedliwo, osądźcie: i nie najdziecie w języku moim nieprawości.  
-R. Waszakóż jednak, coście zaczęli, konajcie.  
-Chwała Ojcu.  
-R. Waszakóż jednak, coście zaczęli, konajcie.  
-  
-
-
-### Responsory4  
-R. Ciało moje obleczone jest zgniłością i plugastwem prochu: skóra moja zeschła i pomarszczyła się:  
-* Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-V. Dni moje przeminęły prędzéj, niźli tkacz płótno obrzyna, i wytrawione są bez żadnéj nadzieje.  
-R. Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-  
-
-
-### Responsory5  
-R. Trocha dni moich nie skończy się wkrótce: puść mię tedy, że trochę opłaczę boleść moję,  
-* Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-V. Ręce twoje uczyniły mię i utworzyły mię wszystkiego wokoło: a tak mię nagle strącasz?  
-R. Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-  
-
-
-### Responsory6  
-R. A tedy się przed obliczem twojem nie skryję: rękę twoję oddal odemnie:  
-* A strach twój niech mię nie straszy.  
-V. Karz mię, Panie, w miłosierdziu, a nie w zapalczywości twojéj, abyś mię snadź wniwecz nie obrócił.  
-R. A strach twój niech mię nie straszy.  
-Chwała Ojcu.  
-R. A strach twój niech mię nie straszy.  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Arfa moja obróciła się w żałobę, i organy moje w głos płaczących:  
-* Przepuść mi Panie: boć nic nie są dni moje.  
-V. Zczerniała skóra moja na mnie, i kości moje wyschły od upalenia.  
-R. Przepuść mi Panie: boć nic nie są dni moje.  
-  
-
-
-### Lectio2  
-*Hi 1:17-19*  
-17 Ale gdy i ten jeszcze mówił, przyszedł inny i rzekł: Chaldejczycy uczynili trzy hufy i rzucili się na wielbłądy i zabrali je i pachołki pozabijali mieczem: a tylkom ja sam uciekł, abych ci oznajmił.  
-18 Jeszcze ten mówił, ali drugi wszedł i rzekł: Gdy synowie twoi i córki jedli i pili wino w domu brata swego pierworodnego,  
-19 Znagła wiatr gwałtowny przypadł od strony pustynie i zatrząsł czterema węgłami domu, który obaliwszy się przytłukł dzieci twoje, i pomarły, i wybiegałem się ja sam, abych ci oznajmił.  
-  
-
-
-### Responsory2  
-R. Daj, Boże, aby grzechy moje którymich gniew zasłużył:  
-* I nędza, którą cierpię, były włożone na wagę:  
-V. Jako piasek morski ta by się cięższa ukazała: ztądże i słowa moje pełne są boleści.  
-R. I nędza, którą cierpię, były włożone na wagę:  
-  
-
-
-### Lectio3  
-*Hi 1:20-22*  
-20 Tedy Job wstał i rozdarł szaty swoje, i ogoliwszy głowę, upadłszy na ziemię, pokłonił się,  
-21 I rzekł: Nagom wyszedł z żywota matki mojéj i nago się tam wrócę: Pan dał, Pan odjął: jako się Panu upodobało, tak się stało: niech będzie imię Pańskie błogosławione.   
-22 W tem wszystkiem nie zgrzeszył Job usty swemi i nic głupiego nie wyrzekł przeciw Bogu.  
-  
-
-
-### Responsory3  
-R. Czemuście uwłoczyli mowom prawdy: na łajanie tylko mowę stroicie i staracie się wywrócić przyjaciela waszego.  
-* Waszakóż jednak, coście zaczęli, konajcie.  
-V. Co jest sprawiedliwo, osądźcie: i nie najdziecie w języku moim nieprawości.  
-R. Waszakóż jednak, coście zaczęli, konajcie.  
-Chwała Ojcu.  
-R. Waszakóż jednak, coście zaczęli, konajcie.  
+### Ant 1  
+W tem wszystkiem * nie zgrzeszył Job usty swemi i nic głupiego nie wyrzekł przeciw Bogu.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Ciało moje obleczone jest zgniłością i plugastwem prochu: skóra moja zeschła i pomarszczyła się:  
-* Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-V. Dni moje przeminęły prędzéj, niźli tkacz płótno obrzyna, i wytrawione są bez żadnéj nadzieje.  
-R. Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-  
-  
-
-
-### Lectio2  
-*Hi 2:6-10*  
-6 I rzekł Pan do szatana: Oto w ręce twojéj jest, a wszakóż zachowaj duszę jego.  
-7 Wyszedłszy tedy szatan od oblicza Pana, zaraził Joba wrzodem bardzo złym od stopy nogi aż do wierzchu głowy jego:  
-8 Który ropę skorupą oskrobywał, siedząc na gnoju.  
-9 I rzekła mu żona jego: A jeszczeż trwasz w prostocie twojéj? Błogosław Bogu, a umrzyj.  
-10 Który rzekł do niéj: Jako jedna z niewiast szalonych rzekłaś. Jeźliśmy przyjęli dobra z ręki Bożéj, złego czemubyśmy przyjmować nie mieli? W tem wszystkiem Job nie zgrzeszył usty swemi.  
-  
-
-
-### Responsory2  
-R. Trocha dni moich nie skończy się wkrótce: puść mię tedy, że trochę opłaczę boleść moję,  
-* Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-V. Ręce twoje uczyniły mię i utworzyły mię wszystkiego wokoło: a tak mię nagle strącasz?  
-R. Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-  
-  
-
-
-### Lectio3  
-*Hi 2:11-13*  
-11 Usłyszawszy tedy trzéj przyjaciele Jobowi wszystko złe, które nań przypadło, przyszli każdy z miejsca swego, Eliphas Themanitczyk i Baldad Suhitczyk i Sophar Naamathczyk; bo się byli zmówili, żeby pospołu przyszedłszy nawiedzili go i cieszyli.  
-12 A podniósłszy zdaleka oczy swe, nie poznali go i zakrzyknąwszy płakali: a rozdarłszy szaty swe, sypali proch na głowy swe ku niebu.  
-13 I siedzieli z nim na ziemi siedm dni i siedm nocy, a żaden do niego słowa nie mówił; bo widzieli, że boleść była gwałtowna.  
-  
-
-
-### Responsory3  
-R. A tedy się przed obliczem twojem nie skryję: rękę twoję oddal odemnie:  
-* A strach twój niech mię nie straszy.  
-V. Karz mię, Panie, w miłosierdziu, a nie w zapalczywości twojéj, abyś mię snadź wniwecz nie obrócił.  
-R. A strach twój niech mię nie straszy.  
-Chwała Ojcu.  
-R. A strach twój niech mię nie straszy.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
- Błąd importu.
-
- Błąd importu.
-
-
-### Responsory1  
-R. Ciało moje obleczone jest zgniłością i plugastwem prochu: skóra moja zeschła i pomarszczyła się:  
-* Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-V. Dni moje przeminęły prędzéj, niźli tkacz płótno obrzyna, i wytrawione są bez żadnéj nadzieje.  
-R. Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-  
-  
-
-
-### Lectio2  
-*Hi 6:5-7*  
-5 Izali będzie ryczał leśny osieł, gdy ma trawę? albo wół będzie ryczał, gdy stanie u pełnego żłobu?  
-6 Albo możeli być jedzona rzecz niesmaczna, która nie jest osolona? albo może kto skosztować, co skosztowane śmierć przynosi?  
-7 Czego się przedtem dotknąć nie chciała dusza moja, teraz dla ucisku jest pokarmem moim.  
-  
-
-
-### Responsory2  
-R. Trocha dni moich nie skończy się wkrótce: puść mię tedy, że trochę opłaczę boleść moję,  
-* Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-V. Ręce twoje uczyniły mię i utworzyły mię wszystkiego wokoło: a tak mię nagle strącasz?  
-R. Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-  
-  
-
-
-### Lectio3  
-*Hi 6:8-13*  
-8 Ktoby dał, aby się stała prośba moja: a iżby mi Bóg dał, czego oczekawam.  
-9 A który począł, tenby mię ztarł! rozpuścił rękę swoję i wyciąłby mię!  
-10 Ażeby mi to było za pociechę, iż trapiąc mię boleścią nie folgował, anim się sprzeciwiał mowom Świętego.  
-11 Co bowiem za moc moja, żebych wytrwał? albo co za koniec mój, abym cierpliwie się sprawował?  
-12 Ani moc kamienna moc moja, ni ciało moje jest miedziane.  
-13 Oto niemasz mnie pomocy we mnie: i powinowaci téż moi odstąpili odemnie.  
-  
-
-
-### Responsory3  
-R. A tedy się przed obliczem twojem nie skryję: rękę twoję oddal odemnie:  
-* A strach twój niech mię nie straszy.  
-V. Karz mię, Panie, w miłosierdziu, a nie w zapalczywości twojéj, abyś mię snadź wniwecz nie obrócił.  
-R. A strach twój niech mię nie straszy.  
-Chwała Ojcu.  
-R. A strach twój niech mię nie straszy.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
- Błąd importu.
-
- Błąd importu.
-
-
-### Responsory1  
-R. Arfa moja obróciła się w żałobę, i organy moje w głos płaczących:  
-* Przepuść mi Panie: boć nic nie są dni moje.  
-V. Zczerniała skóra moja na mnie, i kości moje wyschły od upalenia.  
-R. Przepuść mi Panie: boć nic nie są dni moje.  
-  
-  
-
-
-### Lectio2  
-*Hi 27:6-10*  
-6 Usprawiedliwienia mego, któregom się jął trzymać, nie puszczę się; bo mię niewinuje serce moje we wszystkim żywocie moim.  
-7 Nieprzyjaciel mój niech będzie jako niezbożnik: a sprzeciwnik mój jako złośnik.  
-8 Co bowiem za nadzieja jest obłudnika, jeźli łakomie wydziera, a Bóg nie wybawia duszę jego.  
-9 Izali Bóg usłyszy wołanie jego, gdy nań przyjdzie ucisk?  
-10 Albo się będzie mógł w Wszechmocnym kochać i wzywać Boga na każdy czas?  
-  
-
-
-### Responsory2  
-R. Daj, Boże, aby grzechy moje którymich gniew zasłużył:  
-* I nędza, którą cierpię, były włożone na wagę:  
-V. Jako piasek morski ta by się cięższa ukazała: ztądże i słowa moje pełne są boleści.  
-R. I nędza, którą cierpię, były włożone na wagę:  
-  
-  
-
-
-### Lectio3  
-*Hi 27:11-15*  
-11 Nauczę was przez rękę Bożą, co ma Wszechmocny, i nie zataję.  
-12 Oto wy wszyscy wiecie, a czemuż bez przyczyny mówicie próżne rzeczy?  
-13 Ta jest część człowieka niezbożnego u Boga, i dziedzictwo gwałtowników, które od Wszechmocnego wezmą.  
-14 Jeźli się rozmnożą synowie jego, pod mieczem będą: a wnukowie jego nie najedzą się chleba.  
-15 Którzy zostaną z niego, będą pogrzebieni w zatraceniu, a wdowy jego płakać nie będą.  
-  
-
-
-### Responsory3  
-R. Czemuście uwłoczyli mowom prawdy: na łajanie tylko mowę stroicie i staracie się wywrócić przyjaciela waszego.  
-* Waszakóż jednak, coście zaczęli, konajcie.  
-V. Co jest sprawiedliwo, osądźcie: i nie najdziecie w języku moim nieprawości.  
-R. Waszakóż jednak, coście zaczęli, konajcie.  
-Chwała Ojcu.  
-R. Waszakóż jednak, coście zaczęli, konajcie.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Ciało moje obleczone jest zgniłością i plugastwem prochu: skóra moja zeschła i pomarszczyła się:  
-* Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-V. Dni moje przeminęły prędzéj, niźli tkacz płótno obrzyna, i wytrawione są bez żadnéj nadzieje.  
-R. Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-  
-  
-
-
-### Lectio2  
-*Hi 28:17-22*  
-17 Nie zrówna z nią złoto ani kryształ, ani będą zamienione za nię naczynia złote.  
-18 Wysokie i wyniosłe rzeczy nie będą spomienione ku przyrównaniu jéj: ale wyciągana bywa mądrość z skrytości.  
-19 Nie zrówna z nią Topazyusz z Ethyopii, ani jéj przyrównają do najczystszéj farby.  
-20 Zkądże tedy mądrość pochodzi? i które jest miejsce rozumu?  
-21 Skryta jest od oczu wszystkich żywiących: ptacy téż niebiescy nie wiedzą o niéj.  
-22 Zatracenie i śmierć rzekły: Uszyma naszemi słyszeliśmy sławę jéj.  
-  
-
-
-### Responsory2  
-R. Trocha dni moich nie skończy się wkrótce: puść mię tedy, że trochę opłaczę boleść moję,  
-* Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-V. Ręce twoje uczyniły mię i utworzyły mię wszystkiego wokoło: a tak mię nagle strącasz?  
-R. Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-  
-  
-
-
-### Lectio3  
-*Hi 28:23-28*  
-23 Bóg rozumie drogę jéj i on wie miejsce jéj.  
-24 On bowiem widzi kraje świata i na wszystko, co jest pod niebem, patrzy.  
-25 Który uczynił wiatrom wagę i wody zawiesił pod miarą.  
-26 Gdy stanowił dżdżom prawa i drogę nawałnościom szumiącym:  
-27 Tedy ją widział i opowiedział i nagotował i wyśladował.  
-28 I rzekł człowiekowi: Oto bojaźń Pańska, ta jest mądrość, a warować się złego, rozum.  
-  
-
-
-### Responsory3  
-R. A tedy się przed obliczem twojem nie skryję: rękę twoję oddal odemnie:  
-* A strach twój niech mię nie straszy.  
-V. Karz mię, Panie, w miłosierdziu, a nie w zapalczywości twojéj, abyś mię snadź wniwecz nie obrócił.  
-R. A strach twój niech mię nie straszy.  
-Chwała Ojcu.  
-R. A strach twój niech mię nie straszy.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
- Błąd importu.
-
-
-### Responsory1  
-R. Jeźliśmy przyjęli dobra z ręki Bożéj, złego czemubyśmy przyjmować nie mieli?  
-* Pan dał, Pan odjął: jako się Panu upodobało, tak się stało: niech będzie imię Pańskie błogosławione.  
-V. Nagom wyszedł z żywota matki mojéj i nago się tam wrócę.  
-R. Pan dał, Pan odjął: jako się Panu upodobało, tak się stało: niech będzie imię Pańskie błogosławione.  
-  
-  
-
-
-### Lectio2  
-*Hi 38:8-13*  
-8 Kto zamknął drzwiami morze, gdy się wyrywało, jakoby z żywota wychodząc?  
-9 Gdym kładł obłok szatę jego i mrokiem jako pieluchami dziecinnemi obwijał?  
-10 Obtoczyłem je granicami memi i przyprawiłem zaworę i drzwi,  
-11 I rzekłem: Aż poty przyjdziesz, a daléj nie postąpisz i tu rozbijesz nadęte wały twoje.  
-12 Azaś ty po narodzeniu twojem rozkazał świtaniu, i ukazałeś zorzy miejsce jéj?  
-13 I trzymałeś strząsając kończyny ziemie, i wytrząsnąłeś z niéj niepobożne?  
-  
-
-
-### Responsory2  
-R. Pierwéj niźli jem, wzdycham, a jako wzbierające wody, tak ryczenie moje: bo strach, któregom się lękał, przyszedł na mię, a czegom się obawiał, przydało się: Azam mimo się nie puszczał? zażem nie milczał? zażem nie był spokojny?  
-* A przyszło na mię zagniewanie.  
-V. Oto niemasz mnie pomocy we mnie: i powinowaci téż moi odstąpili odemnie.  
-R. A przyszło na mię zagniewanie.  
-  
-  
-
-
-### Lectio3  
-*Hi 38:14-20*  
-14 Będzie przywrócona jako błoto pieczęć, i będzie stała jako odzienie:  
-15 Odjęta będzie od niezbożników światłość ich, i ramię wysokie złamane będzie.  
-16 Azaś wszedł do głębokości morskich i przechodziłeś się po dnie przepaści?  
-17 Azać otworzone są bramy śmierci, i widziałeś drzwi ciemne?  
-18 Azaś oglądał szerokość ziemie? powiedz mi, jeźli wiesz wszystko?  
-19 Na któréj drodze światłość mieszka? a ciemności które jest miejsce?  
-20 Abyś przywiódł każde ku końcowi swemu a wyrozumiał ścieżki domu jego.  
-  
-
-
-### Responsory3  
-R. Czemuście uwłoczyli mowom prawdy: na łajanie tylko mowę stroicie i staracie się wywrócić przyjaciela waszego.  
-* Waszakóż jednak, coście zaczęli, konajcie.  
-V. Co jest sprawiedliwo, osądźcie: i nie najdziecie w języku moim nieprawości.  
-R. Waszakóż jednak, coście zaczęli, konajcie.  
-Chwała Ojcu.  
-R. Waszakóż jednak, coście zaczęli, konajcie.  
-  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Ciało moje obleczone jest zgniłością i plugastwem prochu: skóra moja zeschła i pomarszczyła się:  
-* Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-V. Dni moje przeminęły prędzéj, niźli tkacz płótno obrzyna, i wytrawione są bez żadnéj nadzieje.  
-R. Wspomnij, mnie Panie, iż żywot mój wiatrem jest.  
-  
-  
-
-
-### Lectio2  
-*Hi 40:6-11*  
-6 Rozprósz harde w zapalczywości twojéj, a wejrzawszy na wszelkiego hardego, poniż.  
-7 Wejrzyj na wszystkie pyszne, a zelżyj je: i zetrzyj niezbożnika na miejscu ich.  
-8 Zakryj je w prochu pospołu, a oblicza ich ponurz w dół.  
-9 I ja przyznam, że cię może zbawić prawica twoja.  
-10 Oto Behemot, któregom uczynił z tobą, będzie jadł siano jako wół.  
-11 Moc jego w biodrach jego, a siła jego w pępku brzucha jego.  
-  
-
-
-### Responsory2  
-R. Trocha dni moich nie skończy się wkrótce: puść mię tedy, że trochę opłaczę boleść moję,  
-* Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-V. Ręce twoje uczyniły mię i utworzyły mię wszystkiego wokoło: a tak mię nagle strącasz?  
-R. Pierwéj niż pójdę, do ziemie ciemnéj i okrytéj mgłą śmierci.  
-  
-  
-
-
-### Lectio3  
-*Hi 42:1-6*  
-1 A Job odpowiadając Panu, rzekł:  
-2 Wiem, iż wszystko możesz, a nie jest ci żadna myśl tajna.  
-3 Któż jest taki, co tai radę bez umiejętności? przetom niemądrze mówił i to, co nad miarę przechodziło wiadomość moję.  
-4 Słuchaj, i ja będę mówił: spytam cię, a odpowiedz mi.  
-5 Słuchem ucha słyszałem cię: a teraz oko moje widzi cię.  
-6 Przetóż sam siebie winuję i czynię pokutę w perzu i w popiele.  
-  
-
-
-### Responsory3  
-R. A tedy się przed obliczem twojem nie skryję: rękę twoję oddal odemnie:  
-* A strach twój niech mię nie straszy.  
-V. Karz mię, Panie, w miłosierdziu, a nie w zapalczywości twojéj, abyś mię snadź wniwecz nie obrócił.  
-R. A strach twój niech mię nie straszy.  
-Chwała Ojcu.  
-R. A strach twój niech mię nie straszy.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
- Błąd importu.
 
 
 ### Ant 1  
 Nie pamiętaj, * Panie, na występki moje abo rodziców moich: ani nie mści się za grzechy moje.  
   
-
-
-### Responsory1  
-R. Proszę, Panie, abyś mię od związku tego urągania wybawił abo mię więc wyrwał z ziemie:  
-* Nie pamiętaj na występki moje abo rodziców moich, a nie mści się za grzechy moje: bo wyrywasz czekających na cię, Panie.  
-V. Wszystkie sądy twoje są sprawiedliwe, i wszystkie drogi twoje miłosierdzie i prawda: teraz Panie, pamiętaj o mnie.  
-R. Nie pamiętaj na występki moje abo rodziców moich, a nie mści się za grzechy moje: bo wyrywasz czekających na cię, Panie.  
-  
-
-
-### Lectio2  
-*Tb 1:5-10*  
-5 Na ostatek, gdy wszyscy chodzili do cielców złotych, które był sprawił Jeroboam, król Izraelski, ten sam chronił się towarzystwa wszytkich,  
-6 ale chodził do Jeruzalem do kościoła Pańskiego i tam się kłaniał Panu Bogu Izraelowemu, wszytkie pierworodztwa swe i dziesięciny swe wiernie ofiarując,  
-7 tak iż trzeciego roku nowo nawróconym i przychodniom wszytkę dziesięcinę dawał.  
-8 Te rzeczy i inne tym podobne według Zakonu Bożego dziecięciem będąc, zachowywał.  
-9 A gdy się zstał mężem, pojął żonę Annę z pokolenia swego i zrodził z niej syna, dając mu imię swe,  
-10 którego nauczył z dzieciństwa bać się Pana Boga i wstrzymać się od wszelkiego grzechu.  
-  
-
-
-### Responsory2  
-R. W każdym czasie błogosław Boga i proś Go, aby prostował twoje drogi  
-* I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-V. Staraj się, żebyś to czynił, co Mu się podoba, w prawdzie i całą swą mocą.  
-R. I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-  
-
-
-### Lectio3  
-*Tb 1:11-15*  
-11 A tak gdy przez poimanie przyszedł z żoną swą i z synem do miasta Niniwen ze wszytkim pokoleniem swoim  
-12 (gdy wszyscy pożywali z pokarmów pogańskich), on strzegł dusze swej i nigdy się ich pokarmami nie splugawił.  
-13 A iż pomniał na Pana ze wszytkiego serca swego, dał mu Bóg łaskę przed oczyma Salmanazara króla,  
-14 i dał mu wolność iść, gdzie by kolwiek chciał, mając wolność czynić, co by kolwiek chciał.  
-15 Chodził tedy do wszytkich, którzy w poimaniu byli i dawał im napominania zbawienne.  
-  
-
-
-### Responsory3  
-R. Pamiętaj, synu, że wiedziemy ubogie życie.  
-* Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-V. Miej Go w pamięci i strzeż się, abyś nie przestąpił Jego przykazań! Pozyskasz.  
-R. Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-Chwała Ojcu.  
-R. Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-  
-
-
-### Responsory4  
-R. Dosyć nam było na ubóstwie naszym, że mogliśmy je za bogactwo poczytać. Bodajby nigdy nie było tych pieniędzy, po które posłałeś naszego syna,  
-* Podporę starości naszej.  
-V. Biada mi, czemu cię w kraj daleki posłaliśmy, synu mój, światło naszych oczu.  
-R. Podporę starości naszej.  
-  
-
-
-### Responsory5  
-R. Błogosławcie Boga niebios i wysławiajcie Go przed wszystkimi żyjącymi,  
-* Bo wyświadczył wam miłosierdzie swoje.  
-V. Jego błogosławcie i Jemu śpiewajcie, opowiadajcie o wszystkich Jego cudach.  
-R. Bo wyświadczył wam miłosierdzie swoje.  
-  
-
-
-### Responsory6  
-R. Czas jest, żebym powrócił do Tego, który mnie posłał.  
-* A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-V. Wysławiajcie Go przed wszystkimi żyjącymi, bo wyświadczył wam miłosierdzie swoje.  
-R. A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-Chwała Ojcu.  
-R. A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-  
-
-
-### Responsory7  
-R. Usłyszeliśmy o nieszczęściach miast, których doznały, i osłabliśmy; strach i niemoc ducha spadły na nas i na dzieci nasze; nawet góry nie chcą nam udzielić schronienia.  
-* Panie, zmiłuj się.  
-V. Zgrzeszyliśmy razem z ojcami naszymi, postępowaliśmy niesprawiedliwie i popełnialiśmy niegodziwości.  
-R. Panie, zmiłuj się.  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Proszę, Panie, abyś mię od związku tego urągania wybawił abo mię więc wyrwał z ziemie:  
-* Nie pamiętaj na występki moje abo rodziców moich, a nie mści się za grzechy moje: bo wyrywasz czekających na cię, Panie.  
-V. Wszystkie sądy twoje są sprawiedliwe, i wszystkie drogi twoje miłosierdzie i prawda: teraz Panie, pamiętaj o mnie.  
-R. Nie pamiętaj na występki moje abo rodziców moich, a nie mści się za grzechy moje: bo wyrywasz czekających na cię, Panie.  
-  
-  
-
-
-### Lectio2  
-*Tb 2:8-12*  
-8 A wszyscy bliscy jego strofowali go, mówiąc: Już cię dla tej przyczyny kazano zabić i zaledwieś uszedł skazania na śmierć, a znowu grzebiesz umarłe?  
-9 Ale Tobiasz, więcej się bojąc Boga niżli króla, porywał ciała zabitych i krył w domu swym, a o północy je grzebł.  
-10 I trafiło się, że jednego dnia, będąc spracowany z pogrzebu, przyszedszy do domu swego porzucił się podle ściany i zasnął,  
-11 a z gniazda jaskółczego, gdy spał, gorący gnój upadł na oczy jego i zstał się ślepym.  
-12 A tę pokusę dlatego Bóg nań przepuścił, żeby potomkom był dan przykład cierpliwości jego jako Hioba świętego.  
-  
-
-
-### Responsory2  
-R. W każdym czasie błogosław Boga i proś Go, aby prostował twoje drogi  
-* I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-V. Staraj się, żebyś to czynił, co Mu się podoba, w prawdzie i całą swą mocą.  
-R. I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-  
-  
-
-
-### Lectio3  
-*Tb 2:13-18*  
-13 Bo gdyż z młodości swej zawżdy się Boga bał i strzegł przykazania jego, nie zasmucił się przeciw Bogu, że plaga ślepoty potkała go,  
-14 ale nieporuszony trwał w bojażni Bożej, dziękując Bogu przez wszytki e dni żywota swego.  
-15 Bo jako świętemu Hiobowi urągali królowie, tak i temu powinni i krewni jego naśmiewali się z żywota jego, mówiąc:  
-16 Gdzież jest nadzieja twoja, dla którejeś jałmużny i pogrzeby czynił?  
-17 Ale Tobiasz strofował je, mówiąc: Nie mówcie tak,  
-18 bo jesteśmy synowie świętych i żywota onego czekamy, który Bóg da tym, którzy wiary swej nigdy nie odmieniają od niego.  
-  
-
-
-### Responsory3  
-R. Czas jest, żebym powrócił do Tego, który mnie posłał.  
-* A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-V. Wysławiajcie Go przed wszystkimi żyjącymi, bo wyświadczył wam miłosierdzie swoje.  
-R. A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-Chwała Ojcu.  
-R. A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Dosyć nam było na ubóstwie naszym, że mogliśmy je za bogactwo poczytać. Bodajby nigdy nie było tych pieniędzy, po które posłałeś naszego syna,  
-* Podporę starości naszej.  
-V. Biada mi, czemu cię w kraj daleki posłaliśmy, synu mój, światło naszych oczu.  
-R. Podporę starości naszej.  
-  
-  
-
-
-### Lectio2  
-*Tb 2:22-23; 3:1-3*  
-22 Na to żona jego, rozgniewawszy się, odpowiedziała: Jawnieć próżna zstała się nadzieja twoja i jałmużny twoje teraz się okazały.  
-23 I temi i inszemi takimi słowy urągała mu.  
-1 Westchnął tedy Tobiasz i począł się modlić z płaczem,  
-2 mówiąc: Sprawiedliwyś jest Panie i wszystkie ssądy twoje są sprawiedliwe, i wszystkie drogi twoje miłosierdzie i prawda, i sąd.  
-3 A teraz, Panie, wspomni na mię, a nie mści się za grzechy moje ani pamiętaj na występki moje abo rodziców moich.  
-  
-
-
-### Responsory2  
-R. Błogosławcie Boga niebios i wysławiajcie Go przed wszystkimi żyjącymi,  
-* Bo wyświadczył wam miłosierdzie swoje.  
-V. Jego błogosławcie i Jemu śpiewajcie, opowiadajcie o wszystkich Jego cudach.  
-R. Bo wyświadczył wam miłosierdzie swoje.  
-  
-  
-
-
-### Lectio3  
-*Tb 3:4-6*  
-4 Bodeśmy nie zachowali przykazania twego, przetożeśmy wydani na łup i w niewolnictwo, i na śmierć, i na obmowisko, i na pośmiech wszytkim narodom, między któreś nas rozproszył.  
-5 A teraz, Panie, wielkie sądy twoje: iżeśmy nie czynili według przykazania twego i nie chodziliśmy szczerze przed tobą.  
-6 A teraz, Panie, uczyń ze mną według wolej twojej a rozkaż w pokoju wziąć ducha mego, bo mi daleko lepiej umrzeć, niżli żyć.  
-  
-
-
-### Responsory3  
-R. Czas jest, żebym powrócił do Tego, który mnie posłał.  
-* A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-V. Wysławiajcie Go przed wszystkimi żyjącymi, bo wyświadczył wam miłosierdzie swoje.  
-R. A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-Chwała Ojcu.  
-R. A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Usłyszeliśmy o nieszczęściach miast, których doznały, i osłabliśmy; strach i niemoc ducha spadły na nas i na dzieci nasze; nawet góry nie chcą nam udzielić schronienia.  
-* Panie, zmiłuj się.  
-V. Zgrzeszyliśmy razem z ojcami naszymi, postępowaliśmy niesprawiedliwie i popełnialiśmy niegodziwości.  
-R. Panie, zmiłuj się.  
-  
-  
-
-
-### Lectio2  
-W słowach ojca: I rzekłem uczniom Twoim, aby go wyrzucili, ale nie mogli, kryje się oskarżenie Apostołów. Jednak niemożność uleczenia wynika czasem nie ze słabości lekarzy, lecz z wiary tych, którzy mają być uzdrowieni. Albowiem tak mówi Pan: Niechże ci się stanie według wiary twojej. A On, odpowiadając im, rzekł: „O plemię niewierne, dokądże to wśród was będę? Jak długo cierpieć was będę?” Nie oznacza to, że uległ niechęci Ten, co był łagodny i cichy, co jak baranek wobec strzygącego nie otworzył ust swoich, albo że dał ujście swemu rozgniewaniu. On tylko, na podobieństwo lekarza, który widzi, że chory postępuje wbrew jego wskazaniom, tak zdawał się mówić: „Dokądże mam przychodzić do twego domu? Dokądże będę na próżno wykonywał swój zawód, skoro jedno ci zalecam, a ty czynisz co innego?”  
-  
-
-
-### Responsory2  
-R. W każdym czasie błogosław Boga i proś Go, aby prostował twoje drogi  
-* I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-V. Staraj się, żebyś to czynił, co Mu się podoba, w prawdzie i całą swą mocą.  
-R. I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-  
-  
-
-
-### Lectio3  
-I rzekł im: Ten rodzaj żadnym sposobem wyjść nie może, jak tylko przez modlitwę i post. Pouczając Apostołów, jak należy wygonić szczególnie złośliwego demona, Chrystus daje wszystkim wzór postępowania w życiu. Dzięki temu dowiadujemy się, że wszelkie najcięższe pokusy, czy to diabelskie, czy to ludzkie, winno się pokonać przez posty i modlitwy. W dokładnie taki sam sposób można uśmierzyć gniew Boga, rozpalający się, aby nas ukarać za grzechy. Post zaś, w sensie ogólnym, oznacza nie tylko odmawiania sobie pokarmów, lecz wszystkich pokus cielesnych, a na pewno polega na powstrzymywaniu się od każdej uległości wobec grzechu. Tak samo i modlitwa, rozumiana w szerszym znaczeniu, nie składa się wyłącznie ze słów, przez które wzywamy Bożej łaskawości, lecz także z wszystkiego, co czynimy, by naszemu Stwórcy oddać hołd gorliwą wiarą.  
-  
-
-
-### Responsory3  
-R. Pamiętaj, synu, że wiedziemy ubogie życie.  
-* Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-V. Miej Go w pamięci i strzeż się, abyś nie przestąpił Jego przykazań! Pozyskasz.  
-R. Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-Chwała Ojcu.  
-R. Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-  
-  
 
 
 ### Ant 2  
@@ -17487,97 +10104,7 @@ Przez Pana.
 Ten rodzaj * demona żadnym sposobem wyjść nie może, jedno za modlitwą i postem.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Proszę, Panie, abyś mię od związku tego urągania wybawił abo mię więc wyrwał z ziemie:  
-* Nie pamiętaj na występki moje abo rodziców moich, a nie mści się za grzechy moje: bo wyrywasz czekających na cię, Panie.  
-V. Wszystkie sądy twoje są sprawiedliwe, i wszystkie drogi twoje miłosierdzie i prawda: teraz Panie, pamiętaj o mnie.  
-R. Nie pamiętaj na występki moje abo rodziców moich, a nie mści się za grzechy moje: bo wyrywasz czekających na cię, Panie.  
-  
-  
-
-
-### Lectio2  
-*Tb 12:5-10*  
-5 I przyzwawszy go, to jest ociec i z synem, odwiedli go na stronę i poczęli prosić, żeby raczył za dobre przyjąć połowicę wszytkiego, co przynieśli.  
-6 Tedy im powiedział potajemnie: Błogosławcie Boga Niebieskiego a przed wszytkimi żywiącymi wyznawajcie mu, bo uczynił nad wami miłosierdzie swoje.  
-7 abowiem tajemnicę królewską taić dobrze jest ale sprawy Boskie objawiać i wyznawać poczciwa rzecz jest  
-8 Dobra jest modlitwa z postem i z jałmużną, więcej niżli skarby złota chować,  
-9 abowiem jałmużna od śmierci wybawia i ona jest, która oczyściła grzechy i czyni, że się najduje miłosierdzie i żywot wieczny.  
-10 A ci, którzy czynią grzech i nieprawość, są nieprzyjaciele dusze swojej.  
-  
-
-
-### Responsory2  
-R. W każdym czasie błogosław Boga i proś Go, aby prostował twoje drogi  
-* I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-V. Staraj się, żebyś to czynił, co Mu się podoba, w prawdzie i całą swą mocą.  
-R. I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-  
-  
-
-
-### Lectio3  
-*Tb 12:11-17*  
-11 Objawiam wam tedy prawdę i nie zataję przed wami tajemnej mowy.  
-12 Gdyś się modliwał z płaczem i pogrzebałeś umarłe, i zostawiałeś obiad twój a kryłeś umarłe przez dzień w domu twoim, a w nocyś je pogrzebał: jam ofiarował twoję modlitwę Panu.  
-13 A iżeś był przyjemny Bogu, potrzeba było, aby cię pokusa doświadczyła.  
-14 A teraz posłał mię Pan, abych cię uzdrowił, i Sarę, żonę syna twego, od czarta wybawił.  
-15 Jam jest bowiem Rafael Anjoł, je den z siedmi, którzy stojemy przed Panem.  
-16 A gdy to usłyszeli, strwożyli się, i drżąc padli na ziemię na oblicze swoje.  
-17 I rzekł im Anioł: Pokój wam, nie bójcie się!  
-  
-
-
-### Responsory3  
-R. Pamiętaj, synu, że wiedziemy ubogie życie.  
-* Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-V. Miej Go w pamięci i strzeż się, abyś nie przestąpił Jego przykazań! Pozyskasz.  
-R. Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-Chwała Ojcu.  
-R. Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Responsory1  
-R. Dosyć nam było na ubóstwie naszym, że mogliśmy je za bogactwo poczytać. Bodajby nigdy nie było tych pieniędzy, po które posłałeś naszego syna,  
-* Podporę starości naszej.  
-V. Biada mi, czemu cię w kraj daleki posłaliśmy, synu mój, światło naszych oczu.  
-R. Podporę starości naszej.  
-  
-  
-
-
-### Lectio2  
-Jeśli więc wykonujemy dobre czyny, którymi przepełniamy Kościół wonią dobrej sławy, to czyż nie namaszczamy ciała Pana wonnym olejkiem? Lecz niewiasta stanęła z tyłu u nóg Jezusa. Stoimy bowiem naprzeciw nóg Pana, jeśli będąc w grzechach, nie chcemy iść Jego drogami. Jeśli zaś po grzechach nawracamy się przez prawdziwą pokutę, to stoimy z tyłu u nóg Pana, idziemy bowiem śladami Tego, którego zwalczaliśmy. Łzami niewiasta zlewa Jego nogi. To samo z całą prawdą czynimy, jeśli do choćby najmniejszych członków ciała Pańskiego przejęci współczuciem się schylamy; jeśli z Jego świętymi w ich smutkach współczujemy, jeśli ich smutek za swój uważamy.  
-  
-
-
-### Responsory2  
-R. Błogosławcie Boga niebios i wysławiajcie Go przed wszystkimi żyjącymi,  
-* Bo wyświadczył wam miłosierdzie swoje.  
-V. Jego błogosławcie i Jemu śpiewajcie, opowiadajcie o wszystkich Jego cudach.  
-R. Bo wyświadczył wam miłosierdzie swoje.  
-  
-  
-
-
-### Lectio3  
-Włosami więc nogi Pana ścieramy, gdy Jego świętym, z którymi współczujemy, kierując się miłością, z tego, co nam zbywa, udzielamy pomocy. Duch pod wpływem litości winien odczuwać taką boleść, aby jej objawem była hojna ręka. Ten więc obmywa łzami nogi Odkupiciela, ale swymi włosami ich nie ociera, kto, choć współczuje z cierpieniem bliźnich, lecz z tego, co mu zbywa, nie udziela pomocy. Płacze, a nie ociera, kto, choć słowami wyraża współczucie, ale nie zaradzając brakom, siły cierpienia wcale nie zmniejsza. Niewiasta całuje nogi, które ociera, i my to czynimy doskonale, jeśli gorąco kochamy tych, których w swej hojności wspieramy. Bieda bliźniego nie powinna być dla nas ciężarem; zaradzenie jego potrzebom nie ma być dla nas uciążliwe. Jeśli ręka udziela tego, co konieczne, duchowi nie powinno brakować miłości.  
-  
-
-
-### Responsory3  
-R. Czas jest, żebym powrócił do Tego, który mnie posłał.  
-* A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-V. Wysławiajcie Go przed wszystkimi żyjącymi, bo wyświadczył wam miłosierdzie swoje.  
-R. A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-Chwała Ojcu.  
-R. A wy błogosławcie Boga i opowiadajcie o wszystkich Jego cudach.  
-  
-  
 
 
 ### Ant 2  
@@ -17597,45 +10124,6 @@ Niewiasta, * która była w mieście grzesznica, stanąwszy z tyłu u nóg jego,
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory1  
-R. Usłyszeliśmy o nieszczęściach miast, których doznały, i osłabliśmy; strach i niemoc ducha spadły na nas i na dzieci nasze; nawet góry nie chcą nam udzielić schronienia.  
-* Panie, zmiłuj się.  
-V. Zgrzeszyliśmy razem z ojcami naszymi, postępowaliśmy niesprawiedliwie i popełnialiśmy niegodziwości.  
-R. Panie, zmiłuj się.  
-  
-  
-
-
-### Lectio2  
-Cóż oznacza drzewo figowe, jeśli nie ludzką naturę? A czy pochylona niewiasta nie wyraża i nie wskazuje tejże natury? Natura ta, jak figa, należycie była zasadzona i, jak niewiasta, dobrze była stworzona; dobrowolnie jednak zawiniła i nie wydaje owoców dobrych czynów, ani nie zachowuje sprawiedliwości. Z własnej woli grzech popełniła, a ponieważ nie chciała wydać owocu posłuszeństwa, utraciła stan prawości. Stworzona na podobieństwo Boga nie wytrwała w swej wzniosłej godności i wzgardziła tym, do czego była zasadzona i stworzona. Po raz trzeci właściciel przychodzi do winnicy, bo szukał ludzkiej natury przed Prawem, pod Prawem, pod łaską, wyczekując, upominając, nawiedzając.  
-  
-
-
-### Responsory2  
-R. W każdym czasie błogosław Boga i proś Go, aby prostował twoje drogi  
-* I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-V. Staraj się, żebyś to czynił, co Mu się podoba, w prawdzie i całą swą mocą.  
-R. I aby wszystkie twoje zamiary nigdy nie oddaliły się od Niego.  
-  
-  
-
-
-### Lectio3  
-Pan przybył przed Prawem, ponieważ naturalnym działaniem rozumu wskazał każdemu, jak ma postępować względem bliźniego. Przybył pod Prawem, gdyż nakazując, pouczył. Przybył po Prawie przez łaskę, okazał bowiem swą obecnością, jak jest miłosierny. A jednak żali się, iż przez trzy lata nie znalazł żadnego owocu, gdyż natchnione Prawo naturalne niektórych złych umysłów nie poprawia, ani nakazy nie nauczają, ani nie nawracają cuda Jego wcielenia. A czyż uprawiający nie wyraża zwierzchników? Ci mianowicie, przewodnicząc w Kościele, uprawiają winnicę Pana.  
-  
-
-
-### Responsory3  
-R. Pamiętaj, synu, że wiedziemy ubogie życie.  
-* Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-V. Miej Go w pamięci i strzeż się, abyś nie przestąpił Jego przykazań! Pozyskasz.  
-R. Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-Chwała Ojcu.  
-R. Pozyskasz wielkie dobra, jeśli będziesz bał się Boga.  
-  
-  
-
-
 ### Ant 2  
 Oświeć, Panie, * siedzące w ciemnościach i w cieniu śmierci, i prowadź nogi nasze na drogi pokoju.  
   
@@ -17650,345 +10138,242 @@ Przez Pana.
 ### Ant 1  
 Adonai, Panie, * Boże wielki i chwalebny, który włożyłeś zbawienie w rękę niewiasty, wysłuchaj modlitwy sług swoich.  
   
-
-
-### Lectio2  
-*Jdt 1:5-9*  
-5 Roku tedy dwunastego królestwa jego, Nabuchodonozor, król Asyryjski, który królował w Niniwe, mieście wielkim, walczył przeciwko Arfaksad i zwyciężył go  
-6 na polu wielkim, które zową Ragau, nad Eufratesem i Tygrem, i Jadasonem na polu Erioch, króla Elików.  
-7 Tedy się wyniosło królestwo Nabuchodonozorowe i podniosło się serce jego, i posłał do wszytkich, którzy mieszkali w Cylicijej i w Damaszku, i w Libanie,  
-8 i do narodów, którzy są w Karmelu i w Cedar, i do obywatelów Galilejskich na wielkim polu Esdrelon,  
-9 i do wszytkich, którzy byli w Samaryjej i za rzeką Jordanem aż do Jeruzalem, i wszytkiej ziemie Jesse, aż przyjdziesz do granic Etiopskich.  
-  
-
-
-### Responsory2  
-R. Usłyszeliśmy o nieszczęściach miast, których doznały, i osłabliśmy; strach i niemoc ducha spadły na nas i na dzieci nasze; nawet góry nie chcą nam udzielić schronienia.  
-* Panie, zmiłuj się.  
-V. Zgrzeszyliśmy razem z ojcami naszymi, postępowaliśmy niesprawiedliwie i popełnialiśmy niegodziwości.  
-R. Panie, zmiłuj się.  
-  
-  
-
-
-### Lectio3  
-*Jdt 1:10-12; 2:1-3*  
-10 Do tych wszytkich posłał posły Nabuchodonozor, król Asyryjski.  
-11 Którzy wszyscy jedną myślą odmówili i z niczym je odprawili a bez uczciwości odrzucili.  
-12 Tedy rozgniewawszy się król Nabuchodonozor na onę wszytkę ziemię, przysiągł przez stolicę i przez królestwo swe, że się miał bronić od wszytkich krain tych.  
-1 Roku trzynastego Nabuchodonozora króla, dwudziestko i wtórego dnia miesiąca pierwszego zstało się słowo w domu Nabuchodonozora, króla Asyryjczyków, żeby się bronił.  
-2 I zezwał wszytkie starsze i wszytkie hetmany, i rycerstwo swe, i miał z nimi tajemnicę rady swej.  
-3 I powiedział, że na tym jest myśl jego, aby wszytkę ziemię podbił pod moc swoję.  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
+### Ant 1  
+Panie Królu wszechmogący * władzy Twojej wszystko jest poddane, i nie ma nikogo, kto mógłby sprzeciwić się Twej woli.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Ant 1  
 Niech otworzy Pan * serca wasze w Zakonie swym i przykazaniu swym a niech uczyni pokój Pan Bóg nasz.  
   
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*1 Mch 1:8-11*  
-8 A królował Aleksander przez dwanaście lat, i umarł.  
-9 I odzierżeli słudzy jego królestwo, każdy na swym miejscu.  
-10 I włożyli na się korony wszyscy po śmierci jego i synowie ich po nich przez wiele lat, i namnożyło się złego na ziemi.  
-11 I wyszedł z nich korzeń grzeszny, Antioch Oświecony, syn Antiocha króla, który był w zakładzie w Rzymie i królował roku setnego trzydziestego i siódmego królestwa Greckiego.  
+### Ant 1  
+Zaświeciło słońce * w tarczach złotych, i zalśniły góry od nich, a siła Narodów rozproszyła się.  
   
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio3  
-*1 Mch 1:12-16*  
-12 W one dni wyszli z Izraela synowie niezbożni i namówili wielu, mówiąc: Pódżmy a uczyńmy przymierze z narody, które około nas są, bo od tego czasu, jakośmy od nich odstąpili, wiele złego nas nalazło.  
-13 I zdała się dobra mowa w oczach ich.  
-14 I postanowili niektórzy z ludu, i jachali do króla: i dał im moc, aby czynili sprawiedliwość poganów.  
-15 I zbudowali w Jeruzalem szkołę według praw pogańskich.  
-16 I uczynili sobie odrzezld, i odstąpili od przymierza świętego, i sprzęgli się z pogany, i zaprzedani są, aby złe czynili.  
+### Ant 1  
+Opłakiwał zaś Judę * Izrael płaczem wielkim, i mówił: Jakże upadłeś, potężny w walce, który ratunek dałeś ludowi Pańskiemu?  
   
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
+### Ant 1  
+Niech Pan * wysłucha modlitwy wasze, a niech was w łaskę przyjmie: ani was niech nie opuszcza czasu złego Pan Bóg nasz.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+
+
+### Ant 1  
+Twoje jest potęga * Twoje królestwo Panie, Ty jesteś ponad narodami: daj pokój Panie w dniach naszych.  
   
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*1 Mch 1:21-23*  
-21 I wrócił się Antioch, jako poraził Egipt, roku setnego czterdziestego i trzeciego, i ciągnął do Izraela.  
-22 I przyciągnął do Jeruzalem z mnóstwem wielkim.  
-23 I wszedł do świątynie z pychą, i wziął ołtarz złoty, i lichtarz światła, i wszytkie naczynia jego, i stół pokładny, i naczynia ofiar mokrych, i czasze, i możdżerzyki złote, i zasłonę, i korony, i ochędóstwo złote, które było na czele kościoła, i połamał wszytko.  
+### Lectio1Tridentina  
+Z Drugiej Księgi Machabejskiej  
+*2 Mch 7:7-12*  
+7 A gdy tym sposobem on pierwszy umarł, wiedziono drugiego ku nagrawaniu, a skórę głowy jego i z włosy zdarwszy, pytali, jeśliby chciał jeść pierwej, niż go po wszytkim ciele na każdym członku męczyć będą.  
+8 Ale on odpowiadając ojczystym głosem rzekł: Nie uczynię! Dlatego i ten wtóry pierwszego męki podjął.  
+9 A konając, tak rzekł: Acz ty, nazłośliwszy, w niniejszym żywocie nas tracisz, ale król świata nas, za swe prawa Umarłe, na wiecznego żywota zmartwywstanie wzbudzi.  
+10 Po onym trzeci był naigrawan, a gdy mu język podać kazano, wnet podał i śmiele ręce wyciągnął,  
+11 z ufnością mówił: Z nieba to mam, ale dla Zakonu Bożego teraz i to wzgardzam: bo się od niego zasię to wziąć spodziewam.  
+12 Tak iż król i którzy z nim byli, dziwowali się sercu młodzieńca, że jako na nic na męki nie dbał.  
   
 
 
-### Lectio3  
-*1 Mch 1:24-29*  
-24 I pobrał śrebro i złoto, i naczynia pożądane, i zabrał skarby skryte, które nalazł, a wszytko zabrawszy, poszedł do ziemie swojej.  
-25 I uczynił mord wielki w ludziech, i mówił z pychą wielką.  
-26 I zstało się narzekanie wielkie w Izraelu i po wszytkich miejscach ich.  
-27 I wzdychali książęta i starszy: panny i młodzieńcy roznie mogli się i piękność niewiast odmieniła się.  
-28 Każdy małżonek wziął lament, a które siedziały w małżeńskiej łożnicy, płakały.  
-29 I wzruszyła się ziemia nad tymi, którzy w niej mieszkali, a wszytek dom Jakub okrył się zelżywością.  
-<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
-
-
-### Lectio2  
-*1 Mch 2:7-10*  
-7 I rzekł Matatiasz: Biada mnie! Przeczem się narodził, abym widział skruszenie ludu mego i skruszenie Miasta Świętego, i abych tam siedział, gdy podane jest w ręce nieprzyjacielskie?  
-8 Świątynia jest w ręku cudzoziemców, kościół jego jako człowiek bezecny.  
-9 Naczynia chwały jego zabrano w niewolstwo, starcowie jego pobici po ulicach, a młodzieńcy jego polegli od miecza nieprzyjacielskiego.  
-10 I któryż naród nie odziedziczył królestwa jego a nie odzierżał łupów jego?  
+### Lectio2Tridentina  
+*2 Mch 7:13-19*  
+13 A gdy ten tak umarł, czwartego także męcząc trapili.  
+14 A gdy już był bliski śmierci, tak rzekł: Lepiej jest, od ludzi na śmierć zdanym, czekać nadzieje od Boga, którzy od niego zasię mają być wskrzeszeni: bo tobie nie będzie zmartwywstanie ku żywotowi.  
+15 A gdy przywiedli piątego, męczyli go, ale on wejźrzawszy nań,  
+16 rzekł: Mając moc między ludźmi, będąc skazitelny, czynisz, co chcesz: a nie mniemaj, żeby naród nasz był od Boga opuszczony.  
+17 A ty cierpliwie czekaj a ujźrzysz wielką moc jego, jako ciebie i nasienie twe męczyć będzie.  
+18 Potym wiedziono szóstego, i ten, poczynając umierać, tak mówił: Nie myl się darmo, bo my to sami dla siebie cierpimy, żeśmy przeciw Bogu naszemu zgrzeszyli i zstały się nam rzeczy podziwienia godne.  
+19 Wszakże ty nie mnimaj, żebyś miał uść karania, żeś się ważył przeciw Bogu walczyć.  
   
 
 
-### Lectio3  
-*1 Mch 2:14-16*  
-14 I rozdarł Matatiasz odzienie swoje i synowie jego, a oblekli się w Włosienice i barzo płakali.  
-15 I przyszli tam ci, którzy byli posłani od króla Antiocha, żeby przymusili tych, którzy byli zbiegli do miasta Modin, ofiarować i palić kadzidło, i odstąpić od Zakonu Bożego.  
-16 I mnodzy z ludu Izraelskiego zezwoliwszy przystali ku nim, ale Matatiasz i synowie jego statecznie stali.  
+### Lectio3Tridentina  
+*2 Mch 7:20-23*  
+20 Ale nad miarę matka dziwna a pamiątki między dobrymi godna: która na ginące siedm synów jednego dnia patrząc, dobrym sercem znosiła dla nadzieje, którą w Bogu miała.  
+21 Każdego z nich ojczystym głosem mężnie napominała, będąc pełna mądrości, a myśli niewieściej męskiego  
+22 do nich mówiła: Nie wiem, jakoście się w żywocie moim ukazali, bo nie jam ducha i duszę wam darowała, i żywot, i każdego członki nie jam sama serca dodając spoiła.  
+23 Ale Stworzyciel świata, który sprawił człowiecze narodzenie i który wynalazł poczęcie wszech rzeczy, i wam z miłosier dziem zaś ducha przywróci i żywot, jako wy teraz samymi sobą dla praw jego gardzicie.  
+  
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Lectio1Tridentina  
+Z Drugiej Księgi Machabejskiej  
+*2 Mch 7:24-27*  
+24 Lecz Antioch mniemając, żeby nim gardzono, i puściwszy też mimo się głos urągający, gdy jeszcze namłodszy pozostał, nie tylko go słowy upominał, ale i pod przysięgą obiecował, że go bogatym i szczęśliwym uczynić miał i jeśliby odstąpił od praw ojczystych, że go miał mieć za przyjaciela i potrzeb mu dodać.  
+25 Ale gdy się młodzieniec żadną miarą nie skłaniał na to, zawołał król matki i radził jej, aby młodzieńcowi radziła ku zdrowiu.  
+26 A gdy ją długimi słowy napominał, obiecała, że synowi radzić miała.  
+27 A tak schyliwszy się do niego, szydząc z okrutnego tyrana, mówiła głosem ojczystym: Synu mój, smiłuj się nade mną, któram cię dziewięć miesięcy w żywocie nosiła i przez trzy lata przy piersiach miała i chowała, i do tych lat przywiodła  
+  
 
- Błąd importu.
 
- Błąd importu.
+### Lectio2Tridentina  
+*2 Mch 7:28-33*  
+28 Proszę, synu, abyś pojźrzał na niebo i na ziemię, i na wszytko, co na nich jest, i zrozumiał, iż to Bóg z niszczego uczynił i rodzaj ludzki.  
+29 Tak się zstanie, że się nie będziesz bał tego kata, ale zstawszy się godnym braciej twej uczestnikiem, podejmi śmierć, abych cię z braty twemi w onym smiłowaniu przyjęła.  
+30 To gdy ona jeszcze mówiła, rzekł młodzieniec: Kogóż czekacie? Nie słucham rozkazania królewskiego, ale rozkazania Zakonu, który nam jest dan przez Mojżesza.  
+31 Ale ty, któryś się zstał wynależcą wszelkiej złości na Hebrejczyki, nie ujdziesz ręki Bożej.  
+32 Bo my to dla grzechów naszych cierpiemy.  
+33 I acz się na nas, dla kaźni i karania, Pan Bóg nasz trochę rozgniewał, ale przejednan będzie sługom swoim.  
+  
 
- Błąd importu.
 
- Błąd importu.
+### Lectio3Tridentina  
+*2 Mch 7:34-41*  
+34 A ty złośliwy a ze wszech ludzi nagorszy, nie wynoś się próżno daremnemi nadziejami, rozpaliwszy się na sługi jego.  
+35 Abowiem jeszcześ nie uszedł sądu wszechmocnego a wszytko widzącego Boga.  
+36 Bo brada moi krótkie teraz boleści wycierpiawszy, w przymierzu żywota wiecznego postanowieni są: ale ty sądem Bożym sprawiedliwe pychy twej karanie odniesiesz.  
+37 Lecz ja, jako i bracia moi, duszę i dało moje dar wam za prawa ojczyste, wzywając Boga, aby co rychlej narodowi naszemu miłościwym był, a ty żebyś w mękach i w karaniu wyznał, że on sam jest Bogiem.  
+38 Na mnie lepak i na braci mojej ustanie gniew Wszechmocnego, który jest sprawiedliwie wniesion na wszytek nasz naród.  
+39 Tedy król gniewem zapalony, nad tym okrutniej niż nad wszytkimi się srożył, gniewając się, że był naigrany.  
+40 A tak i ten czystym zszedł, na wszytkim w Panu ufając.  
+41 A na ostatek po syniech i matka koniec wzięła.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Lectio1Tridentina  
+Z Drugiej Księgi Machabejskiej  
+*2 Mch 8:10-14*  
+10 A postanowił Nikanor, aby daniej królowi, którą miano płacić Rzymianom, dwa tysiąca talentów, dołożył z poimanych Żydów.  
+11 I wnet posłał do miast nad morzem leżących zwoływając kupców na kupowanie więźniów Żydowskich, obiecując im dawać dziewięćdziesiąt niewolników za jeden talent, nic się nie oglądając na pomstę, która od wszechmocnego Pana za nim iść miała.  
+12 A Juda, gdy się dowiedział, oznajmił tym, którzy przy nim byli Żydom, o przyszciu Nikanora.  
+13 Z których niektórzy zlęknąwszy się i nie wierząc sprawiedliwości Bożej, uciekali,  
+14 a drudzy, jeśli co jeszcze mieli, przedawali, a społu Pana prosili, aby ich zachował od niezbożnego Nikanora.  
+  
 
- Błąd importu.
 
- Błąd importu.
+### Lectio2Tridentina  
+*2 Mch 8:16*  
+16 Machabeusz tedy zwoławszy siedm tysięcy, którzy z nim byli, prosił, aby się z nieprzyjacioły nie jednali ani się bali mnóstwa nieprzyjaciół przeciwko im niesprawiedliwie ciągnących, ale aby  
+17 się mężnie potykali, mając przed oczyma zelżywość, którą oni miejscu świętemu niesłusznie uczynili, nadto i na krzywdę miasta wydanego na pośmiewisko, jeszcze też na ustawy przodków pogwałcone.  
+18 Bo oni, prawi, we zbrojach swych wespół i w śmiałości ufają; ale my ufamy w Panie wszechmogącym, który może i te, którzy przeciw nam ciągną, i wszytek świat jednym skinieniem zgładzić.  
+19 Przypominał Im też i boskie pomocy, które się przodkom ich działy, i że pod Sennacherybem sto ośmdziesiąt i pięć tysięcy zginęło,  
+  
 
- Błąd importu.
 
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
+### Lectio3Tridentina  
+*2 Mch 8:21-28*  
+21 Temi słowy zstali się stałymi i gotowymi dla Zakonu i ojczyzny umrzeć.  
+22 A tak postanowił bracią swą hetmany nad obiema szykami, Symona i Józefa i Jonatę, poruczywszy każdemu po tysiącu i po piąci set.  
+23 Nadto jeszcze gdy od Ezdrasza im przeczytane były Święte Księgi i dany znak Boskiego wspomożenia, sam hetman w pierwszym hufle potkał się z Nikanorem.  
+24 I mając pomocnika Wszechmocnego pobili więcej niż dziewięć tysięcy ludzi, a większą część wojska Nikanorowego ranami zwątliwszy uciekać przymusili.  
+25 I pobrawszy pieniądze onych, którzy kupować je byli przyjachali, zewsząd je gonili,  
+26 ale się wrócili, czasem przymuszeni, bo było przed szabatem, dla której przyczyny nie trwali w pogoniej.  
+27 Lecz zbroje ich i łupy zgromadziwszy, szabat święcili błogosławiąc Pana, który je dnia onego zachował, kropiąc na nie początkiem miłosierdzia swego.  
+28 A po szabacie chorym, sierotom i wdowom łupy rozdawali, a ostatek sami z swoimi mieli.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
 ### Ant 1  
 Widziałem Pana * siedzącego na tronie wysokim, a pełna była ziemia chwały jego: a ci, co pod nim byli, napełnili świątynię.  
   
-
-
-### Responsory1  
-R. Widziałem Pana, siedzącego na stolicy wysokiéj i wyniosłéj: i pełna jest wszystka ziemia chwały jego.  
-* A to, co pod nim było, napełniało kościół.  
-V. Seraphini stali nad nim: sześć skrzydeł miał jeden, a sześć skrzydeł drugi.  
-R. A to, co pod nim było, napełniało kościół.  
-  
-  
-
-
-### Lectio2  
-*Ez 1:5-9*  
-5 A w pośrodku jego podobieństwo czterech zwierząt, a ta osoba ich: podobieństwo człowieka w nich.  
-6 Czworo oblicza u jednego, a cztery skrzydła u jednego.  
-7 Nogi ich nogi proste a stopa nogi ich jako stopa nogi cielęcéj, a iskierki jako pozór miedzi rozpalonéj.  
-8 I ręce człowiecze pod skrzydły ich po czterech stronach, a oblicza i skrzydła po czterech stronach miały.  
-9 A skrzydła ich złączone były jednego z drugiem: nie wracały się, gdy chodziły, ale każde przed obliczem swojem chodziło.  
-  
-
-
-### Lectio3  
-*Ez 1:10-12*  
-10 A podobieństwo twarzy ich: Twarz człowiecza i twarz lwia po prawicy tego czworga, a twarz wołowa po lewicy tego czworga, a twarz orłowa na wierzchu tego czworga.  
-11 Twarzy ich i skrzydła ich rozciągnione zwierzchu: dwa skrzydła każdego złączały się, a dwa zakrywały ciała ich.  
-12 A każde z nich przed obliczem swem chodziło, dokąd duch pędził, tam chodziły i nie wracały się, kiedy chodziły.  
-  
-
-
-### Responsory8  
-R. Dwóch Serafinów wołało jeden do drugiego:  
-* Święty, Święty, Święty, Pan Bóg Zastępów, * Cała ziemia pełna jest Jego chwały.  
-V. Trójca wydaje świadectwo na niebie: Ojciec, Słowo i Duch Święty, a Trójca ta jest Jednym.  
-R. Święty, Święty, Święty, Pan Bóg Zastępów.  
-Chwała Ojcu.  
-R. Cała ziemia pełna jest Jego chwały.  
-  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Ez 2:6-7*  
-6 A tak ty, synu człowieczy! nie bój się ich, ani się mów ich lękaj; bo niewiernicy i przewrótnicy są z tobą, a z niedźwiadkami mieszkasz; słów ich nie bój się, a oblicza ich nie strachaj się; bo dom draźniący jest.  
-7 A tak będziesz mówił słowa moje do nich, jeźli snadź usłyszą a przestaną; bo draźniący są.  
+### Ant 1  
+Wejrzyj, Panie * że opuszczone stało się miasto pełne bogactw, usiadła w smutku pani Narodów: nikt jej nie pocieszy, jeśli nie Ty, Pan nasz.  
   
-
-
-### Lectio3  
-*Ez 2:8-9*  
-8 A ty, synu człowieczy! słuchaj, co Ja mówię do ciebie : Nie bądź draźniącym, jako dom draźniący jest: otwórz usta twoje, a jedz, co Ja daję tobie.  
-9 I ujrzałem, ano ręka ściągniona ku mnie, w któréj były zwinione księgi: i rozwinęła je przedemną, które były popisane wewnątrz i zwierzchu, a napisano na nich narzekanie i pieśń i biadę.   
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
 
-### Lectio2  
-*Ez 3:5-9*  
-5 Bo nie do ludu głębokiéj mowy a nieznajomego języka posyłają cię: do domu Izraelskiego,  
-6 Ani do narodów mnogich głębokiéj mowy i nieznajomego języka, którychbyś mów słyszeć nie mógł: i choćbyś do nich był posłany, oniby cię usłuchali.  
-7 Lecz dom Izraelów nie chcą cię słuchać, iż mnie słuchać nie chcą; bo wszystek dom Izraelów jest przetartego czoła i twardego serca.  
-8 Otóż dałem twarz twoję duższą, niż twarze ich, i czoło twoje twardsze, niż czoła ich.  
-9 Jako dyament i jako krzemień dałem twarz twoję: nie bój się ich, ani się lękaj twarzy ich; bo dom draźniący jest.  
+### Ant 1  
+Murem Twoim * niezniszczalnym otocz nas, Panie, a ramiona Twoje potężne niech strzegą nas zawsze.  
   
-
-
-### Lectio3  
-*Ez 3:10-13*  
-10 I rzekł do mnie: Synu człowieczy! wszystkie mowy moje, które Ja mówię do ciebie, bierz do serca swego, a słuchaj uszyma swemi.  
-11 A idź, wnidź do zaprowadzenia, do synów ludu twego, a rzeczesz do nich i powiesz im: To mówi Pan Bóg, jeźli snadź usłyszą a przestaną.  
-12 I wziął mię duch, i usłyszałem za sobą głos wzruszenia wielkiego: Błogosławiona chwała Pańska z miejsca jego.  
-13 I głos skrzydeł zwierząt tłukących jedno o drugie, i głos kół idących za zwierzęty, i głos wzruszenia wielkiego.  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 <div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
+### Ant 1  
+Który nieba * tron zawierasz, i w głębie spoglądasz, Panie, Królu królów, ważysz góry, ziemię w dłoni dzierżysz: wysłuchaj nas, Panie, w jękach naszych.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
 
- Błąd importu.
 
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
-
- Błąd importu.
+### Ant 1  
+Nad murami twemi * Jeruzalem postawił straże: cały dzień i noc nie ucichnie chwała imienia Pańskiego.  
+  
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
+<div style="text-align:center"><img src ="img/x-par-end2.png" /></div>
