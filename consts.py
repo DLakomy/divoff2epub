@@ -24,7 +24,18 @@ EXCLUDE_SECTIONS = (
     'Rule',
     'Tractus1',
     'Munda Cor Passionis',
-    'GradualeF'
+    'GradualeF',
+    'Responsory1',
+    'Responsory2',
+    'Responsory3',
+    'Responsory4',
+    'Responsory5',
+    'Responsory6',
+    'Responsory7',
+    'Responsory8',
+    'Lectio1',
+    'Lectio2',
+    'Lectio3',
 )
 EXCLUDE_SECTIONS_TITLES = (
     'Commemoratio Oratio',
